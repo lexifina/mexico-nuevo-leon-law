@@ -1,5 +1,0 @@
-B.O. 20 DE MAYO DE 2023.
-[N. DE E. TRANSITORIOS DEL "DECRETO 2919 SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE AGUAS DEL ESTADO DE BAJA CALIFORNIA SUR, Y DE LA LEY ORGÁNICA DEL GOBIERNO MUNICIPAL DEL ESTADO DE BAJA CALIFORNIA SUR".]
-PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Boletín Oficial del Gobierno del Estado de Baja California Sur.
-SEGUNDO.- Para efectos de lo previsto en la fracción V del artículo 30 del presente Decreto, se les concede a los organismos operadores municipales el término de 30 días hábiles, contados a partir de la entrada en vigor del presente Decreto, para realizar las adecuaciones necesarias a sus respectivos estatutos orgánicos.
-TERCERO.- Para efectos de lo previsto en la fracción VIII del artículo 10 del presente Decreto se le concede a la Comisión Estatal del Agua el término de 30 días hábiles, contados a partir de la entrada en vigor del presente Decreto, para realizar las adecuaciones necesarias en su regulación interna.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE ENERO DEL 2000)
+Artículo 180 Bis V.- Presentada la solicitud de separación cautelar, el juez, sin más trámite, resolverá sobre su procedencia y si la concediere, dictará las disposiciones pertinentes para que se efectúe materialmente la separación atendiendo a las circunstancias de cada caso. En los casos regulados por los artículos 180 Bis VI, 180 Bis VII y 180 Bis VIII, deberán cumplirse los requisitos adicionales que los citados preceptos establecen.

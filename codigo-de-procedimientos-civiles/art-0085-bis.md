@@ -1,3 +1,0 @@
-(ADICIONADO, B.O. 20 DE DICIEMBRE DE 2019)
-Artículo 85 Bis.- En los casos en que los Organismos Operadores Municipales, con motivo de la reparación de la toma o las descargas, destruyan banquetas, guarniciones y pavimentos, deberán observar las disposiciones previstas en el artículo anterior.
-Así mismo, los Organismos Operadores Municipales vigilarán que las alcantarillas cuenten con las tapas correspondientes y en caso que por motivo de robo o cualquier otra causa no cuenten con ella, procurarán de inmediato su sustitución. En todos los casos, mientras se lleva a cabo la sustitución, se deberá colocar la señalización correspondiente para evitar accidentes.

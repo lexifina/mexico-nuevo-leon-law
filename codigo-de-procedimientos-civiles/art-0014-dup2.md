@@ -1,0 +1,2 @@
+Artículo 14.- Los peritos, testigos y en general terceros que no constituyan parte pueden ser citados por correo, telégrafo y aún por teléfono, cerciorándose el secretario previamente de la exactitud de la dirección de la persona citada.
+IDENTIDAD DE LAS PARTES.

@@ -1,0 +1,2 @@
+Artículo 42.- Para la facilidad y rapidez en el despacho, las citas, órdenes, actas y demás documentos necesarios se extenderán en esqueletos que tendrán los huecos que su objeto requiere y los cuales se llenarán haciendo constar en breve extracto el indispensable para la exactitud y precisión del documento.
+Cuando por motivos especiales fuere necesario hacer constar más de los que cupiere en el hueco correspondiente, se escribirá al reverso del documento o en hopas (sic) que se agregarán a él.
