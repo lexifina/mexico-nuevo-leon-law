@@ -1,0 +1,10 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1981)
+ARTICULO 28 Bis 4.- El pago del impuesto deberá hacerse dentro del mes siguiente a aquél en que se realice cualesquiera de los supuestos que a continuación se señalan:
+I.- Cuando se constituya o adquiera el usufructo o la nuda propiedad. En el caso de usufructo temporal, cuando se extinga.
+II.- Al cederse los derechos hereditarios o al enajenarse bienes por la sucesión.
+III.- Tratándose de adquisiciones efectuadas a través de fideicomiso, cuando se realicen los supuestos de enajenación en los términos del Código Fiscal de la Federación.
+IV.- Al protocolizarse o inscribirse el reconocimiento judicial de la prescripción positiva.
+V.- En los casos no previstos en las fracciones anteriores, cuando los actos de que se trate se eleven a escritura pública debidamente firmada, o se inscriban en del Registro Público para poder surtir efectos frente a terceros en los términos del derecho común; y si no están sujetos a esta formalidad, al adquirirse el dominio conforme a las leyes.
+El pago del impuesto no estará sujeto a previa calificación de la autoridad fiscal municipal, quien por si no podrá modificar el certificado de valor actual real que haya expedido la Secretaría de Finanzas y Tesorería General del Estado; sin perjuicio de los demás derechos de fiscalización que aquélla conserva.
+Cada una de las Tesorerías Municipales de la Entidad podrá, si lo estima conveniente, designar representante ante la Secretaría de Finanzas y Tesorería General del Estado, que se encargue de emitir opinión sobre los valores reales actuales de las diferentes regiones que compongan su circunscripción.
+El impuesto se cubrirá en efectivo o mediante cheque certificado ante las oficinas receptoras de las Tesorerías Municipales donde se ubique el bien materia del impuesto o en las instituciones bancarias autorizadas por el Municipio correspondiente, localizadas en la circunscripción territorial del propio Municipio de que se trate. Cuando el pago se efectúe extemporáneamente, no podrá enterarse en instituciones bancarias.

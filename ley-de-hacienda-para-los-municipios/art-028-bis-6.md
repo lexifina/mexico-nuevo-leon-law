@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1981)
+ARTICULO 28 Bis 6.- La reducción a que se refiere el Artículo 28 Bis, se realizará conforme a lo siguiente:
+I.- Se considerarán como un solo inmueble los bienes que sean o resulten colindantes, adquiridos por la misma persona en un período de 24 meses. De la suma de los precios o valores de los predios únicamente se tendrá derecho a hacer una sola vez la reducción, la que se calculará al momento en que se realice la primera adquisición. El adquirente deberá manifestar, bajo protesta de decir verdad, al fedatario ante quien se formalice toda adquisición, si el predio objeto de la operación colinda con otro que hubiere adquirido con anterioridad, para que se ajuste el monto de la reducción, pagando en su caso las diferencias de impuesto que correspondan.
+II.- Cuando se adquiera parte de la propiedad o de los derechos de un inmueble, la reducción se hará en la proporción que corresponda a dicha parte.
+III.- Tratándose del usufructo o de la nuda propiedad, únicamente se tendrá derecho al 50% de la reducción por cada uno de ellos.
+IV.- No se considerarán departamentos habitacionales los que por sus características originales se destinen a servicios domésticos, portería o guarda de vehículo, aún cuando se utilicen para otros fines.
