@@ -1,0 +1,1 @@
+ARTICULO QUINTO:- Los Títulos profesionales legalmente expedidos pero no registrados en el Estado, al momento en que esta Ley entre en vigor, podrán registrarse en el Departamento de Profesiones conforme a los términos de esta Ley.
