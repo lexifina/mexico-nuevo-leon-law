@@ -1,0 +1,2 @@
+ARTICULO 74.- Los causantes deberán presentar su solicitud de empadronamiento dentro de los diez días siguientes a la fecha de iniciación de operaciones, debiendo hacer uso de las formas oficialmente aprobadas, que les serán proporcionadas en la Tesorería Municipal, anotando en ella los datos que se les exijan. Cuando el mismo causante tenga sucursales, bodegas o dependencias, deberán empadronar cada una de ellas por separado.
+Los que requieran autorización o permiso previo deberán llenar este requisito.
