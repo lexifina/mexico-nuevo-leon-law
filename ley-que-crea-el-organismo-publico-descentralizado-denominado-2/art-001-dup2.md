@@ -1,0 +1,1 @@
+ARTICULO 1o.- Las atribuciones que a la Junta Local de Caminos del Estado otorgan las disposiciones legales se entenderán conferidas al Organismo Público Descentralizado "SISTEMA DE CAMINOS DE NUEVO LEON", a partir de la vigencia de esta Ley.

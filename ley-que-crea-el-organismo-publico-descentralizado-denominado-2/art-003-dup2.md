@@ -1,0 +1,1 @@
+ARTICULO 3o.- Se deroga lo dispuesto en la fracción V del Artículo 23o., de la Ley Orgánica de la Administración Pública del Estado de Nuevo León, competencia que por este acto se transfiere al Organismo que por esta Ley se crea.
