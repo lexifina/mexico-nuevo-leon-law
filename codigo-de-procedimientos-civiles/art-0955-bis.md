@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 3 DE ENERO DEL 2000)
+Artículo 955 Bis.- En las sentencias que resuelvan las controversias familiares, además de las condenas de suspensión, limitación o pérdida de los derechos familiares que en cada caso procedan, el juez podrá imponer las medidas necesarias para preservar los derechos y la seguridad de los miembros de la familia, particularmente de los menores e incapaces.
+En las sentencias definitivas que condenen conductas de violencia familiar, el juez podrá declarar, dejando a salvo los derechos de terceros, que el derecho de habitar el domicilio corresponde a quien sufrió la agresión, debiendo el agresor desocupar dicho domicilio cuando éste sea el padre o la madre del menor de edad o incapaz sujeto de violencia.

@@ -1,4 +1,5 @@
-(ADICIONADO, P.O. 22 DE ENERO DE 1997)
-Artículo 180 Bis II.- Los menores que hayan sido sustraídos o retenidos ilícitamente en un lugar distinto de su domicilio legal, si fueren mayores de siete años, previamente se oirá su parecer para ser depositados provisionalmente en el domicilio de sus abuelos maternos o paternos indistintamente, de un familiar o en una institución idónea.
-En los casos señalados en este artículo se seguirá el mismo procedimiento previsto en el artículo que antecede.
-Contra el acuerdo que conceda el depósito de menores conforme al artículo anterior y éste, no procede ningún recurso, contra el que lo deniegue procede el recurso de apelación en ambos efectos.
+(REFORMADO, P.O. 3 DE ENERO DEL 2000)
+Artículo 180 Bis II.- La separación cautelar de personas y el depósito de menores, tiene por objeto tutelar la seguridad de las personas sujetas a violencia familiar. Toda separación cautelar decretada con fundamento en este Capítulo, tendrá un carácter prejudicial y provisional, en los siguientes términos:
+I.- Será autorizada para tutelar la seguridad de las personas receptoras de violencia familiar, en tanto preparan y presentan las acciones legales que correspondan en contra de su agresor;
+II.- Se autorizará por un período que no excederá de 30 días, plazo dentro del cual se deberá acreditar al juez que autorizó la separación, el haber presentado demanda, denuncia o querella en contra del agresor. Los efectos de la separación autorizada cesarán si al vencimiento del referido plazo no se hubiere acreditado la realización de cualquiera de las acciones legales citadas;
+III.- En todo caso, el juez remitirá el expediente de la separación cautelar al juez ante el que se hubiere demandado. El juez que conozca del juicio principal, resolverá la continuación o terminación de la separación cautelar.

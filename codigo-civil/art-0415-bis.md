@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 3 DE ENERO DE 2000)
+Art. 415 Bis.- Los que ejercen la patria potestad, aún cuando no tengan la custodia, tienen el derecho de convivencia con sus descendientes. El ejercicio de este derecho, queda supeditado a que no represente riesgo para el menor y al cumplimiento de la obligación alimenticia.
+No podrán impedirse, sin justa causa, las relaciones personales entre el menor y sus ascendientes. En caso de oposición, a petición de cualquiera de ellos, el juez resolverá lo conducente en atención al interés superior del menor. Sólo por mandato judicial podrá limitarse, suspenderse o perderse el derecho de convivencia a que se refiere el párrafo anterior.

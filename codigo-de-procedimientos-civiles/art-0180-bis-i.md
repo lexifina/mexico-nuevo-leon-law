@@ -1,9 +1,5 @@
-(ADICIONADO CON SUS ARTICULOS QUE LO INTEGRAN, P.O. 22 DE ENERO DE 1997)
+(REFORMADA SU DENOMINACIÓN, P.O. 3 DE ENERO DEL 2000)
 CAPITULO II BIS
-DEL DEPOSITO DE MENORES.
-(ADICIONADO, P.O. 22 DE ENERO DE 1997)
-Artículo 180 Bis I.- Los menores que sean maltratados por parte de quienes ejerzan sobre ellos la patria potestad, tutela o los tengan bajo su custodia, podrán ser depositados provisionalmente a juicio del Juez, en el domicilio de un familiar o en una institución idónea, por resolución que él dicte.
-El ejercicio de tal acción corresponde indistintamente a quienes se señalan en el artículo 414 del Código Civil vigente en el Estado, quienes deberán de aportar los medios de prueba idóneos, y solo a falta o negativa de éstos por el Ministerio Público.
-Una vez presentada la solicitud de depósito del menor se trasladará el Juez al domicilio donde habita, previa citación de quien lo haya tenido bajo su custodia; hará comparecer a quien haya solicitado el depósito del menor, sin que se encuentre presente el maltratador, para que manifieste si ratifica o no su solicitud, excepto cuando se trate del maltratador y el Ministerio en su caso el Juez decretará el depósito del menor en el lugar mas conveniente a su juicio.
-En el mismo acto de la diligencia el Juez mandará intimar a quien lo hubiere solicitado, de que si en el término de treinta días no acredita haber intentado la demanda, acusación o querella, el depósito quedará sin efecto así como a quien haya tenido la custodia para que no moleste al menor ni a quien hubiere solicitado su depósito, apercibiéndolo de procederse en su contra a lo que hubiere lugar.
-Independientemente de lo anterior, el Juez puede decretar las medidas que estime procedentes a efecto de evitar molestias al solicitante y en su caso a los habitantes del domicilio o institución que se haya señalado para el depósito del menor.
+DE LA SEPARACIÓN CAUTELAR DE PERSONAS Y DEL DEPOSITO DE MENORES.
+(REFORMADO, P.O. 3 DE ENERO DEL 2000)
+Artículo 180 Bis I.- Toda persona que vaya a presentar demanda, denuncia o querella, por conductas que constituyan violencia familiar, puede pedir al juez que lo separe cautelarmente del presunto agresor a quien demandará o acusará.
