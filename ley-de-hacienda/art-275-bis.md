@@ -10,6 +10,7 @@ e) Por la legalización y registro de certificados de estudios profesionales N$2
 f) Por el registro y legalización de títulos profesionales N$300.00
 g) Por el registro y legalización de títulos técnicos medios N$100.00
 h) Por el trámite para cédula profesional N$100.00
+N. DE E. EN RELACION CON LA VIGENCIA DE LOS DERECHOS CONTENIDOS EN EL PRESENTE ARTICULO, VER ARTICULO PRIMERO DEL DECRETO QUE MODIFICA ESTA LEY, P.O. 29 DE JULIO DE 1994
 II.- Instituciones Educativas:
 1.- Por el inicio de trámite de incorporación, entrega de folleto-instructivo, por nivel específico y de paquete de formularios para el trámite N$80.00
 2.- Por los estudios y análisis de los siguientes programas oficiales:
