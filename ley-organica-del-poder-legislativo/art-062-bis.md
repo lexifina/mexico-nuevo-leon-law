@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 16 DE AGOSTO DE 2000)
+Artículo 62 BIS.- Son reglas para la funcionalidad de la Comisión de Coordinación y Régimen Interno:
+I.- Sobre la participación en las sesiones: Los integrantes de esta Comisión tendrán derecho de voz y voto ponderado. El voto ponderado de cada integrante de esta Comisión, será el resultado de dividir la cantidad de Diputados de la Legislatura pertenecientes al mismo Grupo Legislativo del cual forma parte, entre la cantidad de integrantes de esta Comisión que pertenecen a su propio Grupo Legislativo.
+II.- Sobre el quórum legal de sesiones: Para que la sesión pueda celebrarse se requerirá la asistencia de los integrantes de esta Comisión que en conjunto representen al menos, más del cincuenta por ciento de los Diputados que componen la Legislatura.
+III.- Sobre las Decisiones y los acuerdos: Para que las decisiones y acuerdos de esta Comisión sean válidos, se requerirá el voto ponderado de los integrantes de la misma que en conjunto representen al menos, más del cincuenta por ciento de los Diputados que componen la Legislatura.
