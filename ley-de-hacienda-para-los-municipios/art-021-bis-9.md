@@ -1,7 +1,7 @@
 (REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 1996)
 ARTICULO 21 Bis 9.- El Impuesto Predial se pagará a una tarifa única especial de 2 cuotas anuales, cuando se trate de los siguientes casos:
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 1983)
-I.- Los Predios destinados a planteles escolares no oficiales donde se imparta enseñanza primaria, secundaria o universitaria, autorizada por el Gobierno Federal o Estatal y sometida a su vigilancia, siempre que el inmueble sea propio.
+(REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 2002)
+I.- Los Predios destinados a planteles escolares no oficiales donde se imparta enseñanza obligatoria en los términos del Artículo 3° de la Constitución Política de los Estados Unidos Mexicanos, autorizada por el Gobierno Federal o Estatal y sometida a su vigilancia, incluyendo los planteles que impartan enseñanza universitaria, siempre que el inmueble sea propio.
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
 No quedan comprendidos dentro de este beneficio, los predios destinados a usos distintos de aulas, laboratorios o instalaciones similares de dichos planteles educativos.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1998)
@@ -31,8 +31,8 @@ b) Mujeres cualquiera que sea su edad, con excepción de casadas.
 c) Veteranos de la Revolución, en los términos del Decreto No. 71 expedido por el Congreso del Estado el 19 de diciembre de 1950.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
 d) Personas incapacitadas físicamente para trabajar.
-(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
-e) Jubilados y pensionados con ingresos propios, cuyo monto diario no exceda de dos cuotas y media.
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 2002)
+e) Jubilados y pensionados con ingresos propios, cuyo monto diario no exceda de dos cuotas y media. En este caso únicamente se exigirá para acreditar este supuesto, la credencial o el documento expedido por Institución Oficial correspondiente y el recibo de ingresos respectivo.
 (REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
 Si el valor catastral del predio excede de 7,354 cuotas y no de 14,708 cuotas, se pagará por concepto de impuesto predial anual el doble de tarifa especial.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)

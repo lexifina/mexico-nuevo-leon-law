@@ -4,8 +4,8 @@ ARTICULO 28 Bis 1.- En la adquisición de viviendas cuyo valor gravable no exced
 El Impuesto sobre adquisición de inmuebles se cubrirá a una tarifa única especial por cada inmueble equivalente a 7 cuotas, en los siguientes casos:
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 1986)
 I.- En las adquisiciones hechas por instituciones de beneficencia privada, respecto de bienes destinados exclusivamente a sus fines.
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 1983)
-II.- En las adquisiciones hechas por instituciones públicas de enseñanza y establecimientos de enseñanza propiedad de particulares que tengan autorización o reconocimiento de validez oficial de estudios en los términos de la Ley Federal de Educación, por los bienes destinados exclusivamente a sus fines educativos.
+(REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 2002)
+II.- En las adquisiciones hechas por instituciones públicas de enseñanza y establecimientos de enseñanza propiedad de particulares que tengan autorización o reconocimiento de validez oficial de estudios en los términos de la Ley General de Educación y de la Ley de Educación del Estado, por los bienes destinados exclusivamente a sus fines educativos.
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
 No quedan comprendidos dentro de este beneficio, los predios destinados a usos distintos de aulas, laboratorios o instalaciones similares de dichos planteles educativos. Tratándose de instalaciones deportivas, culturales o de otra índole, no gozarán de este beneficio, en caso de que las mismas sean utilizadas además para la realización de eventos no gratuitos, distintos de los eventos que realice la propia institución educativa con motivo de la práctica de la enseñanza correspondiente.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1991)
@@ -42,5 +42,5 @@ Los predios a los que se les haya aplicado la tarifa especial que señala esta f
 XV.- En las adquisiciones realizadas por asociaciones religiosas, respecto de bienes destinados exclusivamente a sus fines.
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 2000)
 En cualquier tiempo en que la Tesorería Municipal advierta que los contribuyentes beneficiados en los términos de este Artículo, no hayan cumplido con cualesquiera de los requisitos que sirvieron de base para gozar de la tarifa especial, previa audiencia al interesado en la que se le otorgue un plazo no menor de 15 días hábiles para proporcionar pruebas y expresar alegatos, podrá revocar y cancelar las franquicias otorgadas. En este caso se procederá al cobro integro de las contribuciones no cubiertas bajo el amparo de la presente disposición, más sus respectivos accesorios.
-(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2001)
-Para efectos de la no-propiedad de predios, bastará que el interesado manifieste bajo protesta de decir verdad que no es propietario o poseedor de otro bien inmueble en el Estado, conservando el Municipio sus facultades de comprobación.
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 2002)
+Para efectos de la no-propiedad de predios, bastará que el interesado manifieste bajo protesta de decir verdad que no es propietario o poseedor de otro bien inmueble en el Estado, conservando el Municipio sus facultades de comprobación, por lo que en caso de falsedad en la declaración manifestada, el interesado será acreedor a una sanción del 50% al 100% de la contribución omitida.

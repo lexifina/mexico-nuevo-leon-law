@@ -17,6 +17,8 @@ X.- Enajenación a través de fideicomiso, en los términos del Código Fiscal d
 XI.- En las adquisiciones, derechos o renta a cualquier plazo, de los lotes en los panteones.
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 1998)
 XII.- La realizada a través de la celebración de poderes irrevocables para actos de dominio siempre y cuando el apoderado no lo ejerza en el término de 6 meses.
+(ADICIONADA, P.O. 27 DE DICIEMBRE DE 2002)
+XIII.- La adjudicación mediante laudo laboral.
 En las permutas se considerará que se efectúan dos adquisiciones.
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 1990)
 En las adquisiciones efectuadas a través de arrendamiento financiero, cuando el arrendatario ejerza su opción de compra, se considerarán como una sola adquisición las realizadas por la arrendadora y por el arrendatario financieros (sic), siempre que se demuestre que fue cubierto el impuesto correspondiente a la adquisición efectuada por la arrendadora financiera. Consecuentemente, en estos casos no se generará el impuesto a cargo del arrendatario financiero.

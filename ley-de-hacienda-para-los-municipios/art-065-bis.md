@@ -17,8 +17,8 @@ e) Inmuebles que en promedio generen más de 50 kilogramos y hasta 100 kilogramo
 f) Inmuebles que en promedio generen más de 100 kilogramos y hasta 200 kilogramos diarios de basura 48 cuotas
 (REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
 g) Inmuebles que en promedio generen más de 200 kilogramos de basura o el equivalente a tres metros cúbicos diarios, se cobrarán 48 cuotas más 0.50 cuotas por cada 5 kilogramos adicionales de basura o fracción que se generen.
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
-Estarán exentos del pago de esta contribución en los casos de casas-habitación, excepto cuando se trate de basura y desechos de jardín que excedan de 3 metros cúbicos, en cuyo caso se cubrirán por el excedente 2 cuotas por cada metro cúbico o fracción de materia recolectada, cuando en ellas no se realice algún acto de comercio, así como cuando el particular haya contratado este servicio con algún organismo público descentralizado o con un particular autorizado por el Municipio para la prestación de este servicio.
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 2002)
+Estarán exentos del pago de esta contribución en los casos de casas-habitación, excepto cuando se trate de basura y desechos de jardín que excedan de 3 metros cúbicos, en cuyo caso se cubrirán por el excedente 2 cuotas por cada metro cúbico o fracción de materia recolectada, así como cuando el particular haya contratado este servicio con algún organismo público descentralizado o con un particular autorizado por el Municipio para la prestación de este servicio.
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
 Las personas físicas o morales obligadas al pago de esta contribución, al inscribirse en la Tesorería Municipal, declararán el volumen promedio diario de basura que generen, pudiendo en su caso solicitar la modificación de la cuota que cubran, debido a un aumento o disminución en el promedio diario de basura que generen. En este caso, la Tesorería Municipal previa comprobación y verificación, modificará la cuota a cargo del particular, con efectos a partir del mes siguiente a aquél en que esto ocurra.
 (REFORMADO, P.O. 29 DE JULIO DE 1994)

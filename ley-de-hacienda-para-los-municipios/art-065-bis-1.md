@@ -20,6 +20,8 @@ Se exceptúan de lo anterior, los lugares en donde se encuentren instalados parq
 Dicha tarifa deberá pagarse de manera proporcional conforme los meses completos del año que hayan transcurrido.
 (REFORMADA, P.O. 29 DE DICIEMBRE DE 2000)
 IV.- Por estacionamientos de vehículos en la vía pública, en aquellos lugares donde existen instalados parquímetros, por cada hora o fracción, $2.50.
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2002)
+Cuando los parquímetros estén instalados frente a casas-habitación, los habitantes de las mismas no deberán cubrir los derechos a que se refiere la fracción anterior, por el estacionamiento de sus vehículos, por lo que el Municipio deberá expedir las constancias necesarias para hacer efectiva esta exención, a favor de quienes acrediten encontrarse en los supuestos mencionados.
 N. DE E. POR DISPOSICION DEL ARTICULO TERCERO DEL DECRETO NUM. 340, SE SUSPENDE LA VIGENCIA DE LOS DERECHOS CONTENIDOS EN LA PRESENTE FRACCION, P.O. 31 DE DICIEMBRE DE 1999.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1998)
 V.- Por ocupar la vía pública los organismos descentralizados del gobierno federal, estatal o municipal y las personas físicas o morales, con toda clase de construcciones o instalaciones permanentes o semipermanentes, pagarán .020 cuotas mensuales por metro cuadrado o fracción.

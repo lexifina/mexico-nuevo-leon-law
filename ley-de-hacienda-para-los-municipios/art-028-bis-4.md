@@ -6,8 +6,9 @@ a) Se constituya o adquiera el usufructo o la nuda propiedad. En el caso de usuf
 b) Se cedan los derechos hereditarios o al enajenarse bienes por la sucesión.
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 1986)
 c) Se realicen los supuestos de enajenación en los términos del Código Fiscal del Estado, tratándose de adquisiciones efectuadas a través de fideicomiso.
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
-d) Cause ejecutoria la sentencia, en los casos de prescripción positiva, de adjudicaciones y daciones en pago. Cuando no se emita sentencia en los dos últimos casos, el término contará a partir de la fecha del convenio correspondiente.
+d).- (DEROGADA, P.O. 27 DE DICIEMBRE DE 2002)
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2002)
+En los casos de prescripción positiva, de adjudicaciones y daciones en pago, el término será de 90 días naturales contados a partir de que cause ejecutoria la sentencia respectiva. Cuando no se emita sentencia en los dos últimos casos, dicho término contará a partir de la fecha del convenio correspondiente.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1998)
 II.- Dentro de los tres meses siguientes a aquél en que se presuma transmitido el dominio o celebrado el contrato prometido, en las adquisiciones previstas en el Artículo 28 Bis-2, fracciones II y III. Para este efecto, se presume transmitido el dominio o celebrado el contrato prometido cuando venza el plazo fijado en el contrato respectivo, salvo que se compruebe con instrumento público que el contrato fue rescindido. En caso de que dichas adquisiciones se hagan constar en escritura pública, el impuesto deberá cubrirse dentro de los 30 días siguientes a la fecha de firma de la escritura y en el caso de que ésta llegara a rescindirse, operará lo dispuesto en el Artículo 23 del Código Fiscal del Estado.
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 1993)
