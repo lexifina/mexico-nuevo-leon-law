@@ -2,8 +2,8 @@
 ARTICULO 28 Bis 1.- En la adquisición de viviendas cuyo valor gravable no exceda de 25 cuotas elevadas al año y siempre que el adquirente sea persona física y no posea otro bien raíz en el Estado, cubrirá el impuesto aplicando la tasa del 2% al valor del inmueble, después de reducirlo en 15 cuotas elevadas al año. Para efectos de la no-propiedad de predios, bastará que el interesado manifieste bajo protesta de decir verdad que no es propietario o poseedor de otro bien inmueble en el Estado, conservando el Municipio sus facultades de comprobación.
 (REFORMADO PRIMER PARRAFO, P.O. 30 DE DICIEMBRE DE 1998)
 El Impuesto sobre adquisición de inmuebles se cubrirá a una tarifa única especial por cada inmueble equivalente a 7 cuotas, en los siguientes casos:
-(REFORMADA, P.O. 31 DE DICIEMBRE DE 1986)
-I.- En las adquisiciones hechas por instituciones de beneficencia privada, respecto de bienes destinados exclusivamente a sus fines.
+(REFORMADA, P.O. 26 DE DICIEMBRE DE 2003)
+I.- En las adquisiciones realizadas por instituciones de beneficencia privada, constituidas en términos legales, respecto de bienes destinados exclusivamente a sus fines.
 (REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 2002)
 II.- En las adquisiciones hechas por instituciones públicas de enseñanza y establecimientos de enseñanza propiedad de particulares que tengan autorización o reconocimiento de validez oficial de estudios en los términos de la Ley General de Educación y de la Ley de Educación del Estado, por los bienes destinados exclusivamente a sus fines educativos.
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
@@ -17,10 +17,9 @@ V.- En las adquisiciones que hagan las Juntas de Mejoramiento Moral, Cívico y M
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 1999)
 VI.- En las adquisiciones que realicen los trabajadores al servicio de la Federación, Estado o Municipio, independientemente que estén o no sindicalizados, siempre y cuando el inmueble objeto del impuesto vaya a destinarse o se destine a vivienda y no sea propietario o poseedor de otro bien inmueble en el Estado. En los casos de trabajadores casados bajo el régimen de sociedad conyugal, la tarifa especial también operará al 100%.
 En estos casos cubrirán la tarifa referida, en las adquisiciones de terrenos cuyo valor base del Impuesto sea inferior a 7,500 cuotas y en casos de vivienda hasta de 15,000 cuotas, en caso contrario por el valor excedente será cubierto conforme a lo dispuesto por el artículo 28 BIS.
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 1998)
-VII.- En las adquisiciones hechas por entes u organismos públicos creados para solucionar el problema de la vivienda y de la tenencia legal de la tierra, así como las personas que resulten directamente beneficiadas con sus programas, siempre y cuando dichas personas no sean propietarias o poseedoras de otro bien raíz en el Estado y que lo destinen para su habitación.
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 1994)
-VIII.- En las adquisiciones realizadas por o con personas sin fines de lucro que lleven a cabo programas concretos, con finalidades y características iguales o similares a las que persigue el Plan Tierra Propia y el fideicomiso Fomento Metropolitano de Monterrey.
+(REFORMADA, P.O. 26 DE DICIEMBRE DE 2003)
+VII.- En las adquisiciones realizadas por entes u organismos públicos creados para solucionar el problema de la vivienda y de la tenencia legal de la tierra, y en las adquisiciones realizadas por o con personas sin fines de lucro que lleven a cabo programas concretos, con finalidades y características iguales o similares, así como las personas que resulten directamente beneficiadas con dichos programas, siempre y cuando estas personas no sean propietarias o poseedoras de otro bien inmueble en el Estado y que lo destinen para su habitación.
+VIII.- (DEROGADA, P.O. 26 DE DICIEMBRE DE 2003)
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1983)
 IX.- En las adquisiciones por informaciones ad-perpetuam y sentencias judiciales que impliquen reconocimiento de posesión de inmuebles, cuyo destino sea el señalado en las Fracciones VII y VIII.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1983)

@@ -7,9 +7,10 @@ DEL OBJETO DEL IMPUESTO
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
 ARTICULO 21 Bis.- Es objeto de este impuesto:
 I.- La propiedad de los predios urbanos;
-II.- La propiedad de los predios sub-urbanos;
+II.- (DEROGADA, P.O. 26 DE DICIEMBRE DE 2003)
 III.- La propiedad de predios rústicos;
-IV.- La posesión de predios urbanos, sub-urbanos o rústicos, en los casos siguientes:
+(REFORMADO PRIMER PARRAFO, P.O. 26 DE DICIEMBRE DE 2003)
+IV.- La posesión de predios urbanos o rústicos, en los casos siguientes:
 a) Cuando no exista propietario.
 b) Cuando se derive de cualquier acto jurídico que permita la ocupación del inmueble.
 c) Cuando por causas ajenas a la voluntad de los propietarios, éstos no se encuentren en posesión de los inmuebles.

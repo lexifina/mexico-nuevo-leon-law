@@ -2,13 +2,11 @@
 ARTICULO 28 Bis 3.- En la determinación de este impuesto se deberán seguir las reglas siguientes:
 (REFORMADO PRIMER PARRAFO, P.O. 26 DE DICIEMBRE DE 2001)
 I.- Para efectos de este impuesto, se utilizará el salario mínimo general de la zona económica en donde se encuentre ubicado el inmueble, vigente al momento en que se pague el impuesto.
-(DEROGADO SEGUNDO PARRAFO, P.O. 26 DE DICIEMBRE DE 2001)
 (REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
 El Valor Catastral que se utilice para la determinación del impuesto, será el vigente al momento en que se protocolice la escritura, y en los casos en que no se requiera o se cumpla esta formalidad, se aplicará el que esté vigente al momento en que se pague el impuesto. Cuando se trate de las operaciones a que se refieren las fracciones II, III y IV, del artículo 28 bis-2 se aplicará el factor de actualización a que se refiere el artículo 18 bis del Código Fiscal del Estado para referenciar el Valor Catastral a la fecha de firma del contrato, para tales efectos el Valor Catastral vigente se dividirá entre el factor de actualización mencionado y el resultado será el Valor Catastral vigente a la fecha de firma del contrato. Dicho valor referenciado servirá para determinar el valor gravable del inmueble, al cual se le aplicará la tasa vigente en aquella fecha, debiendo generarse los recargos y demás accesorios en los términos legales.
-(DEROGADO CUARTO PARRAFO, P.O. 26 DE DICIEMBRE DE 2001)
 II.- Cuando con motivo de la adquisición, el adquirente asuma la obligación de pagar una o más deudas o de perdonarlas, el importe de ellas se considerará parte del precio pactado.
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
-Cuando no se pacte precio, el impuesto se calculará con base en el valor catastral. En la constitución, adquisición o extinción de usufructo o de la nuda propiedad y en la adquisición de bienes de remate, no se tomará en cuenta el precio que se hubiere pactado sino el del valor a que se refiere este párrafo.
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2003)
+Cuando no exista valor de operación, el impuesto se calculará con base en el valor catastral.
 Para los fines del Impuesto Sobre Adquisición de Inmuebles, se considera que el usufructo y la nuda propiedad tienen un valor, cada uno de ellos, del 50% del valor de la propiedad.
 (REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1993)
 III.- En las adquisiciones que se hagan constar en escrituras públicas, actas fuera de protocolo o cualquier otro instrumento o contrato en que intervengan, los notarios, jueces, corredores y demás fedatarios que por disposición legal tengan funciones notariales, calcularán el impuesto bajo su responsabilidad, haciendo constar en la escritura o documento el procedimiento para su cálculo y lo declararán y enterarán mediante la formulación de una nota oficial, conforme al modelo autorizado. Si el impuesto es cubierto directamente por el contribuyente, el fedatario hará constar tal circunstancia en la escritura del documento en que intervenga, antes de proceder a autorizar dicho instrumento. En el documento que se presente para su inscripción en el Registro Público de la Propiedad y del Comercio, los fedatarios insertarán los datos del recibo oficial o declaración de pago del impuesto correspondiente.
@@ -25,8 +23,8 @@ IV.- (DEROGADA, P.O. 30 DE DICIEMBRE DE 1991)
 El enajenante responde solidariamente del impuesto que deba pagar el adquirente, cesando su responsabilidad desde el momento en que compruebe fehacientemente ante la Tesorería Municipal, mediante los elementos de prueba que ésta exija, que ha recibido el pago total del precio pactado en la operación de enajenación, siempre y cuando la operación se haya elevado a escritura pública.
 (REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
 El plazo para computar la extinción de las facultades de las autoridades fiscales a que se refiere el artículo 67 del Código Fiscal del Estado se iniciará a partir de la fecha en que se presente la declaración del impuesto ante la Tesorería Municipal.
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1997)
-En caso de que no se realizaran estos trámites, las facultades de las autoridades fiscales mencionadas en el párrafo anterior, no se extinguirán.
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2003)
+En caso de que no se presente la declaración del impuesto ante la Tesorería Municipal, las facultades de las autoridades fiscales mencionadas en el párrafo anterior, no se extinguirán.
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 1997)
 En el supuesto de que en la declaración del Impuesto Sobre Adquisición de Inmuebles, se hubiere omitido el pago correspondiente a la construcción, ya sea por causas imputables al enajenante o adquirente, se impondrá una multa al adquirente de tres cuotas hasta el 100% de la contribución omitida, determinando ésta sobre el valor de la construcción no declarada.
 (REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)

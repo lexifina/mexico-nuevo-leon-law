@@ -1,13 +1,10 @@
 (REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 1996)
 ARTICULO 21 Bis 9.- El Impuesto Predial se pagará a una tarifa única especial de 2 cuotas anuales, cuando se trate de los siguientes casos:
-(REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 2002)
-I.- Los Predios destinados a planteles escolares no oficiales donde se imparta enseñanza obligatoria en los términos del Artículo 3° de la Constitución Política de los Estados Unidos Mexicanos, autorizada por el Gobierno Federal o Estatal y sometida a su vigilancia, incluyendo los planteles que impartan enseñanza universitaria, siempre que el inmueble sea propio.
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
-No quedan comprendidos dentro de este beneficio, los predios destinados a usos distintos de aulas, laboratorios o instalaciones similares de dichos planteles educativos.
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1998)
-Para efectos de esta fracción, se entiende por predios destinados a planteles escolares, los que cuenten con la construcción correspondiente y en los mismos se estén realizando las actividades de impartición de enseñanza educativa al momento de la solicitud de la tarifa especial.
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 1983)
-II.- Los predios propiedad de la Universidad Autónoma de Nuevo León, así como los predios propiedad de instituciones publicas que se destinen a planteles escolares.
+(REFORMADA, P.O. 26 DE DICIEMBRE DE 2003)
+I.- Los Predios destinados a planteles escolares no oficiales donde se imparta enseñanza obligatoria en los términos del Artículo 3°. de la Constitución Política de los Estados Unidos Mexicanos, autorizada por el Gobierno Federal o Estatal y sometida a su vigilancia, incluyendo los planteles que impartan enseñanza universitaria, siempre que el inmueble sea propio.
+Quedan comprendidos en este beneficio los predios en donde se desarrollen actividades complementarias, conexas o accesorias a la labor educativa, siempre y cuando no sean explotados o utilizados con fines de lucro.
+(REFORMADA, P.O. 26 DE DICIEMBRE DE 2003)
+II.- Los predios propiedad de la Universidad Autónoma de Nuevo León, así como los predios propiedad de instituciones públicas, excepto en aquellos en que se realicen actividades con fines de lucro. No se considerarán actividades con fines de lucro respectivamente las que tengan como objeto prestar servicios a maestros, estudiantes, universitarios y servidores de las instituciones públicas.
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 1983)
 III.- Los predios que perteneciendo a particulares, estén destinados a un servicio público gratuito autorizado por el Estado o por el Gobierno Municipal, siempre que por los mismos sus propietarios no perciban renta.
 (REFORMADA, P.O. 26 DE DICIEMBRE DE 2001)
@@ -37,7 +34,7 @@ e) Jubilados y pensionados con ingresos propios, cuyo monto diario no exceda de 
 Si el valor catastral del predio excede de 7,354 cuotas y no de 14,708 cuotas, se pagará por concepto de impuesto predial anual el doble de tarifa especial.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
 Para quedar dentro de los supuestos de esta fracción, las personas antes citadas deberán habitar el inmueble en cuestión y no poseer otro bien raíz en el Estado.
-X .- (DEROGADA, P.O. 29 DE DICIEMBRE DE 2000)
+X.- (DEROGADA, P.O. 29 DE DICIEMBRE DE 2000)
 (REFORMADA, P.O. 27 DE DICIEMBRE DE 1996)
 XI.- Los predios pertenecientes a las asociaciones religiosas, siempre que los mismos sean destinados directamente a los fines de las mismas y no sean objeto de actividades lucrativas o de negocio.
 (REFORMADO, P.O. 29 DE DICIEMBRE DE 2000)
