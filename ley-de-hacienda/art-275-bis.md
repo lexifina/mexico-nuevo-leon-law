@@ -3,22 +3,22 @@ ARTICULO 275 Bis. - Por los servicios prestados por la Secretaría de Educación
 I.- Constancias de Estudios:
 (REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
 a) Por la legalización de certificados de escuelas técnicas y comerciales $28.00
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-b) Por la legalización de certificados o expedición de duplicados de nivel medio superior $46.00
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-c) Por la revalidación y equivalencia de estudios de nivel medio superior y profesional, por materia $12.00
-En ningún caso, la cantidad a pagar será inferior a $60.00
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
+b) Por la legalización de certificados o expedición de duplicados de nivel medio superior 2 cuotas
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
+c) Por la revalidación y equivalencia de estudios de nivel medio superior y profesional, por materia .5 cuotas
+En ningún caso, la cantidad a pagar será inferior a 2.5 cuotas
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
 d) Por la legalización e inscripción de certificados de estudios de nivel medio
-superior $50.00
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-e) Por la legalización e inscripción de certificados de estudios profesionales $250.00
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-f) Por la inscripción y legalización de títulos profesionales $330.00
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-g) Por la inscripción y legalización de títulos técnicos medios $125.00
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-h) Por el trámite para cédula profesional $125.00
+superior 2 cuotas
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
+e) Por la legalización e inscripción de certificados de estudios profesionales 10.5 cuotas
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
+f) Por la inscripción y legalización de títulos profesionales 13.5 cuotas
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
+g) Por la inscripción y legalización de títulos técnicos medios 5 cuotas
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
+h) Por el trámite para cédula profesional 5 cuotas
 N. DE E. EN RELACION CON LA VIGENCIA DE LOS DERECHOS CONTENIDOS EN EL PRESENTE ARTICULO, VER ARTICULO PRIMERO DEL DECRETO QUE MODIFICA ESTA LEY, P.O. 29 DE JULIO DE 1994
 II.- Instituciones Educativas:
 1.- Por el inicio de trámite de incorporación, entrega de folleto-instructivo, por nivel específico y de paquete de formularios para el trámite N$80.00
