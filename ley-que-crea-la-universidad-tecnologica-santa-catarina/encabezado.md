@@ -1,0 +1,9 @@
+LEY QUE CREA LA UNIVERSIDAD TECNOLOGICA SANTA CATARINA
+Ley publicada en el Periódico Oficial del Estado de Nuevo León, el miércoles 30 de septiembre de 1998.
+EL C. LIC. FERNANDO DE JESUS CANALES CLARIOND, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A TODOS SUS HABITANTES HAGO SABER:
+Que el H. Congreso del Estado ha tenido ha bien decretar lo que sigue:
+D E C R E T O
+NUM. 98
+LEY QUE CREA LA UNIVERSIDAD TECNOLÓGICA SANTA CATARINA
+Capítulo I
+Disposiciones Generales
