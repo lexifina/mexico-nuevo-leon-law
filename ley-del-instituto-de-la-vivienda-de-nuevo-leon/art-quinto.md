@@ -1,0 +1,1 @@
+Artículo Quinto.- El Instituto iniciará sus actividades con los recursos materiales, financieros y demás bienes de las áreas de la Administración Pública Central o Paraestatal cuyas atribuciones serán desempeñadas por este Instituto.
