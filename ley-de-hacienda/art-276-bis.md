@@ -81,8 +81,6 @@ VII.- Por expedición de copias certificadas de planos 3.5 cuotas
 VIII.- Por la expedición de diversas constancias y certificaciones 2.5 cuotas
 (ADICIONADA, P.O. 27 DE DICIEMBRE DE 1996)
 IX.- Por información de alineamiento de la vialidad 1.5 cuotas
-TITULO CUARTO
-De los Productos
 (REUBICADO [N. DE E. ANTES CAPITULO SEXTO], P.O. 31 DE DICIEMBRE DE 1993)
 CAPITULO SEPTIMO
 De los Derechos por Servicios Prestados por Diversas Dependencias

@@ -9,9 +9,12 @@ IMPUESTO SOBRE JUEGOS PERMITIDOS.
 ARTICULO 33.- OBJETO.- Es objeto de este impuesto la realización o explotación de:
 a) Rifas, sorteos, loterías de especulación o juegos con premios.
 b) Ferias.
+(ADICIONADO, P.O. 25 DE ABRIL DE 1997)
+No quedará comprendido dentro del objeto, la enajenación de billetes y demás comprobantes que permitan participar en loterías, rifas, sorteos y concursos de toda clase, así como los premios que deriven de los mismos, organizados por organismos públicos descentralizados de la Administración Pública Federal, cuyo objeto social sea la obtención de recursos para destinarlos a la asistencia pública.
 ARTICULO 34.- SUJETOS.- Las personas físicas, morales o unidades económicas sin personalidad jurídica, que realicen o exploten las actividades gravadas.
 ARTICULO 35.- TASA.- Este impuesto se pagará en los siguientes términos:
-a) 12% sobre el valor comercial de los premios en el caso del inciso a) del Artículo 33 de esta Ley.
+(REFORMADO, P.O. 25 DE ABRIL DE 1997)
+a) 6% sobre el valor comercial de los premios en el caso del inciso a) del artículo 33 de esta Ley.
 Tratándose de artículos de propaganda comercial, se pagará el 10% sobre el valor de los artículos rifados.
 (ADICIONADO, P.O. 27 DE DICIEMBRE DE 1996)
 El Impuesto se cubrirá en el Municipio en cuya circunscripción territorial se vendan los boletos para la realización de las actividades gravadas.
