@@ -15,3 +15,4 @@ Dado en el Palacio del Poder Ejecutivo, en Monterrey, Nuevo Le√≥n, a los diez d√
 LIC. PABLO QUIROGA.
 El Secretario General de Gobierno,
 LIC. ANGEL SANTOS CERVANTES.
+N. DE. E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
