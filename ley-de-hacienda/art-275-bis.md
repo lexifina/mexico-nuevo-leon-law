@@ -29,7 +29,7 @@ f) Certificados de estudios, de actas de examen profesional y transcripciones de
 g) Constancias de Servicio Social de escuelas desaparecidas ….. 1.5 cuotas
 5. Ejercicio Profesional:
 a) Trámite de Cédula Profesional, así como Autorización para el ejercicio de especialidad, por cada trámite ….. 5 cuotas
-N. DE E. EN RELACION CON LA VIGENCIA DE LOS DERECHOS CONTENIDOS EN EL PRESENTE ARTICULO, VER ARTICULO PRIMERO DEL DECRETO QUE MODIFICA ESTA LEY, P.O. 29 DE JULIO DE 1994
+N. DE E. EN RELACION CON LA VIGENCIA DE LOS DERECHOS CONTENIDOS EN LA PRESENTE FRACCION, VER ARTICULO CUARTO TRANSITORIO DE LA LEY DE INGRESOS DEL ESTADO DE NUEVO LEON, P.O. 26 DE DICIEMBRE DE 2003.
 II.- Instituciones Educativas:
 1.- Por el inicio de trámite de incorporación, entrega de folleto-instructivo, por nivel específico y de paquete de formularios para el trámite N$80.00
 2.- Por los estudios y análisis de los siguientes programas oficiales:
