@@ -64,8 +64,8 @@ B.- Lotes con superficie de más de 150 m2 hasta 300 m2 0.143 cuotas
 C.- Lotes con superficie mayor de 300 m2 0.172 cuotas
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 1999)
 2.- Industriales ubicados en los municipios de Apodaca, Escobedo, Guadalupe, Juárez, Monterrey, San Nicolás de los Garza, San Pedro Garza García y Santa Catarina 0.107 cuotas
-(REFORMADO, P.O. 31 DE DICIEMBRE DE 1999)
-3.- Campestres ubicados en los municipios de Apodaca, Guadalupe, Monterrey, San Pedro Garza García, Santa Catarina y Santiago 0.107 cuotas
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 2000)
+3.- Campestres ubicados en los Municipios de Apodaca, Guadalupe, García, Monterrey, San Pedro Garza García, Santa Catarina y Santiago 0.107 cuotas
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 1999)
 4.- Campestres ubicados en el resto del Estado 0.007 cuotas
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 1999)

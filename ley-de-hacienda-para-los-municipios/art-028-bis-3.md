@@ -2,7 +2,8 @@
 ARTICULO 28 Bis 3.- En la determinación de este impuesto se deberán seguir las reglas siguientes:
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1991)
 I.- Para efectos de este impuesto, se utilizará el salario mínimo general de la zona económica en donde se encuentre ubicado el inmueble, vigente al momento en que se expida el certificado de valor actual real.
-Los certificados de valor actual real que expida la Secretaría de Finanzas y Tesorería General del Estado, caducarán en un plazo de tres meses, el que se interrumpirá al protocolizarse la adquisición.
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 2000)
+Los certificados de valor actual real que expida la Secretaría de Finanzas y Tesorería General del Estado, caducarán en un plazo de doce meses. En caso de que durante el plazo mencionado se realicen dos o más adquisiciones sobre determinado inmueble, se podrá utilizar para efectos del cálculo del Impuesto, el mismo certificado de valor actual real expedido respecto de la primera de dichas operaciones.
 El certificado de valor actual real que se utilice para la determinación del impuesto, será el vigente al momento en que se protocolice la escritura, y en los casos en que no se requiera o se cumpla esta formalidad, se aplicará el que esté vigente al momento en que se pague el impuesto.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1998)
 El certificado de no propiedad deberá ser expedido dentro de los 30 días anteriores a la fecha de la protocolización de la escritura correspondiente.

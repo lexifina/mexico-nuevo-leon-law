@@ -1,0 +1,3 @@
+P.O. 29 DE DICIEMBRE DE 2000.
+ARTÍCULO PRIMERO.- Los contribuyentes que hayan realizado el pago de los derechos por la autorización del proyecto urbanístico, con base en el artículo 276 bis, fracción V, inciso b) de la Ley de Hacienda del Estado vigente hasta el 31 de diciembre de 1999, tratándose de servicios prestados por la Secretaría de Desarrollo Urbano y Obras Públicas del Estado de Nuevo León, en caso de que la autorización del proyecto ejecutivo de fraccionamiento se realice con posterioridad a esa fecha, efectuarán el pago conforme al artículo 52 bis, fracción V, inciso c), de la Ley de Hacienda para los Municipios del Estado vigente hasta el 31 de diciembre de 1999.
+ARTÍCULO SEGUNDO.- El presente Decreto entrará en vigor el 1o. de Enero del año 2001.

@@ -1,24 +1,34 @@
 (ADICIONADO Y REUBICADO, P.O. 31 DE DICIEMBRE DE 1993)
 ARTICULO 275 Bis. - Por los servicios prestados por la Secretaría de Educación.
+(REFORMADA, P.O. 29 DE DICIEMBRE DE 2000)
 I.- Constancias de Estudios:
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
-a) Por la legalización de certificados de escuelas técnicas y comerciales...1 cuota
-(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
-b) Por la legalización de certificados o expedición de duplicados de nivel medio superior 2 cuotas
-(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
-c) Por la revalidación y equivalencia de estudios de nivel medio superior y profesional, por materia .5 cuotas
-En ningún caso, la cantidad a pagar será inferior a 2.5 cuotas
-(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
-d) Por la legalización e inscripción de certificados de estudios de nivel medio
-superior 2 cuotas
-(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
-e) Por la legalización e inscripción de certificados de estudios profesionales 10.5 cuotas
-(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
-f) Por la inscripción y legalización de títulos profesionales 13.5 cuotas
-(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
-g) Por la inscripción y legalización de títulos técnicos medios 5 cuotas
-(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
-h) Por el trámite para cédula profesional 5 cuotas
+1. Educación Básica:
+a) Constancias, Certificaciones o Revalidaciones de Estudios de Primaria
+y Secundaria, por cada una ….. 1 cuota
+2. Escuelas Técnicas y Comerciales:
+a) Certificación de escuelas técnicas y comerciales, así como de escuelas técnicas de capacitación para el trabajo, con estudios no mayores de dos años con diploma ….. 1 cuota
+b) Certificado terminal de escuelas técnicas comerciales con estudios de tres años ….. 2 cuotas
+3. Nivel Medio Superior:
+a) Legalización de certificados de preparatoria, así como por Registro y legalización de certificaciones de nivel medio superior ….. 2 cuotas
+b) Equivalencias de estudios, por materia ….. 0.5 cuotas
+En ningún caso la cantidad a pagar será menor a …… 2.5 cuotas
+c) Revalidación de estudios ….. 2.5 cuotas
+d) Registro y legalización de actas de examen profesional ….. 5 cuotas
+e) Registro y legalización de títulos de técnicos medios y profesionales ….. 6.5 cuotas
+f) Certificación de estudios de escuelas desaparecidas, así como, por la legalización de certificaciones de escuelas desaparecidas ….. 2 cuotas
+g) Constancias sobre liberación de servicio social de escuelas desaparecidas ….. 1 cuota
+4. Educación Superior:
+a) Legalización de certificados, así como el registro y legalización de certificados y registro y legalización de actas de examen profesional, de nivel superior, por cada trámite ….. 10.5 cuotas
+b) Equivalencias de estudios, por materia ….. 0.5 cuotas
+En ningún caso la cantidad a pagar será menor a ….. 2.5 cuotas
+c) Revalidación de estudios, por materia ….. 0.5 cuotas
+En ningún caso la cantidad a pagar será menor a ….. 2.5 cuotas
+d) Registro y legalización de títulos profesionales y de técnico superior profesional ….. 13.5 cuotas
+e) Registro y legalización de actas de examen profesional, así como de certificados, de técnico superior profesional, por trámite ….. 10.5 cuotas
+f) Certificados de estudios, de actas de examen profesional y transcripciones de títulos profesionales, de escuelas desaparecidas, por cada trámite ….. 3 cuotas
+g) Constancias de Servicio Social de escuelas desaparecidas ….. 1.5 cuotas
+5. Ejercicio Profesional:
+a) Trámite de Cédula Profesional, así como Autorización para el ejercicio de especialidad, por cada trámite ….. 5 cuotas
 N. DE E. EN RELACION CON LA VIGENCIA DE LOS DERECHOS CONTENIDOS EN EL PRESENTE ARTICULO, VER ARTICULO PRIMERO DEL DECRETO QUE MODIFICA ESTA LEY, P.O. 29 DE JULIO DE 1994
 II.- Instituciones Educativas:
 1.- Por el inicio de trámite de incorporación, entrega de folleto-instructivo, por nivel específico y de paquete de formularios para el trámite N$80.00

@@ -18,8 +18,9 @@ a) 6% sobre el valor comercial de los premios en el caso del inciso a) del artí
 Tratándose de artículos de propaganda comercial, se pagará el 10% sobre el valor de los artículos rifados.
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
 El impuesto se cubrirá en el Municipio en cuya circunscripción territorial se vendan los boletos para la realización de las actividades gravadas o se expidan los boletos a título gratuito o condicionados al cumplimiento de algún requisito, entre otros, a la contratación de un servicio, a la adquisición de determinado producto o hasta determinada cantidad de compra, de pago o de depósito.
-(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
-b) De dos a siete cuotas, en el caso del inciso b), del Artículo 33 de esta Ley.
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 2000)
+b) De dos a siete cuotas, por día, en el caso del inciso b), del Artículo 33 de esta Ley.
+Se exceptúan de pago aquellas actividades, objeto de esta contribución, que sean administradas directamente por el Municipio.
 (ADICIONADO, P.O. 27 DE DICIEMBRE DE 1996)
 c) Los contribuyente (sic) de este impuesto tendrán las siguientes obligaciones:
 1.- Dar aviso a la Tesorería Municipal de la autorización otorgada por la Secretaría de Gobernación, si la hubiere, dentro de los 15 días hábiles siguientes a la fecha de la misma.

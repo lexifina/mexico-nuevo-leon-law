@@ -33,15 +33,13 @@ c) Veteranos de la Revolución, en los términos del Decreto No. 71 expedido por
 d) Personas incapacitadas físicamente para trabajar.
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
 e) Jubilados y pensionados con ingresos propios, cuyo monto diario no exceda de dos cuotas y media.
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
-f) Los predios pertenecientes a los trabajadores al servicio de la Federación, Estado o Municipio.
+f) (DEROGADO, P.O. 29 DE DICIEMBRE DE 2000)
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)(F. DE E., P.O. 18 DE ENERO DE 1999)
 Si el valor catastral del predio excede de 6,129 cuotas y no de 12,257 cuotas, se pagará por concepto de impuesto predial anual el doble de la tarifa especial. Si el valor catastral de los predios excede de 12,257 cuotas, cubrirán el doble de la tarifa especial sobre dicha cantidad y el excedente se cubrirá conforme a lo establecido por el artículo 21 Bis-8.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
 Para quedar dentro de los supuestos de esta fracción, las personas antes citadas deberán habitar el inmueble en cuestión y no poseer otro bien raíz en el Estado.
-(ADICIONADA, P.O. 31 DE DICIEMBRE DE 1993)
-X.- Los predios del dominio privado del Estado, Municipios y sus entidades paraestatales.
+X .- (DEROGADA, P.O. 29 DE DICIEMBRE DE 2000)
 (REFORMADA, P.O. 27 DE DICIEMBRE DE 1996)
 XI.- Los predios pertenecientes a las asociaciones religiosas, siempre que los mismos sean destinados directamente a los fines de las mismas y no sean objeto de actividades lucrativas o de negocio.
-(ADICIONADO, P.O. 27 DE DICIEMBRE DE 1996)
-Los contribuyentes que soliciten la tarifa única especial a que se refiere este artículo, deberán estar al corriente en el pago del Impuesto Predial para ser considerados dentro de dicho beneficio.
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 2000)
+Los contribuyentes que soliciten la tarifa única especial a que se refiere este artículo, deberán estar al corriente en el pago del impuesto predial para ser considerados dentro de dicho beneficio. En los casos establecidos en las fracciones I, II, III, VII y IX, el Ayuntamiento, a propuesta del Presidente Municipal, podrá otorgar, si lo juzga conveniente, una bonificación de hasta un 50% en el monto del rezago de este impuesto, siempre y cuando el beneficiario acredite que tuvo derecho a gozar del citado beneficio durante el período del rezago.

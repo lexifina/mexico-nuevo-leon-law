@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1999)
-ARTICULO 28 Bis 1.- En la adquisición de viviendas cuyo valor más alto en los términos del artículo 28 bis-3, fracción I, no exceda de 25 cuotas elevadas al año y siempre que el adquirente sea persona física y no sea propietario o poseedor de otro bien inmueble en el Estado, cubrirá el impuesto aplicando la tasa del 2% al valor del inmueble, después de reducirlo en 15 cuotas elevadas al año.
+(REFORMADO PRIMER PARRAFO, P.O. 29 DE DICIEMBRE DE 2000)
+ARTICULO 28 Bis 1.- En la adquisición de viviendas cuyo valor más alto en los términos del Artículo 28 bis-3, fracción I, no exceda de 25 cuotas elevadas al año y siempre que el adquirente sea persona física y no posea otro bien raíz en el Estado, cubrirá el impuesto aplicando la tasa del 2% al valor del inmueble, después de reducirlo en 15 cuotas elevadas al año.
 (REFORMADO PRIMER PARRAFO, P.O. 30 DE DICIEMBRE DE 1998)
 El Impuesto sobre adquisición de inmuebles se cubrirá a una tarifa única especial por cada inmueble equivalente a 7 cuotas, en los siguientes casos:
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 1986)
@@ -25,8 +25,8 @@ VIII.- En las adquisiciones realizadas por o con personas sin fines de lucro que
 IX.- En las adquisiciones por informaciones ad-perpetuam y sentencias judiciales que impliquen reconocimiento de posesión de inmuebles, cuyo destino sea el señalado en las Fracciones VII y VIII.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1983)
 X.- En las adquisiciones, derechos o renta a perpetuidad de los lotes en los panteones municipales.
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 1994)
-XI.- En las adquisiciones de bienes del dominio privado que realicen el Estado, los Municipios y sus entidades paraestatales.
+(REFORMADA, P.O. 29 DE DICIEMBRE DE 2000)
+XI.- En las adquisiciones de bienes del dominio privado que realicen los Municipios y las entidades paraestatales de los Municipios.
 (REFORMADA, P.O. 29 DE DICIEMBRE DE 1997)
 XII.- En las adquisiciones de viviendas cuyo valor más alto entre el valor de adquisición y el indicado en el certificado de valor actual real, no exceda de 15 cuotas elevadas al año, siempre que el adquirente sea persona física y no sea propietario o poseedor de otro bien inmueble en el Estado.
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 1999)
@@ -39,3 +39,5 @@ Cuando uno o más coherederos adquieran porciones mayores a la parte heredada co
 XIV.- En las donaciones que se hagan entre ascendientes y descendientes en línea recta, así como en las que se hagan entre el adoptante y el adoptado, entre sus respectivos ascendientes y descendientes en línea recta, y entre éstos y aquéllos. En el caso de que el inmueble forme parte de la sociedad conyugal del ascendiente o del descendiente, la tarifa especial operará respecto de la totalidad de los derechos de la sociedad conyugal relacionados con el inmueble.
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 1998)
 XV.- En las adquisiciones realizadas por asociaciones religiosas, respecto de bienes destinados exclusivamente a sus fines.
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2000)
+En cualquier tiempo en que la Tesorería Municipal advierta que los contribuyentes beneficiados en los términos de este Artículo, no hayan cumplido con cualesquiera de los requisitos que sirvieron de base para gozar de la tarifa especial, previa audiencia al interesado en la que se le otorgue un plazo no menor de 15 días hábiles para proporcionar pruebas y expresar alegatos, podrá revocar y cancelar las franquicias otorgadas. En este caso se procederá al cobro integro de las contribuciones no cubiertas bajo el amparo de la presente disposición, más sus respectivos accesorios.

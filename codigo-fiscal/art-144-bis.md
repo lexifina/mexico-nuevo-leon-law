@@ -1,0 +1,8 @@
+(DEROGADO QUINTO PARRAFO, P.O. 29 DE DICIEMBRE DE 2000)
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2000)
+ARTICULO 144 Bis.- La Secretaría de Finanzas y Tesorería General del Estado podrá cancelar créditos fiscales en las cuentas públicas, por incosteabilidad en el cobro o por insolvencia del deudor o de los responsables solidarios.
+Se consideran créditos de cobro incosteable, aquellos cuyo importe sea inferior o igual al equivalente en moneda nacional a 10 cuotas, aquellos cuyo importe sea inferior o igual al equivalente en moneda nacional a 100 cuotas y cuyo costo de recuperación rebase el 75% del importe del crédito, así como aquellos cuyo costo de recuperación sea igual o mayor a su importe.
+Se consideran insolventes los deudores o los responsables solidarios cuando no tengan bienes embargables para cubrir el crédito o éstos ya se hubieran realizado, cuando no se puedan localizar o cuando hubieran fallecido sin dejar bienes que puedan ser objeto del procedimiento administrativo de ejecución.
+Cuando el deudor tenga dos o más créditos a su cargo, todos ellos se sumarán para determinar si se cumplen los requisitos señalados.
+La Secretaría de Finanzas y Tesorería General del Estado dará a conocer las reglas de carácter general para la aplicación de este artículo.
+La cancelación de los créditos a que se refiere este artículo no libera de su pago.

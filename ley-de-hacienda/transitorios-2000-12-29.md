@@ -1,0 +1,5 @@
+P.O. 29 DE DICIEMBRE DE 2000.
+Artículo Primero.- El presente Decreto entrará en vigor el 1o. de enero del año 2001.
+Artículo Segundo.- Durante el año 2001 no se cubrirán los ingresos previstos en los artículos 281 y 282 de la Ley de Hacienda del Estado.
+Artículo Tercero.- En caso de que durante el año 2001, se autoricen libros de protocolo, a los que hacen referencia los artículos 272 fracción I y 272 bis, fracción I, de la Ley de Hacienda del Estado vigente hasta el 31 de Diciembre del 2000, los derechos se causarán y pagarán conforme a los citados artículos.
+Artículo Cuarto.- Durante el año 2001, los Derechos por Servicios prestados en el Registro Público de la Propiedad y del Comercio se cubrirán a una tarifa especial de 60 cuotas, en la inscripción de documentos en los que se consignen adquisiciones provenientes de dación en pago o adjudicación judicial o fiduciaria, realizadas por contribuyentes que por disposición legal no pueden conservar la propiedad de dichos bienes, tales como Instituciones Bancarias o Nacionales de Crédito, Organizaciones Auxiliares de Crédito y Casas de Bolsa.
