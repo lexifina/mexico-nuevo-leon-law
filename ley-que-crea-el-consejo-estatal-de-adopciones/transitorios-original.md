@@ -1,5 +1,5 @@
 TRANSITORIOS:
-ARTICULO PRIMERO: - Esta ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
+ARTICULO PRIMERO:- Esta ley entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
 ARTICULO SEGUNDO:- Para los efectos del penúltimo párrafo del artículo 3o. de esta ley, las instituciones privadas deberán registrarse dentro del mes siguiente a su publicación.
 Por lo tanto envíese al Ejecutivo del Estado para su promulgación y publicación en el Periódico Oficial del Gobierno del Estado.
 Dado en el salón de Sesiones del H. Congreso del Estado Libre y Soberano de Nuevo León, en Monterrey, su Capital, a los quince días del mes de Enero de mil novecientos noventa y seis.-
