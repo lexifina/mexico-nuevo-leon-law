@@ -1,0 +1,1 @@
+ARTICULO DECIMO TERCERO:- Los adeudos procedentes de la prestación de los servicios que preste la institución tendrán el carácter de créditos fiscales. En consecuencia, la Secretaría de Finanzas y Tesorería General del Estado auxiliará al organismo en el cobro de los créditos insolutos, aplicando la facultad económico-coactiva que establecen las leyes tributarias.

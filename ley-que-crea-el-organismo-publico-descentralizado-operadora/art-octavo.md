@@ -1,0 +1,2 @@
+ARTICULO OCTAVO:- El Consejo de Administración rendirá anualmente, en el mes de Enero, un informe sobre las labores realizadas durante el ejercicio anterior, sobre la marcha general de la Institución y sobre las cuentas de su gestión.
+El balance de la institución, debidamente certificado por Contador Público Titulado, deberá ser publicado en uno de los diarios de mayor circulación en la entidad y en el Periódico Oficial del Estado, dentro de los tres meses siguientes al cierre de cada ejercicio.

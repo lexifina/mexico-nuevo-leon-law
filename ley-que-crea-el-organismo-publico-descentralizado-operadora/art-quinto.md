@@ -1,0 +1,1 @@
+ARTICULO QUINTO:- Si el nombramiento de Presidente por designación gubernamental recayera en alguno de los funcionarios señalados en el artículo anterior como consejeros o secretario, el titular del Ejecutivo determinará la persona que deba sustituirlo como miembro del Consejo.
