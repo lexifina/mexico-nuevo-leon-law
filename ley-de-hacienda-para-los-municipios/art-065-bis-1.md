@@ -3,8 +3,9 @@ CAPITULO XI
 POR OCUPACION DE LA VIA PUBLICA
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 1989)
 ARTICULO 65 Bis 1.- Por ocupación de la vía pública:
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 1998)
-I.- Por ocupar la vía pública con sillas, mesas y toda clase de instalaciones fijas o semifijas, se pagarán .016 cuotas diarias por metro cuadrado completo.
+(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1999)
+I.- Por ocupar la vía pública con sillas, mesas y toda clase de instalaciones fijas o semifijas, se pagarán 0.016 cuotas diarias por metro cuadrado completo.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
 Otras ocupaciones de la vía pública, se pagarán .081 cuotas diarias por metro cuadrado completo.
 (REFORMADA, P.O. 27 DE DICIEMBRE DE 1996)
 II.- Por ocupar la vía pública, los propietarios de sitios de automóviles, de camiones y camionetas de carga o de pasajeros destinados al servicio público, pagarán 2 cuotas por unidad trimestralmente.

@@ -31,3 +31,7 @@ c) Se inscriba el título de adquisición de dominio del inmueble en el Registro
 En caso de que no se realizaran estos trámites, las facultades de las autoridades fiscales mencionadas en el párrafo anterior, no se extinguirán.
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 1997)
 En el supuesto de que en la declaración del Impuesto Sobre Adquisición de Inmuebles, se hubiere omitido el pago correspondiente a la construcción, ya sea por causas imputables al enajenante o adquirente, se impondrá una multa al adquirente de tres cuotas hasta el 100% de la contribución omitida, determinando ésta sobre el valor de la construcción no declarada.
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 1999)
+Los Notarios Públicos tendrán la obligación de presentar a las Tesorerías Municipales que correspondan, un informe detallado a más tardar durante los meses de enero de cada año, correspondiente al año anterior, sobre las escrituras públicas y cualquier otro documento en el que se transmita la propiedad de bienes inmuebles, en los que hubiesen intervenido y que por alguna razón, no fueron inscritos en el Registro Público de la Propiedad y del Comercio y que por consecuencia no estuviese cubierto el Impuesto Sobre Adquisición de Inmuebles.
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 1999)
+En caso de no cumplir con lo anterior o haber cumplido en forma parcial, con la obligación descrita en el párrafo anterior, se impondrá al Notario correspondiente una sanción de 100 a 200 cuotas.

@@ -1,6 +1,7 @@
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
 ARTICULO 41 Bis 22.- El causante podrá inconformarse con la liquidación del impuesto, si encontrare en ella errores o inexactitudes que, en su concepto, puedan modificarla. La tramitación de este Recurso se sujetará a las normas siguientes:
-I.- Se presentará, por escrito, ante la Oficina Recaudadora. En esta promoción se hará ofrecimiento de pruebas.
+(REFORMADA, P.O. 31 DE DICIEMBRE DE 1999)
+I.- Se presentará por escrito ante la Tesorería Municipal. En esta promoción se hará ofrecimiento de pruebas.
 II.- El escrito será presentado dentro de los diez días siguientes al en que surta efectos la notificación de la liquidación.
 III.- La autoridad encargada de resolver el Recurso proveerá desde luego al desahogo de las pruebas ofrecidas.
 Al efecto, señalará un término de quince días dentro del cual los interesados deberán exhibir todos los documentos que hubieren ofrecido; asimismo, deberán presentar a sus peritos y testigos. Si por la naturaleza de las pruebas ofrecidas, o porque su desahogo dependa de terceros, la autoridad considera insuficiente el plazo de quince días, lo ampliará hasta por tres meses más.

@@ -17,8 +17,8 @@ Si el valor catastral de la vivienda excede de 5,041 cuotas, pero no de 8,490 cu
 V.- Los predios Ejidales.
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
 VI.- Los predios afectados al patrimonio de familia, en los términos del Código Civil del Estado, siempre que no sean propietarios o poseedores de otro bien raíz en el Estado.
-(REFORMADA, P.O. 27 DE DICIEMBRE DE 1996)
-VII.- Los inmuebles propiedad de instituciones de beneficencia privada o de asociaciones con Objetivos similares, siempre que dichos inmuebles estén destinados directamente a los fines de las mismas y que en los mismos no se realicen actividades lucrativas o de negocio.
+(REFORMADA, P.O. 31 DE DICIEMBRE DE 1999)
+VII.- Los inmuebles propiedad de instituciones de beneficencia privada o de asociaciones con objetivos similares, siempre que dichos inmuebles estén destinados directamente a los fines de las mismas y que en los mismos no se realicen actividades lucrativas o de negocio. No se considerará actividad lucrativa o de negocio, los frutos o productos de los bienes inmuebles de las instituciones o asociaciones que se destinen a los fines de las mismas, siempre que sus informes hayan sido aprobados por la Junta de Beneficencia Privada del Estado.
 (REFORMADA, P.O. 27 DE DICIEMBRE DE 1996)
 VIII.- Los predios pertenecientes a entes u organismos creados por el Gobierno del Estado para solucionar el problema de la vivienda y de la tenencia legal de la tierra; o a las personas que lleven a cabo programas concretos con finalidades y características iguales o similares a las que persigue el fideicomiso denominado "Fomento Metropolitano de Monterrey", respecto de los predios directamente destinados a esos programas; y, predios cuyo valor catastral no exceda de 5,041 cuotas, adquiridos por las personas que resulten directamente beneficiadas con tales programas, siempre que habiten tal inmueble y no sean propietarios o poseedores de otro inmueble en el Estado y que la propiedad o posesión por la que se solicite, esté inscrita en el Registro Público de la Propiedad y del Comercio.
 (REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 1996)
