@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 1997)
+ARTICULO 23o. BIS.- Los Municipios presentarán a la Dirección de Catastro, los estudios comerciales correspondientes a su circunscripción territorial y vigilarán el comportamiento del mercado para mantener actualizados estos valores, ya que servirán de base para determinar el valor actual real que expida la Secretaría de Finanzas y Tesorería General del Estado, mismo que se utilizará para el cálculo del Impuesto Sobre Adquisición de Inmuebles.

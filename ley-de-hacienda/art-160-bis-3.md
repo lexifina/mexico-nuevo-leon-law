@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 1997)
+ARTICULO 160 Bis-3.- El contador público registrado que desee dictaminar estados financieros con relación al Impuesto Sobre Nóminas, deberá reunir los siguientes requisitos:
+I.- Mediante escrito libre, solicitar la inscripción de su cédula profesional en el libro que para tal efecto se lleve en la Secretaría de Finanzas y Tesorería General del Estado y anexar constancia de la autorización para dictaminar estados financieros expedida por la Secretaría de Hacienda y Crédito Público.
+II.- Comunicar a la Secretaría de Finanzas y Tesorería General del Estado, lo siguiente:
+a)El nombre o denominación social de las personas físicas con actividades empresariales o morales por las cuales dictamina sus estados financieros; así como el número de su registro al padrón estatal en materia del Impuesto Sobre Nóminas.
+b)Número de registro asignable por la autoridad federal competente, al despacho contable en que preste sus servicios y en su caso, el nombre de los contadores públicos autorizados para dictaminar, que prestan sus servicios a las personas físicas con actividades empresariales o morales, señaladas en la relación que presente con base al inciso anterior.
+El contador público registrado, se compromete a informar a la Secretaría de Finanzas y Tesorería General del Estado, en un plazo no mayor de 15 días hábiles, los cambios que hubiere a los datos asentados en los puntos que anteceden. X

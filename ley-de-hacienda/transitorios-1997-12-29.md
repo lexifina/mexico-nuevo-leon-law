@@ -1,0 +1,6 @@
+P.O. 29 DE DICIEMBRE DE 1997.
+ARTICULO PRIMERO.- El presente Decreto entrará en vigor el día 1º de Enero de 1998.
+ARTICULO SEGUNDO.- Los contribuyentes que ejerzan la opción a que se refiere el tercer párrafo del Artículo 158 de la Ley de Hacienda del Estado, que presenten el aviso a que se refiere el cuarto párrafo de dicho Artículo a mas tardar el 31 de Enero de 1998, deberán realizar el pago trimestral respecto del primer trimestre de 1998.
+ARTICULO TERCERO.- Durante el año de 1998, los Derechos por Servicios prestados en el Registro Público de la Propiedad y del Comercio se cubrirán a una tarifa especial de 50 cuotas, en la inscripción de documentos en los que se consignen adquisiciones provenientes de dación en pago o adjudicación judicial o fiduciaria, realizadas por contribuyentes que por disposición legal no pueden conservar la propiedad de dichos bienes, tales como Instituciones Nacionales de Crédito, Organizaciones Auxiliares de Crédito y Casas de Bolsa.
+ARTICULO CUARTO.- Los derechos previstos en el Artículo 276 bis, fracción V, inciso b), numeral 7, se aplicarán exclusivamente a los trámites urbanísticos que se inicien a partir de la vigencia de este Decreto.
+ARTICULO QUINTO.- Durante 1998 no se cubrirán los ingresos previstos en los Artículos 281 y 282 de la Ley de Hacienda del Estado.

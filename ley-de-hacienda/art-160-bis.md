@@ -6,5 +6,3 @@ Para practicar las estimaciones a que se refiere este Artículo, se tendrán en 
 a) Las erogaciones realizadas, declaradas en los últimos doce meses.
 b) Las manifestaciones presentadas por concepto de Impuesto sobre la Renta, Sobre Productos del Trabajo en los últimos doce meses.
 c) Las actividades realizadas por el causante, y otros datos que puedan utilizarse, a través de prácticas de visitas domiciliarias.
-CAPITULO DECIMO
-Del Impuesto sobre Honorarios

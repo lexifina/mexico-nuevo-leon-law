@@ -25,5 +25,7 @@ El plazo para computar la extinción de las facultades de las autoridades fiscal
 a) Se presente la declaración del impuesto ante la Tesorería Municipal;
 b) Se presente ante la Dirección de Catastro de la Secretaría de Finanzas y Tesorería General del Estado el Aviso de Enajenación respectivo;
 c) Se inscriba el título de adquisición de dominio del inmueble en el Registro Público de la Propiedad y del Comercio.
-(ADICIONADO, P.O. 31 DE DICIEMBRE DE 1990)
-En caso de que no se realizarán estos trámites, las facultades de las autoridades fiscales mencionadas en el párrafo anterior se extinguirán en un plazo de diez años contados a partir de la fecha en que debió haber sido presentada la declaración.
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 1997)
+En caso de que no se realizaran estos trámites, las facultades de las autoridades fiscales mencionadas en el párrafo anterior, no se extinguirán.
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 1997)
+En el supuesto de que en la declaración del Impuesto Sobre Adquisición de Inmuebles, se hubiere omitido el pago correspondiente a la construcción, ya sea por causas imputables al enajenante o adquirente, se impondrá una multa al adquirente de tres cuotas hasta el 100% de la contribución omitida, determinando ésta sobre el valor de la construcción no declarada.
