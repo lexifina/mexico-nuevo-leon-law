@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE ENERO DE 2005)
+Artículo 45.- El promovente, al presentar su demanda, podrá hacer la solicitud expresa de substanciar el procedimiento mediante el Tribunal Virtual, a través de la autorización señalada en el artículo 78 de este Código. De igual manera el demandado, al contestar su demanda, podrá hacerlo mediante del Tribunal Virtual con la reserva antes enunciada. Las partes se reservarán la posibilidad de presentar en cualquier momento algún otro tipo de promoción por escrito ante la autoridad que conozca el asunto.

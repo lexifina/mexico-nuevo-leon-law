@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE ENERO DE 2005)
+Artículo 130 Bis II.- La excepción de conexidad de la causa, se tramitará conforme con el procedimiento que para la acumulación de autos establece el Capítulo II, Título Undécimo, del Libro Primero de este Código. Al oponerla, debe señalarse precisamente el juzgado donde se tramita el otro juicio, sin cuyo requisito no se dará trámite, acompañando copias certificadas de la demanda y contestación formuladas en el juicio anterior.

@@ -1,2 +1,2 @@
-Artículo 38.-El despacho de los juzgados comenzará diariamente a las nueve de la mañana y se podrá interrumpir de las trece a las dieciséis horas y continuará hasta la hora necesaria para cumplir todos los negocios citados y que se hayan presentado durante el curso del día, pudiendo retirarse el personal después, cuando ya no tengan asunto pendiente y fueren cuando menos las dieciocho horas.
-Respecto de las actuaciones ante jueces, se observará lo dispuesto en el artículo 63.
+(REFORMADO, P.O. 14 DE ENERO DE 2005)
+Artículo 38.- El despacho de los asuntos deberá efectuarse en días y horas hábiles, entendiéndose por estas últimas las que medien entre las siete y las diecinueve horas. Principiada una diligencia en horas hábiles deberá concluirse y será válida, aun cuando se actúe en horas inhábiles, sin necesidad de determinación especial del juez.
