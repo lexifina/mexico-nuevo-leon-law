@@ -13,8 +13,8 @@ III.- En las adquisiciones que se hagan constar en escrituras públicas, actas f
 En los demás casos, los contribuyentes pagarán el impuesto mediante la formulación de la nota oficial que presentarán ante la oficina recaudadora correspondiente.
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1991)
 Los fedatarios públicos, dentro del mes siguiente a la fecha en que se autorice la escritura o se levante el acta fuera de protocolo respectiva (sic), darán aviso a la Tesorería Municipal correspondiente, de los poderes irrevocables para la venta de inmuebles ubicados en el Estado, que se otorguen o ratifiquen ante su fe, cuando no se especifique en ellos el nombre del adquirente. La omisión a la presentación oportuna del aviso se sancionará con multa de 10 a 20 veces el salario mínimo general diario, vigente en la zona económica en donde se encuentre el inmueble.
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1988)
-Se presentará declaración por todas las adquisiciones aún cuando no haya impuesto que enterar. La nota oficial se presentará en original y 7 copias en la oficina receptora o institución bancaria correspondiente.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1992)
+Se presentará declaración por todas las adquisiciones aún cuando no haya impuesto que enterar. La nota oficial se presentará en original, firmado por el contribuyente o responsable solidario, y 3 copias en la oficina receptora o institución bancaria autorizada.
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 1986)
 Los fedatarios no estarán obligados a enterar el impuesto cuando consignen en escrituras públicas operaciones por las que ya se hubiera pagado el impuesto y acompañen a su declaración copia de aquélla con la que se efectuó dicho pago.
 IV.- (DEROGADA, P.O. 30 DE DICIEMBRE DE 1991)

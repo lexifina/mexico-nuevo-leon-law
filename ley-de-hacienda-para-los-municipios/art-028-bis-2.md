@@ -16,3 +16,5 @@ X.- Enajenación a través de fideicomiso, en los términos del Código Fiscal d
 En las permutas se considerará que se efectúan dos adquisiciones.
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 1990)
 En las adquisiciones efectuadas a través de arrendamiento financiero, cuando el arrendatario ejerza su opción de compra, se considerarán como una sola adquisición las realizadas por la arrendadora y por el arrendatario financieros (sic), siempre que se demuestre que fue cubierto el impuesto correspondiente a la adquisición efectuada por la arrendadora financiera. Consecuentemente, en estos casos no se generará el impuesto a cargo del arrendatario financiero.
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1992)
+No se pagará este impuesto en el caso de adquisiciones que realicen las asociaciones religiosas, constituidas en los términos de la Ley de Asociaciones Religiosas y Culto Público, siempre que la adquisición la realicen dentro de los seis meses siguientes a su constitución.

@@ -1,0 +1,3 @@
+P.O. 30 DE DICIEMBRE DE 1992.
+ARTICULO PRIMERO.- El presente Decreto entrará en vigor al día 1º de Enero de 1993, con excepción de los derechos previstos en el artículo 271, fracción XI, los cuales entrarán en vigor una vez que el Registro Público de la Propiedad y del Comercio esté en posibilidades de prestar los servicios correspondientes.
+ARTICULO SEGUNDO.- Las cantidades monetarias expresadas en esta Ley, se entienden referidas a la unidad a que hace referencia el artículo 1º del Decreto por el que se crea una nueva unidad del Sistema Monetario de los Estados Unidos Mexicanos, expedido por el Congreso de la Unión el día 18 de Junio de 1992 y publicado en el Diario Oficial de la Federación el día 22 del mismo mes y año.

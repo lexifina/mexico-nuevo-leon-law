@@ -1,0 +1,3 @@
+P.O. 30 DE DICIEMBRE DE 1992.
+PRIMERO.- El presente Decreto entrará en vigor el día 1º de Enero de 1993.
+SEGUNDO:- Cuando con anterioridad al primero de Enero de 1993 se hubieran causado recargos sobre créditos fiscales no pagados o intereses a cargo del fisco estatal o municipal sobre cantidades que se deban devolver, que hubieren alcanzado el 100% o el 200% del importe de dichas contribuciones o cantidades a devolver, según sea el caso, para los efectos de la aplicación del segundo párrafo del artículo 22, a partir de la fecha mencionada se reanudará la causación de recargos o intereses sobre las mismas conforme al Código Fiscal del Estado, aún cuando excedan del porcentaje mencionado.
