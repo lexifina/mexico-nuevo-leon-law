@@ -1,0 +1,1 @@
+ARTICULO CUARTO:- Las solicitudes de devolución formuladas con anterioridad a la vigencia de este Código, causarán por las cantidades correspondientes, de ser procedente su devolución, a partir de la entrada en vigor del presente ordenamiento, los intereses que el mismo señala.

@@ -1,0 +1,1 @@
+ARTICULO QUINTO:- Las infracciones cometidas durante la vigencia del Código que se abroga, se sancionarán en los términos preceptuados por el mismo, a menos que el interesado manifieste su voluntad de acogerse al presente Código por estimarlo más favorable a sus intereses.

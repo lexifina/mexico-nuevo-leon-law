@@ -1,0 +1,1 @@
+ARTICULO TERCERO:- Las disposiciones administrativas, resoluciones, consultas, interpretaciones, autorizaciones o permisos de carácter general o que se hubieren otorgado a título particular, que contravengan o se opongan a lo preceptuado en este Código, quedan sin efectos.
