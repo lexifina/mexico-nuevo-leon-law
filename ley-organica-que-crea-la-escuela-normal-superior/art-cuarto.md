@@ -1,1 +1,2 @@
-ARTICULO CUARTO:- La Escuela Normal Superior impartirá cursos regulares con plan de cuatro años, y cursos intensivos sujetos a reglamentación especial.
+(REFORMADO, P.O. 3 JUNIO DE 1967)
+ARTICULO CUARTO:- El plantel impartirá Cursos Regulares con plan de estudios de cuatro años, y Cursos Intensivos con plan de seis años.

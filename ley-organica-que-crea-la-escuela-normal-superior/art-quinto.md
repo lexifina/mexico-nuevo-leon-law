@@ -1,12 +1,13 @@
-ARTICULO QUINTO:- Las especialidades a que se refiere el Artículo anterior, sin perjuicio de crear las que sean necesarias, serán las siguientes:
-Maestro en Lengua y Literatura.
-Maestro en Matemáticas.
-Maestro en Biología.
-Maestro en Ciencias Sociales.
-Maestro en Física y Química.
-Maestro en Pedagogía.
-Maestro en Idiomas.
-Maestro en Sicología.
-Maestro en Artes Plásticas.
-Maestro en Talleres y
-Orientador Vocacional.
+(REFORMADO, P.O. 3 JUNIO DE 1967)
+ARTICULO QUINTO.- Las Especialidades que se impartirán, sin perjuicio de crear las que sean necesarias, serán las siguientes:
+Lengua y Literatura Españolas.
+Matemáticas.
+Biología.
+Ciencias Sociales.
+Física y Química.
+Pedagogía.
+Ingles y Francés.
+Psicología.
+Actividades Artísticas.
+Actividades tecnológicas.
+Orientación Vocacional.
