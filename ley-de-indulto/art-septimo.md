@@ -1,0 +1,1 @@
+ARTICULO SEPTIMO:- Las solicitudes que no llenen los requisitos fijados en el Artículo Tercero y las que se encuentren comprendidas dentro de las excepciones del Artículo Cuarto de esta Ley, serán negadas de plano y así se comunicará a los reos, dando por terminada la instancia.

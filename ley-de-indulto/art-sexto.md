@@ -1,0 +1,1 @@
+ARTICULO SEXTO:- El Ejecutivo resolverá los casos dudosos y revocará el indulto concedido, cuando se demuestre que el indultado estaba comprendido dentro de las excepciones que establece este Ordenamiento u observó mala conducta con posterioridad a la gracia otorgada. En los casos de revocación se le privará nuevamente de la libertad para que extinga la parte de sanción remitida.

@@ -1,0 +1,1 @@
+ARTICULO PRIMERO:- El Jefe del Ejecutivo, de acuerdo con la facultad que le confiere la Fracción XXVI del artículo 85 reformado de la Constitución Política del Estado, concederá indulto a los reos ejecutoriados comprendidos en las disposiciones de esta Ley.

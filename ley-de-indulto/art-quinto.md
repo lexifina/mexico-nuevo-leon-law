@@ -1,0 +1,2 @@
+ARTICULO QUINTO:- Para los efectos del artículo primero, la Dirección de la Penitenciaría del Estado y los Alcaides de las Cárceles Públicas, con vista a lo dispuesto en los artículos que preceden, formularán solicitud oficial en favor de los reos que consideren con derecho a obtener el beneficio del indulto y la remitirán oportunamente al Ejecutivo.
+En dichas solicitudes se expresará: Nombre del reo, delito cometido, sanción impuesta y tiempo que de dicha sanción haya compurgado.
