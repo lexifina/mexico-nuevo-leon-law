@@ -1,15 +1,24 @@
 (ADICIONADO Y REUBICADO, P.O. 31 DE DICIEMBRE DE 1993)
 ARTICULO 275 Bis. - Por los servicios prestados por la Secretaría de Educación.
 I.- Constancias de Estudios:
-a) Por la legalización de certificados de escuelas técnicas y comerciales N$25.00
-b) Por la legalización de certificados o expedición de duplicados de nivel medio superior N$40.00
-c) Por la revalidación y equivalencia de estudios de nivel medio superior y profesional, por materia N$10.00
-En ningún caso, la cantidad a pagar será inferior a N$50.00
-d) Por la legalización y registro de certificados de estudios de nivel medio superior N$40.00
-e) Por la legalización y registro de certificados de estudios profesionales N$200.00
-f) Por el registro y legalización de títulos profesionales N$300.00
-g) Por el registro y legalización de títulos técnicos medios N$100.00
-h) Por el trámite para cédula profesional N$100.00
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
+a) Por la legalización de certificados de escuelas técnicas y comerciales $28.00
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
+b) Por la legalización de certificados o expedición de duplicados de nivel medio superior $46.00
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
+c) Por la revalidación y equivalencia de estudios de nivel medio superior y profesional, por materia $12.00
+En ningún caso, la cantidad a pagar será inferior a $60.00
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
+d) Por la legalización e inscripción de certificados de estudios de nivel medio
+superior $50.00
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
+e) Por la legalización e inscripción de certificados de estudios profesionales $250.00
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
+f) Por la inscripción y legalización de títulos profesionales $330.00
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
+g) Por la inscripción y legalización de títulos técnicos medios $125.00
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
+h) Por el trámite para cédula profesional $125.00
 N. DE E. EN RELACION CON LA VIGENCIA DE LOS DERECHOS CONTENIDOS EN EL PRESENTE ARTICULO, VER ARTICULO PRIMERO DEL DECRETO QUE MODIFICA ESTA LEY, P.O. 29 DE JULIO DE 1994
 II.- Instituciones Educativas:
 1.- Por el inicio de trámite de incorporación, entrega de folleto-instructivo, por nivel específico y de paquete de formularios para el trámite N$80.00
