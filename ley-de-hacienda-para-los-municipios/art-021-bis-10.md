@@ -1,6 +1,0 @@
-(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1986)
-ARTICULO 21 Bis 10.- Los sujetos que se encuentren en las hipótesis previstas en el articulo anterior, deberán acreditar su situación jurídica ante la Secretaría de Finanzas y Tesorería General del Estado, mediante los elementos de prueba que esta exija.
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
-El derecho a cubrir el Impuesto Predial a la tarifa establecida por dicho dispositivo, surtirá sus efectos a partir del bimestre siguiente a aquél en que se haya emitido la resolución que tenga por acreditada la situación jurídica particular del contribuyente, y subsistirá mientras se mantengan vigentes las condiciones que sirvieron para su otorgamiento.
-(REFORMADO, P.O. 31 DE DICIEMBRE DE 1986)
-Los sujetos beneficiados con la tarifa referida, deberán manifestar a la Secretaría de Finanzas y Tesorería General del Estado cualquier modificación a las circunstancias que hubieren motivado el otorgamiento de dicha tarifa, independientemente de que aquélla en todo tiempo podrá realizar las investigaciones necesarias para tal efecto y cancelar en su caso el beneficio otorgado, evento en el cual se hará efectivo el impuesto en los términos del articulo 21 bis-8, a partir del momento en que la autoridad determine que se dejaron de llenar los requisitos de Ley.

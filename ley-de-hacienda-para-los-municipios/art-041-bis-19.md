@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
-ARTICULO 41 Bis 19.- Cuando la obra consista en la instalación o construcción de redes primarias o redes secundarias de distribución de agua potable, o redes de alcantarillado para los servicios de drenaje sanitario y drenaje pluvial, el área para la cual hayan sido calculadas, y a la que técnica y razonablemente deban servir aunque para ello puedan requerirse obras complementarias posteriores, será la que se tome como área de beneficio o área de influencia.

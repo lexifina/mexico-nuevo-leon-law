@@ -1,3 +1,0 @@
-(REFORMADO, P.O. 31 DE DICIEMBRE DE 1986)
-ARTICULO 21 Bis 19.- Cuando en las manifestaciones o avisos exigidos, no se expresen los datos o no se acompañen los documentos o planos requeridos, la Secretaría de Finanzas y Tesorería General del Estado otorgará un plazo de quince días para que corrija la omisión, contados a partir de la fecha en que los interesados reciban el requerimiento.
-Si transcurre dicho plazo y no se expresan los datos o no se presentan los documentos o planos a que se refiere el párrafo anterior, dicha autoridad no tomará en cuenta estas manifestaciones o avisos, sin perjuicio de imponer al infractor las sanciones que procedan.

@@ -1,4 +1,0 @@
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
-ARTICULO 41 Bis 17.- Determinada dicha área de imposición se calculará el impuesto correspondiente a cada predio, tomándose para ello en cuenta lo siguiente:
-a) Costo de la obra por derramar.
-b) El plano de conjunto del área de imposición, señalándose para cada predio su ubicación, su área, la distancia de su centro de gravedad al eje de la mejora, y sus características propias como son: su importancia actual y futura probable dentro de la zona en que esté ubicado, así como la proporcionalidad que existe actualmente y que vaya a existir probablemente en el futuro, respecto a la importancia entre él y los demás predios de su manzana, entre él y las demás manzanas de su zona y entre él y las demás zonas incluídas en el área de imposición en su caso.
