@@ -1,0 +1,1 @@
+ARTICULO DECIMO PRIMERO:- Para ocupar las plazas vacantes o de nueva creación en los Planteles de Enseñanza Media y Normal, se dará preferencia a los maestros egresados de la Escuela Normal Superior, o en su defecto a los alumnos de dicha Institución.

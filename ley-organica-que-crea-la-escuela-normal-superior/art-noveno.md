@@ -1,0 +1,1 @@
+ARTICULO NOVENO:- El personal Directivo de la Escuela, auxiliado por el Consejo Técnico, elaborará el Plan de Estudios, los programas de cada materia, Reglamento Interior y demás instrumentos y reformas para el funcionamiento del Plantel, que entrarán en vigor previa aprobación del Ejecutivo del Estado.

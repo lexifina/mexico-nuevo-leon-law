@@ -1,0 +1,1 @@
+ARTICULO TERCERO:- La Escuela Normal Superior del Estado de Nuevo León estará organizada por especialidades, de acuerdo con las materias que se impartan en los Planteles de Segunda Enseñanza y Normal.
