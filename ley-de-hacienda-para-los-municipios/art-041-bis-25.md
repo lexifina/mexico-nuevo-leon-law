@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
+ARTICULO 41 Bis 25.- Los Notarios Públicos no autorizarán, ni los Registradores Públicos de la Propiedad inscribirán, actos o contratos que impliquen transmisión de dominio, desmembración del mismo o constitución voluntaria de servidumbres o garantías reales, que tengan relación con inmuebles afectados a este impuesto, si no se les demuestra que se está al corriente en el pago del mismo.

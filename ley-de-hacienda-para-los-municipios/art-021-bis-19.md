@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
+ARTICULO 21 Bis 19.- Cuando en las manifestaciones o avisos exigidos, no se expresen los datos o no se acompañen los documentos o planos requeridos, las Autoridades Fiscales otorgarán un plazo de quince días para que corrija la omisión, contado a partir de la fecha en que los interesados reciban el requerimiento.
+Si transcurre dicho plazo y no se expresan los datos o no se presentan los documentos o planos a que se refiere el párrafo anterior, dichas autoridades no tomarán en cuenta estas manifestaciones o avisos, sin perjuiccio (sic) de imponer al infractor las sanciones que procedan.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
+ARTICULO 21 Bis 21.- Los sujetos del impuesto están obligados a manifestar a la Oficina Recaudadora correspondiente, los cambios de domicilio, dentro de los quince días siguientes a aquel en que se efectúen. Si no lo hicieren, se tendrá como domicilio para todos los efectos legales el que hubieren señalado anteriormente o, en su defecto, el predio objeto del impuesto.
