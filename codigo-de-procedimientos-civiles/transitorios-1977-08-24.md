@@ -1,6 +1,6 @@
 P.O. 24 DE AGOSTO DE 1977.
 PRIMERO.- Las presentes reformas entrarán en vigor el día primero de diciembre del presente año.
-SEGUNDO.-Para la distribución de los negocios de orden familiar, actualmente en trámite en los juzgados 1º. , 2º. , 3º. Y 5º. Del ramo civil de la primera fracción judicial en el Estado, se procederá del modo siguiente:
+SEGUNDO.- Para la distribución de los negocios de orden familiar, actualmente en trámite en los juzgados 1º. , 2º. , 3º. Y 5º. Del ramo civil de la primera fracción judicial en el Estado, se procederá del modo siguiente:
 a).- Cada juzgado formulará el inventario de los citados asuntos.
 b).- Una vez obtenido el número total de dichos asuntos en los cuatro juzgados indicados, los negocios se turnarán a los juzgados 4º. , 6º. Y 7º. , Guardando en ello la mayor parte y mejor proporción en número a fin de evitar notables diferenciales que entorpecieran el rápido desenvolvimiento de los negocios que a cada uno corresponda.
 c).- El inventario y distribución a que se alude en los incisos anteriores, que serán vigilados y controlados por el Presidente del Tribunal Superior de Justicia con el auxilio del resto de los Magistrados deberán quedar concluidos ambos en un plazo que no exceda de 15 días hábiles, a contar de la fecha en que entran en vigor las presentes reformas.
