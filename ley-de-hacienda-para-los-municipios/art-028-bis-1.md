@@ -13,4 +13,5 @@ X.- En las adquisiciones, derechos o renta a perpetuidad de los lotes en los pan
 XI.- En las adquisiciones realizadas a través de fideicomiso en que funjan como fideicomisarios instituciones públicas o para-públicas, destinadas a la solución del problema de la vivienda en la Entidad, tales como INFONAVIT, INDECO, FOVISSTE (sic), etc.
 XII.- En las adquisiciones de construcciones realizadas por promotores de viviendas de interés social, siempre y cuando entre la fecha de la terminación de la construcción y la contratación con el adquirente de la vivienda no medie más del término de un año. Esta exención no ampara al suelo de las construcciones.
 XIII.- En las adquisiciones que se realicen por causa de muerte.
-XIV.- En las donaciones que se hagan entre ascendientes y descendientes en línea recta.
+(REFORMADA, P.O. 31 DE DICIEMBRE DE 1982)
+XIV.- En las donaciones que se hagan entre ascendientes y descendientes en línea recta, así como en las que se hagan entre el adoptante y el adoptado, entre sus respectivos ascendientes y descendientes en línea recta, y entre éstos y aquéllos.
