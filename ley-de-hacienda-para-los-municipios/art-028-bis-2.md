@@ -10,5 +10,6 @@ VI.- La dación en pago y la liquidación, reducción de capital, pago en especi
 VII.- Constitución de usufructo, transmisión de éste o de la nuda propiedad, así como la extinción del usufructo temporal.
 VIII.- Prescripción positiva.
 IX.- La cesión de derechos del heredero o legatario, cuando entre los bienes de la sucesión haya inmuebles, en la parte relativa y en proporción a éstos.
-X.- Enajenación a través de fideicomiso, en los términos del Código Fiscal de la Federación. La trasmisión de dominio de un inmueble, en ejecución de un fideicomiso, causará el Impuesto Sobre Adquisición de Inmuebles, salvo cuando ésta se haga en favor del o de los fideicomisarios designados en el acto constitutivo del fideicomiso, o de los adquirentes de los derechos del fideicomisario por cualquier título, siempre que en la constitución o adquisición se haya cubierto el impuesto correspondiente.
+(REFORMADA, P.O. 31 DE DICIEMBRE DE 1986)
+X.- Enajenación a través de fideicomiso, en los términos del Código Fiscal del Estado. La transmisión de dominio de un inmueble, en ejecución de un fideicomiso, causará el Impuesto Sobre Adquisición de Inmuebles, salvo cuando ésta se haga en favor del o de los fideicomisarios designados en el acto constitutivo del fideicomiso, o de los adquirientes de los derechos del fideicomisario por cualquier título, siempre que en la constitución o adquisición se haya cubierto el impuesto correspondiente.
 En las permutas se considerará que se efectúan dos adquisiciones.

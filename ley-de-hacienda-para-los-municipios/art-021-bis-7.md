@@ -3,10 +3,10 @@ SECCION CUARTA
 DE LA BASE DEL IMPUESTO
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
 ARTICULO 21 Bis 7.- Es base de este Impuesto:
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 1985)
-a) En predios con valor real catastral hasta de $ 5'856,000.00, la base será el 50%.
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 1985)
-b) En predios con valor real catastral superior a $5'856,000.00, la base será el 75%.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 1986)
+a) En predios con valor real catastral hasta de $13'469,000.00, la base será el 50%.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 1986)
+b) En predios con valor real catastral superior a $13'469,000.00, la base será el 75%.
 c) La que resulte mayor de entre el valor fiscal con que se encuentren empadronados y el valor de la operación de traslado de dominio, en aquellos casos en que los predios no tengan asignado valor catastral mediante el procedimiento establecido en la Ley del Catastro y su reglamento.
 d) En predios baldíos susceptibles de fraccionamiento, ubicados en las zonas urbanas del Estado, la base será el 100 %.
 Para los efectos de este precepto, por predio baldío se entiende de aquel inmueble que, pudiendo ser beneficiado con servicios públicos, por contar con líneas de electricidad o tuberías de agua y drenaje incorporadas o adyacentes al mismo, no haya sido objeto de fraccionamiento por sus propietarios.
