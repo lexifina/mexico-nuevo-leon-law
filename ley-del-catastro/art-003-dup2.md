@@ -6,3 +6,4 @@ Dado en el despacho del Poder Ejecutivo, en Monterrey, Capital del Estado de Nue
 LIC. EDUARDO LIVAS VILLARREAL.
 El Oficial Mayor de Gobierno Enc. de la Secretaría Gral. por Ministerio de Ley.
 LIC. JACOBO AYALA VILLARREAL.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
