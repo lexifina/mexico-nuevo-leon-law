@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO. Los servicios para la formación de maestros y maestras a cargo de la autoridad educativa estatal tendrán, además de las finalidades previstas en la presente Ley, la de regularizar, con nivel de licenciatura, a maestros y maestras en servicio que por cualquier circunstancia tengan un nivel de estudios distinto del anteriormente mencionado.

@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. Las disposiciones normativas derivadas de las Leyes mencionadas en el Artículo anterior se seguirán aplicando, en lo que no se opongan a la presente Ley, hasta en tanto se expida la normatividad a que se refiere esta Ley.

@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. Los procedimientos en trámite antes de la entrada en vigor de esta Ley se continuarán desahogando conforme a las disposiciones legales que se abrogan, hasta el término de dicho proceso.

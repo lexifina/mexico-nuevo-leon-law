@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO. Las autoridades competentes se obligan a respetar íntegramente los derechos de los trabajadores de la educación y reconocer la titularidad de las relaciones laborales colectivas de su organización sindical en los términos de su registro vigente y de acuerdo con las disposiciones legales correspondientes al expedir esta Ley.

@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abrogan la Ley de Educación para el Estado de Nuevo León publicada en el Periódico Oficial del Estado el 29 de agosto de 1984 y la Ley de Funcionamiento de Sociedades de Padres de Familia y Maestros en el Estado de Nuevo León de diciembre de 1950.
