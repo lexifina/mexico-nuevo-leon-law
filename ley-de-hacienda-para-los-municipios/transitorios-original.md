@@ -13,8 +13,8 @@ ARTICULO 34.- SUJETOS.- Las personas físicas, morales o unidades económicas si
 ARTICULO 35.- TASA.- Este impuesto se pagará en los siguientes términos:
 a) 12% sobre el valor comercial de los premios en el caso del inciso a) del Artículo 33 de esta Ley.
 Tratándose de artículos de propaganda comercial, se pagará el 10% sobre el valor de los artículos rifados.
-(REFORMADO, P.O. 31 DE DICIEMBRE DE 1990)
-b) De $25,000.00 a $75,000.00 diarios, en el caso del inciso b) del artículo 33 de esta Ley.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1991)
+b) De $30,000.00 a $100,000.00 diarios, en el caso del inciso b) del artículo 33 de esta Ley.
 (ADICIONADO, P.O. 28 DE DICIEMBRE DE 1979)
 ARTICULO 6o.- Si se dan por terminados los Convenios de adhesión al Sistema Nacional de Coordinación Fiscal y de Colaboración Administrativa en Materia Fiscal Federal, mencionados en el transitorio que antecede, así como los diversos convenios de colaboración que se celebrarían o suscribirían con motivo de la adhesión del Estado de Nuevo León al Sistema Nacional de Coordinación Fiscal, el Impuesto sobre Juegos Permitidos de esta Ley, entrará en vigor nuevamente al día siguiente al en que surta sus efectos la terminación de dichos convenios en la misma forma y términos en que aparece establecido en la Ley de Hacienda para los Municipios del Estado de Nuevo León correspondiente al ejercicio de 1979.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1981)

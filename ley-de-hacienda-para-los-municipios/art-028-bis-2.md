@@ -5,7 +5,8 @@ I.- Todo acto por el que se trasmita la propiedad, incluyendo la donación que n
 II.- La compra–venta en la que el vendedor se reserve la propiedad, aún cuando la transferencia de ésta opere con posterioridad.
 III.- La promesa de adquirir, cuando se pacte que el futuro comprador entrará en posesión de los bienes o que el futuro vendedor recibirá el precio de la venta o parte de él antes de que se celebre el contrato prometido.
 IV.- La cesión de derechos del comprador o del futuro comprador en los casos de las Fracciones II y III que anteceden.
-V.- Fusión de sociedades.
+(REFORMADA, P.O. 30 DE DICIEMBRE DE 1991)
+V.- Fusión y escisión de sociedades.
 VI.- La dación en pago y la liquidación, reducción de capital, pago en especie de remanentes, utilidades o dividendos de asociaciones o sociedades civiles o mercantiles.
 VII.- Constitución de usufructo, transmisión de éste o de la nuda propiedad, así como la extinción del usufructo temporal.
 VIII.- Prescripción positiva.
