@@ -5,7 +5,7 @@ DEL PROCEDIMIENTO SUCESORIO ESPECIAL
 Artículo 879 Bis.- El procedimiento sucesorio especial se sujetará a los dispuesto en este Capítulo.
 En las sucesiones intestadas o testamentarias que se sometan a la tramitación aquí prevista, se observarán los siguientes requisitos:
 I.- Que los herederos estén de acuerdo en la forma y términos de liquidar el haber hereditario;
-II.- Que en los casos de intestado, la denuncia se firme por todos los presuntos herederos o sus representantes legítimos, expresando sus reconocimiento (sic) entre sí y la designación de albacea;
+II.- Que en los casos de intestado, la denuncia se firme por todos los presuntos herederos o sus representantes legítimos, expresando sus reconocimiento(sic) entre sí y la designación de albacea;
 III.- Con la denuncia se exhibirán las actas del Estado Civil que acrediten la defunción del autor de la herencia y el entroncamiento de los comparecientes con éste;
 IV.- Tratándose de sucesión testamentaria, a la demanda se acompañará el acta de defunción y el testamento, en cuyo caso el Juez citará a la junta prevista por los Artículos 808 y 908, observándose las demás reglas a que se contrae este capítulo;
 V.- Igualmente deberán presentarse el inventario y avalúo de los bienes y los títulos de propiedad respectivos, cuyos inventario y avalúos deberán firmarse por cada uno de los interesados;
