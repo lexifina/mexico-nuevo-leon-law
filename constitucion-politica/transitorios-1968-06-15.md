@@ -5,3 +5,5 @@ TERCERO: El primer informe correspondiente al presente sexenio, se rendirá por 
 P.O. 1o. DE ENERO DE 1969.
 ARTICULO PRIMERO:- Se autoriza al C. Licenciado Eduardo A. Elizondo Lozano para retirarse de su cargo el 1o. de Agosto de 1973, acortando así su período constitucional en dos meses y tres días.
 ARTICULO SEGUNDO:- Se derogan todas las disposiciones que se opongan a lo dispuesto en este Decreto, el cual entrará en vigor el día de su publicación en el Periódico Oficial.
+P.O. 1o. DE ABRIL DE 1970.
+UNICO:- Este Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado.
