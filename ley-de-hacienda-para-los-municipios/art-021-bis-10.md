@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 1996)
-ARTICULO 21 Bis 10.- Los sujetos que se encuentren en las hipótesis previstas en el artículo anterior, deberán acreditar su situación jurídica ante la Tesorería Municipal, mediante los elementos de prueba que ésta exija.
+(REFORMADO PRIMER PARRAFO, P.O. 26 DE DICIEMBRE DE 2001)
+ARTICULO 21 Bis 10.- Los sujetos que se encuentren en las hipótesis previstas en el artículo anterior, deberán acreditar su situación jurídica ante la Tesorería Municipal, mediante los elementos de prueba que ésta exija. Para efectos de la no-propiedad de predios, bastará que el interesado manifieste bajo protesta de decir verdad que no es propietario o poseedor de otro bien inmueble en el Estado, conservando el Municipio sus facultades de comprobación.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
 El derecho a cubrir el Impuesto Predial a la tarifa establecida por dicho dispositivo, surtirá sus efectos a partir del bimestre siguiente a aquél en que se haya emitido la resolución que tenga por acreditada la situación jurídica particular del contribuyente, y subsistirá mientras se mantengan vigentes las condiciones que sirvieron para su otorgamiento.
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)

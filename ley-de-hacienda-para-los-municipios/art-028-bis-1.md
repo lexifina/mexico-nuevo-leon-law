@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PARRAFO, P.O. 29 DE DICIEMBRE DE 2000)
-ARTICULO 28 Bis 1.- En la adquisición de viviendas cuyo valor más alto en los términos del Artículo 28 bis-3, fracción I, no exceda de 25 cuotas elevadas al año y siempre que el adquirente sea persona física y no posea otro bien raíz en el Estado, cubrirá el impuesto aplicando la tasa del 2% al valor del inmueble, después de reducirlo en 15 cuotas elevadas al año.
+(REFORMADO PRIMER PARRAFO, P.O. 26 DE DICIEMBRE DE 2001)
+ARTICULO 28 Bis 1.- En la adquisición de viviendas cuyo valor gravable no exceda de 25 cuotas elevadas al año y siempre que el adquirente sea persona física y no posea otro bien raíz en el Estado, cubrirá el impuesto aplicando la tasa del 2% al valor del inmueble, después de reducirlo en 15 cuotas elevadas al año. Para efectos de la no-propiedad de predios, bastará que el interesado manifieste bajo protesta de decir verdad que no es propietario o poseedor de otro bien inmueble en el Estado, conservando el Municipio sus facultades de comprobación.
 (REFORMADO PRIMER PARRAFO, P.O. 30 DE DICIEMBRE DE 1998)
 El Impuesto sobre adquisición de inmuebles se cubrirá a una tarifa única especial por cada inmueble equivalente a 7 cuotas, en los siguientes casos:
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 1986)
@@ -27,17 +27,20 @@ IX.- En las adquisiciones por informaciones ad-perpetuam y sentencias judiciales
 X.- En las adquisiciones, derechos o renta a perpetuidad de los lotes en los panteones municipales.
 (REFORMADA, P.O. 29 DE DICIEMBRE DE 2000)
 XI.- En las adquisiciones de bienes del dominio privado que realicen los Municipios y las entidades paraestatales de los Municipios.
-(REFORMADA, P.O. 29 DE DICIEMBRE DE 1997)
-XII.- En las adquisiciones de viviendas cuyo valor más alto entre el valor de adquisición y el indicado en el certificado de valor actual real, no exceda de 15 cuotas elevadas al año, siempre que el adquirente sea persona física y no sea propietario o poseedor de otro bien inmueble en el Estado.
-(REFORMADO, P.O. 31 DE DICIEMBRE DE 1999)
-También se cubrirá la tarifa especial en las adquisiciones de vivienda cuyo valor más alto entre el valor de adquisición y el indicado en el certificado de valor actual real, no exceda de 9,398 cuotas, siempre que el adquirente sea jubilado o pensionado y que no sea propietario o poseedor de otro bien inmueble en el Estado.
+(REFORMADA, P.O. 26 DE DICIEMBRE DE 2001)
+XII.- En las adquisiciones de viviendas cuyo valor gravable, no exceda de 15 cuotas elevadas al año, siempre que el adquirente sea persona física.
+También se cubrirá la tarifa especial en las adquisiciones de vivienda cuyo valor más alto entre el valor de adquisición y el valor catastral, no exceda de 9,398 cuotas, siempre que el adquirente sea jubilado o pensionado y que no sea propietario o poseedor de otro bien inmueble en el Estado.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1983)
 XIII.- En las adquisiciones que se realicen por causa de muerte.
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 1999)
 Cuando uno o más coherederos adquieran porciones mayores a la parte heredada consignada dentro del testamento o de la que le corresponda en los términos de Ley, cubrirán el impuesto sobre la parte excedente en los términos del Artículo 28 Bis. Para los efectos de esta disposición, por parte heredada se entiende la que corresponde únicamente a los inmuebles y no a la totalidad de la masa hereditaria.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1992)
 XIV.- En las donaciones que se hagan entre ascendientes y descendientes en línea recta, así como en las que se hagan entre el adoptante y el adoptado, entre sus respectivos ascendientes y descendientes en línea recta, y entre éstos y aquéllos. En el caso de que el inmueble forme parte de la sociedad conyugal del ascendiente o del descendiente, la tarifa especial operará respecto de la totalidad de los derechos de la sociedad conyugal relacionados con el inmueble.
+(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2001)
+Los predios a los que se les haya aplicado la tarifa especial que señala esta fracción únicamente se les podrá aplicar nuevamente este beneficio, cuando hayan transcurrido 2 años a partir de la fecha de escrituración de la anterior donación.
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 1998)
 XV.- En las adquisiciones realizadas por asociaciones religiosas, respecto de bienes destinados exclusivamente a sus fines.
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 2000)
 En cualquier tiempo en que la Tesorería Municipal advierta que los contribuyentes beneficiados en los términos de este Artículo, no hayan cumplido con cualesquiera de los requisitos que sirvieron de base para gozar de la tarifa especial, previa audiencia al interesado en la que se le otorgue un plazo no menor de 15 días hábiles para proporcionar pruebas y expresar alegatos, podrá revocar y cancelar las franquicias otorgadas. En este caso se procederá al cobro integro de las contribuciones no cubiertas bajo el amparo de la presente disposición, más sus respectivos accesorios.
+(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2001)
+Para efectos de la no-propiedad de predios, bastará que el interesado manifieste bajo protesta de decir verdad que no es propietario o poseedor de otro bien inmueble en el Estado, conservando el Municipio sus facultades de comprobación.

@@ -3,8 +3,8 @@ ARTICULO 275 Bis. - Por los servicios prestados por la Secretaría de Educación
 (REFORMADA, P.O. 29 DE DICIEMBRE DE 2000)
 I.- Constancias de Estudios:
 1. Educación Básica:
-a) Constancias, Certificaciones o Revalidaciones de Estudios de Primaria
-y Secundaria, por cada una ….. 1 cuota
+(REFORMADA, P.O. 26 DE DICIEMBRE DE 2001)
+a) Constancias, Certificaciones o Revalidaciones de Estudios de Primaria y Secundaria, por cada un 0.50 cuotas
 2. Escuelas Técnicas y Comerciales:
 a) Certificación de escuelas técnicas y comerciales, así como de escuelas técnicas de capacitación para el trabajo, con estudios no mayores de dos años con diploma ….. 1 cuota
 b) Certificado terminal de escuelas técnicas comerciales con estudios de tres años ….. 2 cuotas
