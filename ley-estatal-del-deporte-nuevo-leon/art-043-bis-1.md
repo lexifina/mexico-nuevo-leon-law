@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE DICIEMBRE DE 1996)
+Artículo 43 Bis 1.- Los integrantes del Sistema del Deporte del Estado, deberán de fomentar la cultura del deporte y promover su difusión a través de los distintos medios de comunicación. En esta tarea, se destacarán los beneficios y valores del deporte, propiciando con ello un conocimiento especializado, así como un manejo objetivo en apoyo a la información y formación de la sociedad.
