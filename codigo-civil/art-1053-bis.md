@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 13 DE OCTUBRE DE 2000)
+Art. 1053 Bis.- En caso de que el propietario quisiera vender el terreno, o el superficiario o sus causa-habientes sus construcciones, plantaciones o siembras ambos gozarán del derecho del tanto, siendo aplicables lo dispuesto en el artículo 970, en lo que se refiere a la forma para dar el aviso de enajenación y al tiempo para hacer uso del derecho del tanto.

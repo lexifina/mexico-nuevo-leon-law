@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 13 DE OCTUBRE DE 2000)
+Art. 1053 Bis VIII.- El superficiario, salvo pacto en contrario, tendrá la más amplia libertad para realizar las construcciones según su destino, finalidades o conveniencias. Igualmente tendrá la más amplia libertad para hacer las plantaciones o siembras que le convengan. Las sanciones por las violaciones a las normas administrativas de derecho urbano, serán por cuenta del superficiario.

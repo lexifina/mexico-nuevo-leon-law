@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 13 DE OCTUBRE DE 2000)
+Art. 26 Bis.- El nombre de las personas morales de carácter privado, estará constituido por la denominación o razón social que se les asigne en el acto de su constitución o en sus estatutos sociales. La denominación o razón social se formará libremente, pero será distinta de la de cualquier otra sociedad y al emplearse, irá siempre seguida de la identificación societaria que la regula o de las siglas de ésta.

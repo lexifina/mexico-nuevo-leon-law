@@ -1,6 +1,6 @@
 TRANSITORIOS:
 PRIMERO:- Esta Ley abroga la expedida por Decreto Número 156, publicado en el Periódico Oficial del Estado el 17 de enero de 1973, así como sus reformas y adiciones.
-SEGUNDO:- Los servicios notariales a los Municipios de Abasolo, Apodaca, El Carmen, Ciénega de Flores, General Escobedo, General Zuazua, Hidalgo, Mina, Pesquería, Salinas Victoria, Santiago y García serán cubiertos indistintamente por los notarios de la zona metropolitana, sin necesidad de habilitación específica, en tanto no existan notarías en ellos.
+SEGUNDO:- (DEROGADO, P.O. 13 DE OCTUBRE DE 2000)
 TERCERO:- Las funciones de la Dirección de Archivo General de Notarías, serán desempeñadas por la Dirección del Registro Público de la Propiedad y del Comercio en el Estado y a cargo del Director del mismo, cumpliendo en cuanto sean aplicables las disposiciones de la presente Ley.
 CUARTO:- Las patentes expedidas a los notarios titulares actualmente en ejercicio, continuarán surtiendo plenos efectos sin perjuicio de la facultad que al Ejecutivo otorga la presente Ley para suspenderlos en su ejercicio o para revocar su patente, si para ello hubiere motivo.
 QUINTO:- Los procedimientos de inspección que se encuentren en trámite o pendientes de resolución, se regirán hasta su conclusión por la Ley que se abroga.
