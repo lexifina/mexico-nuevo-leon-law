@@ -1,0 +1,1 @@
+ARTICULO QUINTO:- No pagarán ningún impuesto, durante los mismos lapsos de tiempo a que se refieren los artículos anteriores, las inversiones que se hagan en construcciones o mejoras, maquinaria, semovientes, enseres y útiles de labranza indispensables para el desarrollo de la producción en los campos o centros agrícolas que se formaren.

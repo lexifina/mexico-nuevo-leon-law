@@ -1,0 +1,1 @@
+ARTICULO SEPTIMO:- Para los efectos de esta Ley, los interesados deberán hacer solicitud al Ejecutivo del Estado, en la que manifiesten la extensión de tierra, cultivo a que se destinen, e inversiones que traten de hacer.

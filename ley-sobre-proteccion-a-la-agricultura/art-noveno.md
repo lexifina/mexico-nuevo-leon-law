@@ -1,0 +1,1 @@
+ARTICULO NOVENO:- Cualquiera (sic) persona podrá solicitar ante el respectivo Ayuntamiento las tierras ociosas que pueda cultivar, cuando sus propietarios o poseedores no hayan barbechado o puesto en cultivo, pasadas las fechas para su preparación y siembra, de conformidad y previos los trámites indicados en las disposiciones de la Ley de Tierras Ociosas de 23 de junio de 1920.

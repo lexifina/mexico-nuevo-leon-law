@@ -1,0 +1,1 @@
+ARTICULO OCTAVO:- El Ejecutivo del Estado, recabará de la Tesorería General del Estado, los informes que estime convenientes y declarará si el solicitante queda comprendido en los beneficios de esta Ley.
