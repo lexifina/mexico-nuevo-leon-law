@@ -1,1 +1,0 @@
-Artículo 24.- El secuestro podrá recaer en toda clase de muebles con excepción de los vestidos, muebles de uso común e instrumentos y útiles de trabajo, en cuanto sean enteramente indispensables a juicio del ejecutor.

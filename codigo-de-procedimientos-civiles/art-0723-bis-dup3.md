@@ -1,5 +1,0 @@
-(ADICIONADO, P.O. 21 DE JULIO DE 1997)
-Artículo 723 BIS III.- Transcurrido el período de emplazamiento dentro de los tres días siguientes, se celebrará una audiencia de pruebas y alegatos, citándose a las partes conforme a las reglas de las notificaciones personales, con las prevenciones y apercibimientos que legalmente se requieran.
-La prueba documental podrá presentarse con anterioridad, sin perjuicio de que el Juez haga relación de ella en la audiencia y la tenga por recibida en ese acto, aunque no exista gestión expresa del interesado.
-Cuando las partes tengan que rendir prueba testimonial deberán anunciarla en la demanda o en la contestación, respectivamente, mencionando los nombres y apellidos de los testigos exhibiendo copia de los interrogatorios al tenor de los cuales deberán ser examinados los testigos. El Juez ordenará que se entregue una copia a la contraria, para que pueda formular por escrito o hacer verbalmente las preguntas, al celebrarse la audiencia.
-La sentencia se pronunciará dentro de los tres días siguientes.

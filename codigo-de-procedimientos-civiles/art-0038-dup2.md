@@ -1,2 +1,0 @@
-Artículo 38.-El despacho de los juzgados comenzará diariamente a las nueve de la mañana y se podrá interrumpir de las trece a las dieciséis horas y continuará hasta la hora necesaria para cumplir todos los negocios citados y que se hayan presentado durante el curso del día, pudiendo retirarse el personal después, cuando ya no tengan asunto pendiente y fueren cuando menos las dieciocho horas.
-Respecto de las actuaciones ante jueces, se observará lo dispuesto en el artículo 63.

@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 10 DE FEBRERO DE 1999)
-Artículo 732 BIS II.- Las notificaciones se ajustarán a lo dispuesto por el capítulo V del Título Primero del Libro Primero de este Código, y en caso de que se haga mediante edictos, éstos deberán ser publicados por tres veces consecutivas en el Periódico Oficial y en algún periódico de los que tengan mayor circulación, a juicio del juez; publicación que igualmente se hará en el Boletín Judicial. La notificación así hecha surtirá sus efectos a los tres días siguientes al de la última publicación.

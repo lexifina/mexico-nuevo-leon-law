@@ -1,2 +1,0 @@
-(REFORMADO, P.O. 21 DE JULIO DE 1997)
-Artículo 326.- La prueba testimonial deberá anunciarse y ofrecerse en la demanda y en la contestación, en la reconvención y en la contestación de ésta, designándose el nombre, apellidos y domicilio de los testigos; en caso de no cumplirse con los mencionados requisitos no se admitirá la prueba. El examen de testigos se hará con sujeción a los interrogatorios que presenten las partes; pero el Juez podrá ampliar las preguntas y repreguntas de una manera discrecional.

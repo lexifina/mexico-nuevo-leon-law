@@ -1,1 +1,0 @@
-Artículo 36.- En los negocios de la competencia de los juzgados únicamente se aplicarán las disposiciones de este Código (de Procedimientos Civiles), y de la Ley Orgánica del Poder Judicial, en lo que fuere indispensable, para cumplimentar las disposiciones de este título y que no se oponga directa ni indirectamente a éstas.

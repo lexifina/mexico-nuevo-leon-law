@@ -1,3 +1,0 @@
-P.O. 9 DE FEBRERO DE 1996.
-DECRETO NUM. 158, QUE SE REFORMA LOS ARTICULOS 461 Y 462, Y SE ADICIONA UN LIBRO SEXTO, A DENOMINARSE "DEL ARBITRAJE", CON UN TITULO UNICO, CAPITULOS I A VIII, QUE COMPRENDEN LOS ARTICULOS 958 A 988.
-UNICO:- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.

@@ -1,2 +1,0 @@
-Artículo 35.- Las promociones de nulidad de actuaciones por falta o defecto de citación o notificación, deben de ser desechadas de plano.
-REGLAS GENERALES.

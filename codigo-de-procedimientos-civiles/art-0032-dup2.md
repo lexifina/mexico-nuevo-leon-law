@@ -1,1 +1,0 @@
-Artículo 32.- El tercero que considere perjudicados sus derechos al ejercitarse la sentencia ocurrirá al juez presentando sus pruebas y el juez, con audiencia inmediata de las partes, resolverá si subsiste o no el secuestro o el acto de ejecución practicado, sin precidir (sic) sobre la propiedad de la cosa ni sobre los hechos controvertidos.

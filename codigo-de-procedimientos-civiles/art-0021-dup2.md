@@ -1,1 +1,0 @@
-Artículo 21.- En los negocios ante los jueces no se causarán costas cualquiera que sea la naturaleza del juicio, no imponiéndose tampoco multas por temeridad. Los gastos de ejecución serán a cargo del condenado.
