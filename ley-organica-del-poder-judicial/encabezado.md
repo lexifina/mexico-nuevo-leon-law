@@ -3,5 +3,5 @@ Ley publicada en el Periódico Oficial del Estado de Nuevo León, el lunes 8 de 
 EL C. LIC. FERNANDO DE JESUS CANALES CLARIOND, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A TODOS SUS HABITANTES HAGO SABER:
 Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
 D E C R E T O
-NUM 158
+NUM. 158
 LEY ORGÁNICA DEL PODER JUDICIAL DEL ESTADO DE NUEVO LEÓN

@@ -1,0 +1,12 @@
+(ADICIONADO, P.O. 21 DE JUNIO DE 2004)
+ARTÍCULO 33 Bis.- Los Jueces de Primera Instancia, además de las atribuciones que les corresponden por materia, tendrán las siguientes:
+I. Cumplir y hacer cumplir sin demora y con apego a la ley, los acuerdos y determinaciones que el Tribunal Superior de Justicia, el Consejo de la Judicatura y ellos, emitan;
+II. Dirigir el desarrollo de los procesos, presidir las audiencias de prueba, y tomar la protesta a los testigos, absolventes y en caso necesario, a los peritos;
+III. Remitir al Archivo Judicial los expedientes concluidos;
+IV. Proponer al Pleno del Tribunal Superior de Justicia, proyectos de reforma a las leyes de su materia;
+V. Acordar y sentenciar, oportuna, fundada y motivadamente, con sujeción a las normas aplicables al caso concreto;
+VI. Integrar, en los casos de ausencia o insuficiencia de los preceptos, la norma aplicable al caso, debiendo ser congruente con la vigencia del orden jurídico;
+VII. Cuidar el orden y disciplina del juzgado, imponiendo las sanciones en los casos en que se amerite;
+VIII. Excusarse en los casos previstos en la ley;
+IX. Acatar las resoluciones que en materia de criterios contradictorios de las Salas emita el Pleno del Tribunal Superior de Justicia; y
+X. Las demás que le señalen las leyes y los reglamentos del Poder Judicial.
