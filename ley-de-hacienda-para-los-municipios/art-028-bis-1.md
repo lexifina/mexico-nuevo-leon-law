@@ -1,6 +1,7 @@
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1983)
 ARTICULO 28 Bis 1.- No se pagará el impuesto, en la adquisición de inmuebles que hagan la Federación, el Estado o los Municipios, para formar parte del dominio publico.
-El impuesto sobre Adquisición de Inmueble se cubrirá a una tarifa única especial de $1,500.00, cuando el valor real del inmueble adquirido, determinado por la Oficina Técnica Catastral, no exceda del valor de la vivienda de interés social financiada con tal carácter por la Banca Nacional, y a una tarifa única especial de $3,000.00, cuando exceda de dicha cantidad, en los siguientes casos:
+(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1984)
+El Impuesto sobre Adquisición de Inmuebles se cubrirá a una tarifa única especial de $2,000.00, cuando el valor real del inmueble adquirido, determinado por la Oficina Técnica Catastral, no exceda de $3'500,000.00, y a una tarifa única especial de $5,000.00 cuando exceda de dicha cantidad, en los siguientes casos:
 I.- En las adquisiciones hechas por asociaciones, fundaciones e instituciones de beneficencia publica o privada, por bienes destinados exclusivamente a sus fines.
 II.- En las adquisiciones hechas por instituciones públicas de enseñanza y establecimientos de enseñanza propiedad de particulares que tengan autorización o reconocimiento de validez oficial de estudios en los términos de la Ley Federal de Educación, por los bienes destinados exclusivamente a sus fines educativos.
 III.- En las adquisiciones que se realicen al constituir o disolver la sociedad conyugal, así como en el acto en que se cambien las capitulaciones matrimoniales.
