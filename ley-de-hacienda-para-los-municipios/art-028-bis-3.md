@@ -1,4 +1,3 @@
-(DEROGADO ULTIMO PARRAFO, P.O. 31 DE DICIEMBRE DE 1993)
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1981)
 ARTICULO 28 Bis 3.- En la determinación de este impuesto se deberán seguir las reglas siguientes:
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1991)
