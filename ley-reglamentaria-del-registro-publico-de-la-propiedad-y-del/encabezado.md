@@ -1,0 +1,6 @@
+LEY REGLAMENTARIA DEL REGISTRO PUBLICO DE LA PROPIEDAD Y DEL COMERCIO PARA EL ESTADO DE NUEVO LEON
+Ley publicada en el Periódico Oficial del Estado de Nuevo León, el sábado 22 de enero de 1972.
+EL CIUDADANO LICENCIADO LUIS M. FARIAS, GOBERNADOR CONSTITUCIONAL SUBSTITUTO DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A LOS HABITANTES DEL MISMO HACE SABER:
+Que el H. Congreso del Estado Libre y Soberano de Nuevo León, LIX Legislatura, en uso de las facultades que le concede el Artículo 63 de la Constitución Política Local, expide el siguiente:
+DECRETO No. 101
+LEY REGLAMENTARIA DEL REGISTRO PUBLICO DE LA PROPIEDAD Y DEL COMERCIO PARA EL ESTADO DE NUEVO LEON
