@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Se abroga la Ley que crea el Hospital Infantil de Monterrey, publicada en el Periódico Oficial del Estado en fecha 13 de Febrero de 1952 y los recursos humanos, materiales y financieros, pasan a formar parte del Organismo.
