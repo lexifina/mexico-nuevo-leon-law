@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JUNIO DE 1996)
+ARTICULO 161 Bis.- El Ejecutivo del Estado y los municipios, en el ámbito de sus respectivas competencias, podrán celebrar convenios, contratos, fideicomisos de fuente alterna de pago, mandatos o cualquier otro acto jurídico, para mediante los ingresos derivados de participaciones federales, garantizar el cumplimiento de las obligaciones y empréstitos a que se refiere el Artículo 141 Bis.
