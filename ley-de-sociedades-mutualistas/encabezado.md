@@ -1,5 +1,5 @@
-LEY DE SOCIEDADES MUTUALISTAS DEL ESTADO DE NUEVO LEÓN
-Ley publicada en el Periódico Oficial del estado de Nuevo León, el miércoles 8 de junio de 1949.
+LEY DE SOCIEDADES MUTUALISTAS DEL ESTADO DE NUEVO LEON
+Ley publicada en el Periódico Oficial del Estado de Nuevo León, el miércoles 8 de junio de 1949.
 EL CIUDADANO LICENCIADO ARTURO B. DE LA GARZA Y GARZA, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A LOS HABITANTES DEL MISMO, HACE SABER:
 Que la H. Ll Legislatura Constitucional del Estado, Representando al pueblo de Nuevo León, ha tenido a bien expedir el siguiente
 DECRETO NUMERO 109.
