@@ -1,5 +1,0 @@
-P.O. 14 DE DICIEMBRE DE 1966.
-PRIMERO:- Estas reformas empezarán a tener vigencia para que surtan sus efectos a tono con los motivos que las impulsan, a partir del día de su publicación en el Periódico Oficial del Estado.
-SEGUNDO:- Dentro de la segunda quincena del mes de septiembre de mil novecientos sesenta y siete, se procederá a hacer la designación de los Magistrados y aprobado su nombramiento se designarán los Jueces de Letras. El Poder Judicial así designado entrará en ejercicio de sus funciones el día cuatro de octubre del mismo año, previa la protesta de Ley correspondiente.
-(REFORMADO, P.O. 18 DE ENERO DE 1967)
-TERCERO:- Las prevenciones contenidas en los artículos 63 Fracción XXII, 66 Fracción VII, 97, 98, 100 Fracción II y 103, reformados, tendrán aplicación por una sola vez por lo que a nombramientos se refiere; y en lo sucesivo, solamente, cuando se presente el caso de faltas absolutas de los funcionarios judiciales por las diversas causas previstas en las propias reformas.
