@@ -1,0 +1,7 @@
+LEY DEL INSTITUTO ESTATAL DE LA JUVENTUD
+Ley publicada en el Periódico Oficial del Estado de Nuevo León, el miércoles 24 de diciembre de 2003.
+EL C. JOSÉ NATIVIDAD GONZÁLEZ PARÁS, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN, A TODOS SU HABITANTES HAGO SABER:
+Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
+DECRETO
+Núm. 38
+LEY DEL INSTITUTO ESTATAL DE LA JUVENTUD
