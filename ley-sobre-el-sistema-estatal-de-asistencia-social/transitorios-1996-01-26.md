@@ -1,0 +1,3 @@
+P.O. 26 DE ENERO DE 1996.
+ARTICULO PRIMERO:- Dentro de los treinta días posteriores a la entrada en vigencia del presente Decreto, la Secretaría Ejecutiva de la Comisión Estatal de la Vejez, convocará a una reunión formal de instalación en la que se aprobará su Reglamento Interior y sus programas, que incluirán entre otros, estudio e investigación de educación gerontológica y geriátrica, incorporación de los ancianos a tareas productivas, investigación y consultoría jurídica, además de los métodos y sistemas de operatividad.
+ARTICULO SEGUNDO:- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado.
