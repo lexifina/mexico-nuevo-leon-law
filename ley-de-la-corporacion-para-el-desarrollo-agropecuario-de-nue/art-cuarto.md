@@ -1,0 +1,1 @@
+Artículo Cuarto.- La Junta de Gobierno aprobará el Reglamento Interior de la Corporación para el Desarrollo Agropecuario de Nuevo León en un plazo no mayor de noventa días hábiles, contados a partir de la fecha de su instalación.

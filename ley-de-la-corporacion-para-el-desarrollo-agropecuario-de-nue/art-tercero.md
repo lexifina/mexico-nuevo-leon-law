@@ -1,0 +1,1 @@
+Artículo Tercero.- La Junta de Gobierno de la Corporación deberá quedar constituida en un plazo no mayor de treinta días hábiles, contados a partir de la instalación del Consejo Ciudadano Agropecuario.
