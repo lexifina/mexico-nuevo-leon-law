@@ -1,11 +1,11 @@
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 1997)
 ARTICULO 160 Bis-4.- El dictamen que practique el contador público registrado, deberá reunir los requisitos del Artículo 52 del Código Fiscal del Estado y su revisión se sujetará a las siguientes formalidades del procedimiento:
 I.- La autoridad fiscal en el ejercicio de sus facultades de comprobación, requerirá indistintamente al contador público registrado que elaboró el dictamen, al contribuyente revisado, o a los terceros relacionados con el contribuyente o responsable solidario.
-a)Tratándose del contador público registrado, la autoridad fiscal podrá solicitarle, por escrito con copia al contribuyente, lo siguiente:
-1.-Cualquier información que, conforme al Código deberá de estar incluida en los estados financieros dictaminados para efectos fiscales.
+a) Tratándose del contador público registrado, la autoridad fiscal podrá solicitarle, por escrito con copia al contribuyente, lo siguiente:
+1.- Cualquier información que, conforme al Código deberá de estar incluida en los estados financieros dictaminados para efectos fiscales.
 2.- La exhibición de los papeles de trabajo elaborados con motivo de la auditoría practicada; los cuales, en todo caso, se entiende que son propiedad del contador público.
 3.- La información que se considere pertinente para cerciorarse del cumplimiento de las obligaciones fiscales del contribuyente.
 4.- La exhibición de los sistemas y registros contables y documentación original.
-b)Por lo que se refiere al contribuyente, la autoridad fiscalizadora estará facultada para requerir por escrito, con copia al contador público registrado, la información que se considere pertinente para cerciorarse del cumplimiento de sus obligaciones fiscales, así como la exhibición de sus sistemas y registros contables y documentación original correspondiente.
-c)Por lo que respecta a los terceros relacionados con los contribuyentes o responsables solidarios en los términos del Artículo 27 del Código Fiscal del Estado, la información y documentación que consideren necesaria para verificar si son ciertos los datos consignados en el dictamen.
+b) Por lo que se refiere al contribuyente, la autoridad fiscalizadora estará facultada para requerir por escrito, con copia al contador público registrado, la información que se considere pertinente para cerciorarse del cumplimiento de sus obligaciones fiscales, así como la exhibición de sus sistemas y registros contables y documentación original correspondiente.
+c) Por lo que respecta a los terceros relacionados con los contribuyentes o responsables solidarios en los términos del Artículo 27 del Código Fiscal del Estado, la información y documentación que consideren necesaria para verificar si son ciertos los datos consignados en el dictamen.
 II.- En los términos del último párrafo del artículo 44 del Código Fiscal del Estado, se considera que se inicia el ejercicio de facultades de comprobación en relación con los contribuyentes que hayan presentado sus estados financieros dictaminados, cuando la autoridad fiscal competente lleve a cabo alguno de los actos señalados en los incisos b) y c) de la fracción anterior.

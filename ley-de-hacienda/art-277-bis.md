@@ -9,5 +9,3 @@ VI. Copias certificadas de planos ….. 3 cuotas
 VII. Copias certificadas de planos a color ….. 5 cuotas
 En caso de reproducción en medios magnéticos, fotográficos, sonoros, ópticos o visuales y otros, los materiales que se requieran serán proporcionados por el interesado.
 En todos los casos, con excepción del Poder Judicial del Estado, por búsqueda y localización de documentos, archivos y expedientes y demás información solicitada, generará 1 cuota, sin perjuicio del derecho que corresponda por las copias expedidas.
-TITULO CUARTO
-De los Productos
