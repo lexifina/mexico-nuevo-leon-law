@@ -1,0 +1,7 @@
+CODIGO PENAL PARA EL ESTADO DE NUEVO LEON
+Código publicado en el Periódico Oficial del Estado de Nuevo León, el lunes 26 de marzo de 1990.
+EL CIUDADANO LIC. JORGE A. TREVIÑO, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A TODOS SUS HABITANTES HAGO SABER:
+Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
+D E C R E T O
+NUM. 94
+CODIGO PENAL PARA EL ESTADO DE NUEVO LEON
