@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1977)
+ARTICULO 41 Bis 6.- FISCALIZACION.- Al recibirse el pago del impuesto la autoridad fiscal expedirá guía para el transporte de los productos, donde consignará su cantidad y clase, el lugar a que se envían, así como el número y fecha de recibo del pago del impuesto.
+Una copia de la autorización indicada en el párrafo anterior deberá entregar el adquirente al productor, sin cuyo requisito no se autorizará la extracción de los productos.
+Si el transporte se autoriza para una bodega, depósito o planta beneficiadora, ubicada dentro del Estado y posteriormente se envían los productos, total o parcialmente a otros lugares, deberá ampararse su transporte con una nueva guía que deberá expedir la Tesorería Municipal correspondiente, previa la comprobación de pago del impuesto por sus productos.

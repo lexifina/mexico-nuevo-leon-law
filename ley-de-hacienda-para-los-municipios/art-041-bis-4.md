@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1977)
+ARTICULO 41 Bis 4.- RESPONSABILIDAD SOLIDARIA.- El poseedor por cualquier título de predios destinados a la explotación citrícola, el almacenista, los intermedios, los transportistas y las asociaciones o sociedades de productores, en su caso, deberán exigir la comprobación del pago del impuesto a que se refiere este capítulo, siendo solidariamente responsables de su pago.
