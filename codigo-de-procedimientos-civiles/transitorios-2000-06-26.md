@@ -1,0 +1,2 @@
+P.O. 26 DE JUNIO DEL 2000.
+Único.- El presente Decreto iniciará su vigencia al día siguiente a aquél en que surta efectos la reforma presentada el 21 de febrero del año 2000 a los artículos 3 fracciones II, III y IX; 5, 7, 26 fracción III; 28 fracciones II y III; 33, 35 fracción V; 49, 50, 51 fracción III; 52, 91, 115 fracción III y último párrafo; 125, 129, 130 párrafo tercero; 131 fracciones I a IV; 136, fracciones XII y XIII, 142, 145, 146 y 150 de la Ley Orgánica del Poder Judicial del Estado de Nuevo León.
