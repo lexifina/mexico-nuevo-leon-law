@@ -3,8 +3,14 @@ CAPITULO I BIS (SIC)
 IMPUESTO SOBRE ADQUISICION DE INMUEBLES
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1983)
 ARTICULO 28 Bis.- Están obligados al pago del Impuesto Sobre Adquisición de Inmuebles, las personas físicas o morales que adquieran inmuebles que consistan en el suelo y las construcciones adheridas a él, ubicados en el territorio del Estado, así como los derechos relacionados con los mismos, a que este impuesto se refiere. Salvo lo dispuesto en el artículo siguiente, el impuesto se calculará aplicando la tasa de 10% al valor del inmueble después de reducirlo en cinco veces al salario mínimo general, elevado al año, de la zona económica en donde esté ubicado el inmueble.
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1987)
-Tratándose de viviendas tipo medio cuyo valor más alto en los términos del artículo 28 bis-3, fracción I, sea mayor de 10 veces el salario mínimo general elevado al año de la zona económica donde se encuentre el inmueble, vigente al momento en que se expida el certificado de valor actual real, y no exceda de 20 veces dicho salario mínimo, siempre que el adquiriente no posea otro bien raíz en el Estado y vaya a hacer uso propio de la vivienda, la reducción a que se refiere el párrafo anterior será una cantidad equivalente al 90% del valor del inmueble, sin que en ningún caso pueda ser menor a 5 veces el salario mínimo general elevado al año, de la zona económica en donde esté el inmueble.
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1987)
-El límite de 20 veces el salario mínimo elevado al año a que se refiere el párrafo anterior, se aumentará en un 8% no acumulativo, por cada mes transcurrido en los términos del artículo 13, párrafo cuarto, del Código Fiscal del Estado, entre la fecha en que haya entrado en vigor el salario mínimo vigente en la fecha de expedición del certificado de valor actual real, y la fecha en que se protocolice la escritura, en caso de que no se requiera esta formalidad conforme a las leyes, al momento en que se pague el impuesto.
-Cuando del inmueble formen parte departamentos habitacionales, la reducción se hará por cada uno de ellos. Lo dispuesto en este párrafo no es aplicable a hoteles.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1988)
+Tratándose de viviendas cuyo valor más alto en los términos del artículo 28 bis-3, fracción I, sea mayor de 10 veces el salario mínimo general elevado al año y siempre que el adquiriente no posea otro bien raíz en el Estado y vaya a ser uso propio de la vivienda, la reducción a que se refiere el párrafo anterior será porcentaje del valor del inmueble, el cual se obtendrá conforme a lo siguiente:
+a) El valor más alto del inmueble se dividirá entre el salario mínimo general elevado al año.
+b) A la cantidad 100, se le restará el resultado obtenido conforme al inciso a).
+c) El porcentaje de reducción será el resultado que se obtenga conforme al inciso b). Si el porcentaje arroja décimas, éstas no se tomarán en cuenta.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1988)
+Esta reducción en ningún caso será menor a 5 veces el salario mínimo general elevado al año.
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1988)
+Para los efectos del presente artículo, se utilizara el salario mínimo general de la zona económica en donde se encuentre ubicado el inmueble, vigente al momento en que se expida el certificado de valor actual real.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1988)
+En todo caso, cuando del inmueble formen parte departamentos habitacionales, la reducción se hará por cada uno de ellos. Lo dispuesto en este párrafo no es aplicable a hoteles.
