@@ -1,0 +1,4 @@
+P.O. 19 DE MAYO DE 2003.
+Artículo Primero.- El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Estado.
+Artículo Segundo.- Los recursos materiales y financieros con los que cuenta el vigente Colegio de Estudios Científicos y Tecnológicos del Estado, a que se refiere el Acuerdo Administrativo que crea el Colegio de Estudios Científicos y Tecnológicos del Estado de Nuevo León, publicado en el Periódico Oficial del Estado el 29 de agosto de 1994, serán transferidos al organismo a que se refiere el presente Decreto, de conformidad con los lineamientos de la Secretaría de Finanzas y Tesorería General del Estado.
+Artículo Tercero.- Quedan a salvo los derechos laborales de los trabajadores del Colegio de Estudios Científicos y Tecnológicos; las relaciones laborales entre éste y su personal, se regirán de acuerdo a las disposiciones jurídicas aplicables.
