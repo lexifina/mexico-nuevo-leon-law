@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE FEBRERO DE 1997)
+Art. 414 Bis.- La madre tendrá en todos los casos en que no viva con el padre de sus hijos, el derecho preferente de mantener a su cuidado a los que fueren menores de siete años, a menos que se dedicare a la prostitución, al lenocinio, hubiere contraído el hábito de embriagarse, tuviere alguna enfermedad contagiosa, o por su conducta antisocial ofreciere peligro grave para la salud o la moralidad de sus hijos.
