@@ -1,2 +1,6 @@
-LEY DE INGRESOS DEL MUNICIPIO DE SANTA MARÍA CHILCHOTLA, DISTRITO DE TEOTITLÁN, OAXACA, PARA EL EJERCICIO FISCAL 2024
-Ley publicada en la Décima Tercera Sección del Número 12 del Periódico Oficial del Estado de Oaxaca, el sábado 23 de marzo de 2024.
+LEY DE HACIENDA DEL ESTADO DE NUEVO LEON
+Ley publicada en el Periódico Oficial del Estado de Nuevo León, el sábado 28 de diciembre de 1974.
+EL CIUDADANO PEDRO G. ZORRILLA MARTINEZ, GOBERNADOR DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A LOS HABITANTES DEL MISMO HACE SABER:
+Que el H. Congreso del Estado Libre y Soberano de Nuevo León, LX Legislatura, en uso de las facultades que le concede el Artículo 63 de la Constitución Política Local, expide el siguiente:
+DECRETO NUM. 72
+LEY DE HACIENDA DEL ESTADO
