@@ -1,4 +1,5 @@
 (REFORMADO, P.O. 29 DE DICIEMBRE DE 1989)
 ARTICULO 28 Bis 5.- Los Notarios, Jueces, Corredores y demás fedatarios, antes de autorizar en definitiva la escritura pública, acta fuera de protocolo, y en general cualquier documento o acto en donde conste la transmisión del dominio de un inmueble, deberán cerciorarse de que se encuentra cubierto el Impuesto Sobre Adquisición de Inmuebles correspondiente a la operación que se realice.
 Las autoridades judiciales que dicten resoluciones en las que se transmita el dominio de un inmueble, una vez que hayan causado ejecutoria, darán aviso a la Tesorería Municipal correspondiente en un plazo no mayor de quince días hábiles.
-Los funcionarios adscritos a la Dirección del Registro Público de la Propiedad y del Comercio, no inscribirán documento público o privado alguno en donde conste la transmisión del dominio de un inmueble, si no se demuestra el pago de este impuesto.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 1993)
+Los funcionarios adscritos a la Dirección del Registro Público de la Propiedad y del Comercio, no inscribirán documento público o privado alguno en donde conste la trasmisión del dominio de un inmueble, si no se demuestra el pago de este impuesto y se haya hecho constar en el documento a inscribir, los datos del recibo oficial o declaración de pago del impuesto correspondiente.

@@ -1,3 +1,4 @@
+(DEROGADO ULTIMO PARRAFO, P.O. 31 DE DICIEMBRE DE 1993)
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1981)
 ARTICULO 28 Bis 3.- En la determinación de este impuesto se deberán seguir las reglas siguientes:
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1991)
@@ -7,8 +8,8 @@ El certificado de valor actual real que se utilice para la determinación del im
 II.- Cuando con motivo de la adquisición, el adquirente asuma la obligación de pagar una o más deudas o de perdonarlas, el importe de ellas se considerará parte del precio pactado.
 Cuando no se pacte precio, el impuesto se calculará con base en el valor que contenga el certificado de valor actual real que expida la Secretaría de Finanzas y Tesorería General del Estado. En la constitución, adquisición o extinción del usufructo o de la nuda propiedad y en la adquisición de bienes de remate, no se tomará en cuenta el precio que se hubiere pactado sino el del avalúo a que se refiere este párrafo.
 Para los fines del Impuesto Sobre Adquisición de Inmuebles, se considera que el usufructo y la nuda propiedad tienen un valor, cada uno de ellos, del 50% del valor de la propiedad.
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 1988)
-III.- En las adquisiciones que se hagan constar en escrituras públicas, actas fuera de protocolo o cualquier otro instrumento o contrato en que intervengan, los notarios, jueces, corredores y demás fedatarios que por disposición legal tengan funciones notariales, calcularán el impuesto bajo su responsabilidad, haciéndolo constar en la escritura o documento y lo declararán y enterarán mediante la formulación de una nota oficial, conforme al modelo autorizado. Si el impuesto es cubierto directamente por el contribuyente, el fedatario hará constar tal circunstancia en la escritura o documento en que intervenga, antes de proceder a autorizar dicho instrumento.
+(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1993)
+III.- En las adquisiciones que se hagan constar en escrituras públicas, actas fuera de protocolo o cualquier otro instrumento o contrato en que intervengan, los notarios, jueces, corredores y demás fedatarios que por disposición legal tengan funciones notariales, calcularán el impuesto bajo su responsabilidad, haciendo constar en la escritura o documento el procedimiento para su cálculo y lo declararán y enterarán mediante la formulación de una nota oficial, conforme al modelo autorizado. Si el impuesto es cubierto directamente por el contribuyente, el fedatario hará constar tal circunstancia en la escritura del documento en que intervenga, antes de proceder a autorizar dicho instrumento. En el documento que se presente para su inscripción en el Registro Público de la Propiedad y del Comercio, los fedatarios insertarán los datos del recibo oficial o declaración de pago del impuesto correspondiente.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1988)
 En los demás casos, los contribuyentes pagarán el impuesto mediante la formulación de la nota oficial que presentarán ante la oficina recaudadora correspondiente.
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1991)

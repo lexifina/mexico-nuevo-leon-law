@@ -3,12 +3,12 @@ CAPITULO X
 POR LIMPIA Y RECOLECCION DE DESECHOS INDUSTRIALES Y COMERCIALES
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 1989)
 ARTICULO 65 Bis.- Por el servicio de limpia y recolección de desechos industriales y comerciales que preste el Municipio a las personas físicas y morales que realizan actividades comerciales, industriales o de servicios, en los términos previstos por el artículo 17 del Código Fiscal del Estado, se cobrará por cada establecimiento ubicado en el Municipio, por mes:
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 1992)
-a) Establecimientos que en promedio generen hasta 50 kilogramos diarios de basura N$ 90.00
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 1992)
-b) Establecimientos que en promedio generen más de 50 kilogramos y hasta 100 kilogramos diarios de basura N$180.00
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 1992)
-c) Establecimientos que en promedio generen más de 100 kilogramos y hasta 200 kilogramos diarios de basura N$360.00
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 1993)
+a) Establecimientos que en promedio generen hasta 50 kilogramos diarios de basura N$90.00
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 1993)
+b) Establecimientos que en promedio generen más, de 50 kilogramos y hasta 100 kilogramos diarios de basura N$200.00
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 1993)
+c) Establecimientos que en promedio generen más de 100 kilogramos y hasta 200 kilogramos diarios de basura N$400.00
 d) Establecimientos que en promedio generen más de 200 kilogramos de basura o el equivalente a tres metros cúbicos diarios, el cobro será fijado de común acuerdo entre el Municipio y el particular, en función al costo que represente la prestación del servicio.
 Si el servicio se presta solamente hasta tres veces por semana pagará el 50% de la cuota.
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1992)

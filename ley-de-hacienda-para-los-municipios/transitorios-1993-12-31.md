@@ -1,0 +1,4 @@
+P.O. 31 DE DICIEMBRE DE 1993.
+PRIMERO.- El presente Decreto entrará en vigor el día 1o. de Enero de 1994, con excepción de los derechos previstos por el artículo 52 bis, los cuáles se aplicarán conforme les sean transferidas a los Municipios, en los términos previstos por la Ley de Desarrollo Urbano del Estado, las funciones correspondientes a los servicios respecto de los cuáles se establecen estos derechos.
+SEGUNDO.- Las asociaciones religiosas constituídas en los términos de la Ley de Asociaciones Religiosas y Culto Público, no pagarán el Impuesto sobre Adquisición de Inmuebles, por las adquisiciones que realicen hasta el 31 de diciembre de 1994.
+TERCERO.- Durante 1994 el Impuesto Sobre Adquisición de Inmuebles que resulte a cargo del contribuyente, en ningún caso será mayor a aquél que se hubiere determinado en los términos de la Ley vigente al 31 de diciembre de 1990.

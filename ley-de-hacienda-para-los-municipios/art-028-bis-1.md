@@ -1,9 +1,8 @@
-(REFORMADO PRIMER PARRAFO, P.O. 30 DE DICIEMBRE DE 1992)
-ARTICULO 28 Bis 1.- Tratándose de viviendas cuyo valor más alto entre el valor de adquisición y el indicado en el certificado de valor actual real sea mayor de 15 veces el salario mínimo general elevado al año y siempre que el adquirente sea persona física, éste podrá optar por cubrir el impuesto conforme a lo previsto en el artículo anterior o aplicar al valor más alto del inmueble, una tasa que se obtendrá dividiendo el valor más alto entre la cantidad que resulte de multiplicar por diez el salario mínimo general elevado al año sin que en ningún caso esta tasa pueda exceder del 4%. Si la tasa resultante arroja centésimas, éstas no se tomarán en cuenta.
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1992)
-En el caso de terrenos sin construcción cuyo valor mayor entre el de adquisición y el consignado en el certificado de valor actual real no exceda de 10 veces el salario mínimo general elevado al año, se aplicará una tasa del 2%, siempre que el adquirente sea persona física y no tenga en propiedad o posesión otro inmueble en el Estado.
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 1992)
-El Impuesto Sobre Adquisición de Inmuebles se cubrirá a una tarifa única especial de N$100.00 en los siguientes casos:
+(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1993)
+ARTICULO 28 Bis 1.- En la adquisición de viviendas cuyo valor más alto en los términos del artículo 28 bis-3, fracción I, no exceda de 25 veces el salario mínimo general elevado al año y siempre que el adquiriente sea persona física, cubrirá el impuesto aplicando la tasa del 2% al valor del inmueble, después de reducirlo en 15 veces el salario mínimo general elevado al año, de la zona económica en donde se encuentre el inmueble.
+(DEROGADO SEGUNDO PARRAFO, P.O. 31 DE DICIEMBRE DE 1993)
+(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1993)
+El Impuesto Sobre Adquisición de Inmuebles se cubrirá a una tarifa única especial de N$110.00, en los siguientes casos:
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 1986)
 I.- En las adquisiciones hechas por instituciones de beneficencia privada, respecto de bienes destinados exclusivamente a sus fines.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1983)
