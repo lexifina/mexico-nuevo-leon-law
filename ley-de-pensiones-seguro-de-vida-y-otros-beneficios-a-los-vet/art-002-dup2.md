@@ -1,0 +1,1 @@
+Art. 2o.- Las personas que se crean comprendidas en la presente ley podrán, a partir de la publicación de la misma en el Periódico Oficial, elevar solicitud al Ejecutivo y acompañar documentación a fin de acreditar tener derecho a los beneficios que esta Ley establece.
