@@ -1,0 +1,3 @@
+P.O. 31 DE ENERO DE 1997.
+Artículo Primero:- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Artículo segundo:- Por conducto de METRORREY, en coordinación con las Dependencias competentes y considerando las recomendaciones técnicas del Consejo Estatal de Transporte, de manera previa a la entrada en operación del servicio público urbano y en su caso suburbano de transporte de personas en camiones u otro medio de transporte que sirva de enlace con el Metro, se establecerán y difundirán los itinerarios, frecuencias de paso, horarios, tarifas y demás aspectos inherentes al servicio.
