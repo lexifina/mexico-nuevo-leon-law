@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE AGOSTO DE 1991)
+Art. 21 Bis.- Para la solución de situaciones jurídicas que requieran la aplicación de normas conflictuales, se aplicará el orden jurídico que tenga la más estrecha relación con ellas. Este principio dominante se observará en la interpretación de las siguientes disposiciones conflictuales creadas con esta finalidad por lo tanto el texto de cualquier disposición conflictual podrá ser pospuesto en todos aquellos casos en los cuales se justifique la presencia de una solución directamente basada en dicho principio.
