@@ -1,7 +1,7 @@
-(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1993)
-ARTICULO 28 Bis 1.- En la adquisición de viviendas cuyo valor más alto en los términos del artículo 28 bis-3, fracción I, no exceda de 25 veces el salario mínimo general elevado al año y siempre que el adquiriente sea persona física, cubrirá el impuesto aplicando la tasa del 2% al valor del inmueble, después de reducirlo en 15 veces el salario mínimo general elevado al año, de la zona económica en donde se encuentre el inmueble.
-(REFORMADO PRIMER PARRAFO, P.O. 30 DE DICIEMBRE DE 1994)
-El Impuesto Sobre Adquisición de Inmuebles se cubrirá a una tarifa única especial de N$115,00, en los siguientes casos:
+(REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 1996)
+ARTICULO 28 Bis 1.- En la adquisición de viviendas cuyo valor más alto en los términos del artículo 28 bis-3, fracción I, no exceda de 25 cuotas elevadas al año y siempre que el adquirente sea persona física, cubrirá el impuesto aplicando la tasa del 2% al valor del inmueble, después de reducirlo en 15 cuotas elevadas al año.
+(REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 1996)
+El Impuesto Sobre Adquisición de Inmuebles se cubrirá a una tarifa única especial equivalente a seis cuotas, en los siguientes casos:
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 1986)
 I.- En las adquisiciones hechas por instituciones de beneficencia privada, respecto de bienes destinados exclusivamente a sus fines.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1983)
@@ -26,8 +26,8 @@ IX.- En las adquisiciones por informaciones ad-perpetuam y sentencias judiciales
 X.- En las adquisiciones, derechos o renta a perpetuidad de los lotes en los panteones municipales.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1994)
 XI.- En las adquisiciones de bienes del dominio privado que realicen el Estado, los Municipios y sus entidades paraestatales.
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 1992)
-XII.- En las adquisiciones de viviendas cuyo valor más alto entre el valor de adquisición y el indicado en el certificado de valor actual real, no exceda de 15 veces el salario mínimo general elevado al año, siempre que el adquirente sea persona física.
+(REFORMADA, P.O. 27 DE DICIEMBRE DE 1996)
+XII.- En las adquisiciones de viviendas cuyo valor más alto entre el valor de adquisición y el indicado en el certificado de valor actual real, no exceda de 15 cuotas elevadas al año, siempre que el adquirente sea persona física.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1983)
 XIII.- En las adquisiciones que se realicen por causa de muerte.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1992)

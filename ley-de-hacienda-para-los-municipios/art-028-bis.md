@@ -3,5 +3,5 @@ CAPITULO I BIS (SIC)
 IMPUESTO SOBRE ADQUISICION DE INMUEBLES
 (REFORMADO PRIMER PARRAFO, P.O. 30 DE DICIEMBRE DE 1993)
 ARTICULO 28 Bis.- Están obligados al pago del Impuesto Sobre Adquisición de Inmuebles, las personas físicas o morales que adquieran inmuebles que consistan en el suelo y las construcciones adheridas a él, ubicados en el territorio del Estado, así como los derechos relacionados con los mismos, a que este Impuesto se refiere. Salvo lo dispuesto en el artículo siguiente, el impuesto se calculará aplicando la tasa del 2% al valor gravable del inmueble.
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 1992)
-El valor gravable del inmueble será el que resulte mayor entre el valor de adquisición y el indicado en el certificado de valor actual real que al efecto expida la Secretaría de Finanzas y Tesorería General del Estado, al cual se le reducirá el valor del inmueble que se tomó como base para calcular este impuesto en su última adquisición, siempre que la misma se hubiera efectuado dentro de los tres años anteriores a la adquisición por la que se calcula el impuesto. Para los efectos de esta ley, se considera base del impuesto el valor mayor entre el de operación y el consignado en el certificado de valor actual real.
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
+Para los efectos de esta ley, se considera base del impuesto el valor gravable del inmueble, que será el que resulte mayor entre el de operación y el consignado en el certificado de valor actual real, que al efecto expida la Secretaría de Finanzas y Tesorería General del Estado.

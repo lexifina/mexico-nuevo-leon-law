@@ -13,8 +13,15 @@ ARTICULO 34.- SUJETOS.- Las personas físicas, morales o unidades económicas si
 ARTICULO 35.- TASA.- Este impuesto se pagará en los siguientes términos:
 a) 12% sobre el valor comercial de los premios en el caso del inciso a) del Artículo 33 de esta Ley.
 Tratándose de artículos de propaganda comercial, se pagará el 10% sobre el valor de los artículos rifados.
-(REFORMADO, P.O. 31 DE DICIEMBRE DE 1993)
-b) De N$40.00 a N$130.00 diarios, en el caso del inciso b) del Artículo 33 de esta Ley.
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 1996)
+El Impuesto se cubrirá en el Municipio en cuya circunscripción territorial se vendan los boletos para la realización de las actividades gravadas.
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
+b) De dos a siete cuotas, en el caso del inciso b), del Artículo 33 de esta Ley.
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 1996)
+c) Los contribuyente (sic) de este impuesto tendrán las siguientes obligaciones:
+1.- Dar aviso a la Tesorería Municipal de la autorización otorgada por la Secretaría de Gobernación, si la hubiere, dentro de los 15 días hábiles siguientes a la fecha de la misma.
+2.- Enterar el Impuesto a la Tesorería Municipal dentro de los 15 días hábiles siguientes a la celebración del objeto gravado.
+3.- Dar aviso a la Tesorería Municipal de todos y cada uno de los establecimientos ubicados en el Municipio correspondiente, en los que se vendan los boletos para la realización de las actividades gravadas.
 (ADICIONADO, P.O. 28 DE DICIEMBRE DE 1979)
 ARTICULO 6o.- Si se dan por terminados los Convenios de adhesión al Sistema Nacional de Coordinación Fiscal y de Colaboración Administrativa en Materia Fiscal Federal, mencionados en el transitorio que antecede, así como los diversos convenios de colaboración que se celebrarían o suscribirían con motivo de la adhesión del Estado de Nuevo León al Sistema Nacional de Coordinación Fiscal, el Impuesto sobre Juegos Permitidos de esta Ley, entrará en vigor nuevamente al día siguiente al en que surta sus efectos la terminación de dichos convenios en la misma forma y términos en que aparece establecido en la Ley de Hacienda para los Municipios del Estado de Nuevo León correspondiente al ejercicio de 1979.
 ARTICULO 7o.- (DEROGADO, P.O. 29 DE DICIEMBRE DE 1995)

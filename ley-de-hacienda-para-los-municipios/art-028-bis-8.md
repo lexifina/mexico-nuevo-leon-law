@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 1996)
+ARTICULO 28 Bis 8.- Para los efectos del artículo anterior, cuando el enajenante, persona física o moral, sea un fraccionador, desarrollador o urbanizador inmobiliario, estará obligado a remitir a la Tesorería Municipal, copia de los contratos de promesa de compra-venta y de cesiones de derecho, a más tardar dentro de los 30 días naturales siguientes a la fecha de su celebración.
