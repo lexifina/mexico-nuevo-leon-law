@@ -1,2 +1,3 @@
 P.O. 19 DE JUNIO DE 1991.
+DECRETO NÚMERO 206, QUE REFORMA EL ARTÍCULO128.
 UNICO:- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
