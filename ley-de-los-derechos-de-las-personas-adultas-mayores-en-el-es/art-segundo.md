@@ -1,0 +1,1 @@
+Artículo Segundo.- El Comité Técnico para la Atención a los Adultos Mayores, deberá constituirse en un plazo no mayor a los noventa días naturales, a partir de la fecha de entrada en vigor de la presente ley.
