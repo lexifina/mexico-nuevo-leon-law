@@ -1,0 +1,5 @@
+P.O. 27 DE DICIEMBRE DE 2001.
+Artículo Primero.- El presente Decreto entrará en vigor el 1° de Enero del año 2002.
+Artículo Segundo.- El Reglamento de la Ley del Catastro deberá adecuarse a lo previsto en este Decreto dentro de un plazo que no exceda de tres meses, contados a partir de su entrada en vigor, mientras se realizan dichas adecuaciones continuarán aplicándose las disposiciones del Reglamento vigente, en lo que no se opongan al presente Decreto.
+Artículo Tercero.- Las Juntas Municipales Catastrales y la Junta Central Catastral resolverán los asuntos que a la entrada en vigor del presente Decreto, se encuentren pendientes ante las mismas, conforme a las disposiciones anteriores a la vigencia de este Decreto.
+Artículo Cuarto.- Cuando en las Leyes estatales se haga referencia al valor actual real, al valor comercial o al valor que deba emitir la Secretaría de Finanzas y Tesorería General del Estado o la Dirección de Catastro, se entenderá para todos los efectos que se hace referencia al Valor Catastral a que se refiere el artículo 17 de esta Ley.

@@ -1,4 +1,1 @@
-(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1999)
-ARTICULO 23o BIS.- La Junta Municipal o la Junta Central Catastral, en su caso, presentarán los estudios de valores comerciales correspondientes a su circunscripción territorial y vigilarán el comportamiento del mercado para mantener actualizados estos valores, ya que servirán de base para determinar el valor actual real que expide la Secretaría de Finanzas y Tesorería General del Estado, mismo que se utilizará para el cálculo del Impuesto Sobre Adquisición de Inmuebles, así como para las contribuciones en materia de Desarrollo Urbano. Dicho Valor deberá tener como base los elementos para la determinación del Valor Catastral.
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1998)
-En caso de revisión y/o modificación del valor actual real que realice la Secretaría de Finanzas y Tesorería General del Estado, con motivo de inconformidades, deberá estar presente un representante del Municipio que corresponda para que emita la opinión respectiva.
+Artículo 23o BIS.- (DEROGADO, P.O. 27 DE DICIEMBRE DE 2001)
