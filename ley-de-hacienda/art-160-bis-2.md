@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 29 DE DICIEMBRE DE 1997)
-ARTICULO 160 Bis-2. - Las visitas domiciliarias ordenadas para verificar el cumplimiento del Impuesto Sobre Nóminas podrán concluirse anticipadamente, cuando el visitado antes del inicio de la auditoría hubiere presentado el aviso que consigna el artículo anterior, siempre que el escrito correspondiente cumpla los requisitos indicados en dicho precepto.
+(REFORMADO, P. O. 30 DE DICIEMBRE DE 1998)
+ARTICULO 160 bis-2. - Las revisiones o las visitas domiciliarias ordenadas para verificar el cumplimiento del Impuesto Sobre Nóminas deberán concluirse anticipadamente, cuando el contribuyente objeto de la revisión o visita antes del inicio de la auditoría hubiere presentado el aviso que consigna el artículo anterior, siempre que el escrito correspondiente cumpla con los requisitos indicados en dicho precepto.

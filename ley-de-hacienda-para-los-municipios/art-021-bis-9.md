@@ -2,8 +2,10 @@
 ARTICULO 21 Bis 9.- El Impuesto Predial se pagará a una tarifa única especial de 2 cuotas anuales, cuando se trate de los siguientes casos:
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 1983)
 I.- Los Predios destinados a planteles escolares no oficiales donde se imparta enseñanza primaria, secundaria o universitaria, autorizada por el Gobierno Federal o Estatal y sometida a su vigilancia, siempre que el inmueble sea propio.
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1991)
-No quedan comprendidos dentro de este beneficio, los predios destinados a usos distintos de aulas, laboratorios o instalaciones similares de dichos planteles.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+No quedan comprendidos dentro de este beneficio, los predios destinados a usos distintos de aulas, laboratorios o instalaciones similares de dichos planteles educativos.
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1998)
+Para efectos de esta fracción, se entiende por predios destinados a planteles escolares, los que cuenten con la construcción correspondiente y en los mismos se estén realizando las actividades de impartición de enseñanza educativa al momento de la solicitud de la tarifa especial.
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 1983)
 II.- Los predios propiedad de la Universidad Autónoma de Nuevo León, así como los predios propiedad de instituciones publicas que se destinen a planteles escolares.
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 1983)
@@ -13,8 +15,8 @@ IV.- Las viviendas cuyo valor catastral no exceda de 5,041 cuotas, siempre que e
 Si el valor catastral de la vivienda excede de 5,041 cuotas, pero no de 8,490 cuotas, se cubrirá el doble de la tarifa especial.
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 1983)
 V.- Los predios Ejidales.
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 1983)
-VI.- Los predios afectados al patrimonio de familia, en los términos del Código Civil del Estado.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+VI.- Los predios afectados al patrimonio de familia, en los términos del Código Civil del Estado, siempre que no sean propietarios o poseedores de otro bien raíz en el Estado.
 (REFORMADA, P.O. 27 DE DICIEMBRE DE 1996)
 VII.- Los inmuebles propiedad de instituciones de beneficencia privada o de asociaciones con Objetivos similares, siempre que dichos inmuebles estén destinados directamente a los fines de las mismas y que en los mismos no se realicen actividades lucrativas o de negocio.
 (REFORMADA, P.O. 27 DE DICIEMBRE DE 1996)
@@ -33,8 +35,8 @@ d) Personas incapacitadas físicamente para trabajar.
 e) Jubilados y pensionados con ingresos propios, cuyo monto diario no exceda de dos cuotas y media.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
 f) Los predios pertenecientes a los trabajadores al servicio de la Federación, Estado o Municipio.
-(REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
-Si el valor catastral del predio excede de 6,129 cuotas y no de 12,257 cuotas, se pagará por concepto de Impuesto Predial anual el doble de la tarifa especial.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)(F. DE E., P.O. 18 DE ENERO DE 1999)
+Si el valor catastral del predio excede de 6,129 cuotas y no de 12,257 cuotas, se pagará por concepto de impuesto predial anual el doble de la tarifa especial. Si el valor catastral de los predios excede de 12,257 cuotas, cubrirán el doble de la tarifa especial sobre dicha cantidad y el excedente se cubrirá conforme a lo establecido por el artículo 21 Bis-8.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
 Para quedar dentro de los supuestos de esta fracción, las personas antes citadas deberán habitar el inmueble en cuestión y no poseer otro bien raíz en el Estado.
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 1993)

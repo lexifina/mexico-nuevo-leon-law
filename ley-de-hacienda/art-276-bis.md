@@ -27,16 +27,21 @@ d) Mayor de 500 m2 y hasta 1,000 m2. ….. 24 cuotas
 e) Mayor de 1,000 m2. ….. 30 cuotas
 (REFORMADO, P.O. 29 DE DICIEMBRE DE 1997)
 Adicionalmente se cubrirá una cantidad complementaria, por metro cuadrado de construcción, excluyendo estacionamientos, conforme a la siguiente tarifa:
-a) Hasta 100 m2 ….. $2.50
-b) Mayor de 100 m2 y hasta 250 m2 ….. $5.00
-c) Mayor de 250 m2 y hasta 500 m2 ….. $7.50
-d) Mayor de 500 m2 y hasta 1,000 m2 ….. $10.00
-e) Mayor de 1,000 m2 ….. $12.00
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+a) Hasta 100 m2 .09 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+b) Mayor de 100 m2 y hasta 250 m2 .18 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+c) Mayor de 250 m2 y hasta 500 m2 .27 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+d) Mayor de 500 m2 y hasta 1,000 m2 .36 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+e) Mayor de 1,000 m2 .43 cuotas
 La cuota prevista en el párrafo anterior no excederá de $ 8.00 por metro cuadrado, para las edificaciones habitacionales multifamiliares. Las casas habitación estarán exentas del pago de este derecho.
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 1993)
 IV.- Por factibilidad y autorización de regímenes en condominio:
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-a) Vertical, por metro cuadrado de construcción, excluyendo estacionamientos $3.75
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+a) Vertical, por metro cuadrado de construcción, excluyendo estacionamientos .13 cuotas
 b) Horizontal, por metro cuadrado de terreno, conforme a la tarifa señalada en la fracción V.
 c) Mixto, le serán aplicables los derechos previstos en los incisos a) y b).
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 1993)
@@ -45,24 +50,23 @@ V.- Por autorización de fraccionamientos:
 a) Por factibilidad y lineamientos 117.5 cuotas
 b) Por proyecto urbanístico, por metro cuadrado de área vendible:
 1.- Habitacionales o industriales, exceptuando los predios reservados para equipamientos comerciales y de servicios de acuerdo a lo siguiente:
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-A. Lotes con superficie de hasta 150 metros cuadrados $3.75
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-B. Lotes con superficie de más de 150 metros cuadrados hasta 300 metros cuadrados $5.00
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-C. Lotes con superficie mayor de 300 metros cuadrados $6.00
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-2.- Industriales ubicados en los Municipios de Monterrey, San Nicolás de los Garza, San Pedro Garza García y Santa Catarina $3.75
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-3.- Industriales ubicados en los Municipios de Apodaca, Escobedo, Guadalupe y Juárez $1.95
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1997)
-4.- Campestres ubicados en los Municipios de Monterrey, San Pedro Garza García, Santa Catarina y Santiago……………………………………………………………………………………$ 3.75
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-5.- Campestres ubicados en el resto del Estado $.25
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1997)
-6.- Otros ubicados en los Municipios de Apodaca, Escobedo, Guadalupe, Monterrey, San Nicolás de los Garza, San Pedro Garza García, Santiago y Santa Catarina ...$ 3.75
-(ADICIONADO, P.O. 29 DE DICIEMBRE DE 1997)
-7.- Otros ubicados en el resto del Estado…$.25
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+A. Lotes con superficie de hasta 150 metros cuadrados .107 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+B. Lotes con superficie de más de 150 metros cuadrados hasta 300 metros cuadrados .143 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+C. Lotes con superficie mayor de 300 metros cuadrados .172 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+2.- Industriales ubicados en los municipios de Apodaca, Escobedo, Guadalupe, Juárez, Monterrey, San Nicolás de los Garza, San Pedro Garza García y Santa Catarina .107 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+3.- Campestres ubicados en los municipios de Apodaca, Guadalupe, Monterrey, San Pedro Garza García, Santa Catarina y Santiago .107 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+4.- Campestres ubicados en el resto del Estado .007 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+5.- Otros ubicados en los municipios de Apodaca, Escobedo, Guadalupe, Monterrey, San Nicolás de los Garza, San Pedro Garza García, Santiago y Santa Catarina .107 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+6.- Otros ubicados en el resto del Estado .007 cuotas
+7.- (DEROGADO, P.O. 30 DE DICIEMBRE DE 1998)
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
 c) Proyecto Ejecutivo 117.5 cuotas
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)

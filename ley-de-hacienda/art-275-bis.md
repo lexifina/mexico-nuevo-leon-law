@@ -1,8 +1,8 @@
 (ADICIONADO Y REUBICADO, P.O. 31 DE DICIEMBRE DE 1993)
 ARTICULO 275 Bis. - Por los servicios prestados por la Secretaría de Educación.
 I.- Constancias de Estudios:
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
-a) Por la legalización de certificados de escuelas técnicas y comerciales $28.00
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+a) Por la legalización de certificados de escuelas técnicas y comerciales...1 cuota
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
 b) Por la legalización de certificados o expedición de duplicados de nivel medio superior 2 cuotas
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)

@@ -13,8 +13,10 @@ VIII.- Prescripción positiva.
 IX.- La cesión de derechos del heredero o legatario, cuando entre los bienes de la sucesión haya inmuebles, en la parte relativa y en proporción a éstos.
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 1986)
 X.- Enajenación a través de fideicomiso, en los términos del Código Fiscal del Estado. La transmisión de dominio de un inmueble, en ejecución de un fideicomiso, causará el Impuesto Sobre Adquisición de Inmuebles, salvo cuando ésta se haga en favor del o de los fideicomisarios designados en el acto constitutivo del fideicomiso, o de los adquirientes de los derechos del fideicomisario por cualquier título, siempre que en la constitución o adquisición se haya cubierto el impuesto correspondiente.
-(ADICIONADA, P.O. 27 DE DICIEMBRE DE 1996)
-XI.- Las adquisiciones, derechos o renta a perpetuidad de los lotes en los panteones.
+(REFORMADA, P.O. 30 DE DICIEMBRE DE 1998)
+XI.- En las adquisiciones, derechos o renta a cualquier plazo, de los lotes en los panteones.
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 1998)
+XII.- La realizada a través de la celebración de poderes irrevocables para actos de dominio siempre y cuando el apoderado no lo ejerza en el término de 6 meses.
 En las permutas se considerará que se efectúan dos adquisiciones.
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 1990)
 En las adquisiciones efectuadas a través de arrendamiento financiero, cuando el arrendatario ejerza su opción de compra, se considerarán como una sola adquisición las realizadas por la arrendadora y por el arrendatario financieros (sic), siempre que se demuestre que fue cubierto el impuesto correspondiente a la adquisición efectuada por la arrendadora financiera. Consecuentemente, en estos casos no se generará el impuesto a cargo del arrendatario financiero.

@@ -16,8 +16,8 @@ ARTICULO 35.- TASA.- Este impuesto se pagará en los siguientes términos:
 (REFORMADO, P.O. 25 DE ABRIL DE 1997)
 a) 6% sobre el valor comercial de los premios en el caso del inciso a) del artículo 33 de esta Ley.
 Tratándose de artículos de propaganda comercial, se pagará el 10% sobre el valor de los artículos rifados.
-(ADICIONADO, P.O. 27 DE DICIEMBRE DE 1996)
-El Impuesto se cubrirá en el Municipio en cuya circunscripción territorial se vendan los boletos para la realización de las actividades gravadas.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
+El impuesto se cubrirá en el Municipio en cuya circunscripción territorial se vendan los boletos para la realización de las actividades gravadas o se expidan los boletos a título gratuito o condicionados al cumplimiento de algún requisito, entre otros, a la contratación de un servicio, a la adquisición de determinado producto o hasta determinada cantidad de compra, de pago o de depósito.
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
 b) De dos a siete cuotas, en el caso del inciso b), del Artículo 33 de esta Ley.
 (ADICIONADO, P.O. 27 DE DICIEMBRE DE 1996)
