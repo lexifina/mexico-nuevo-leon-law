@@ -1,3 +1,3 @@
-(ADICIONADO, P.O. 2 DE AGOSTO DE 1991)
-Art. 21 Bis IV.- Las cuestiones previas, preliminares, o incidentales que se presenten en una cuestión principal, no se resolverán necesariamente conforme a la Ley que regule esta última.
-En cada caso se observará el principio de la relación más estrecha a que se refiere el Artículo 21 Bis I y la existencia de normas conflictuales que tengan relación con tales cuestiones en forma independiente, de las que se apliquen a la cuestión principal.
+(REFORMADO, P.O. 11 DE JUNIO DE 1993)
+Art. 21 Bis IV.- Las situaciones jurídicas válidamente creadas en el extranjero deberán ser reconocidas en el Estado.
+Un cambio posterior en las situaciones relevantes en forma constitutiva para la aplicación de cierto derecho, no surte efectos a las situaciones ya perfeccionadas, como las relaciones de tracto simultáneo en tanto que respecto a las sucesivas se causen efectos para el tiempo a partir del cambio.
