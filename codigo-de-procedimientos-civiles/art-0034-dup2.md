@@ -1,0 +1,2 @@
+Artículo 34.- Las cuestiones incidentales que se susciten ante los jueces, se resolverán juntamente con lo principal, a menos que por su naturaleza sea forzoso decidirlas antes, o que se promuevan después de la sentencia, pero en ningún caso se formará artículo, sino que se decidirán de plano.
+La conexidad sólo procede cuando se trate de juicios que se sigan ante el mismo juez y se resolverá luego que se promueva, sin necesidad de audiencia especial ni otra actuación. Queda abolida la práctica de promover acumulaciones de autos llevados ante juzgados diferentes.

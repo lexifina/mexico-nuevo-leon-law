@@ -1,0 +1,2 @@
+Artículo 30.- Cuando la sentencia condene a entregar cosa determinada para obtener su cumplimiento, se podrán emplear los medios de apremio que autoriza el artículo 42 de este Código, y si fuere necesario, el cateo; se podrá autorizar previa orden especial y escrita que se rompan las cerraduras en cuanto fuere posible para encontrar la cosa.
+Si ni aún así se obtuviere la entrega, el juez fijará la cantidad que como reparación se deba entregar a la parte que obtuvo, procediéndose a exigir su pago con arreglo a los artículos 24 a 30 de este Título.

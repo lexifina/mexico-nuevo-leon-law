@@ -1,0 +1,1 @@
+Artículo 20.- Las sentencias se dictarán a verdad sabida sin necesidad de sujetarse a las reglas sobre estimación de la prueba sino apreciando los hechos según los jueces lo creyeren debido en conciencia.
