@@ -17,6 +17,7 @@ b) Los particulares 2.5 cuotas por metro cuadrado.
 Se exceptúan de lo anterior, los lugares en donde se encuentren instalados parquímetros, en cuyo caso se pagará una cuota adicional por metro cuadrado.
 (REFORMADA, P.O. 27 DE DICIEMBRE DE 1996)
 IV.- Por estacionamientos de vehículos en la vía pública, en aquellos lugares donde existen instalados parquímetros, por cada hora o fracción, $2.00.
+N. DE E. POR DISPOSICION DEL ARTICULO TERCERO DEL DECRETO NUM. 340, SE SUSPENDE LA VIGENCIA DE LOS DERECHOS CONTENIDOS EN LA PRESENTE FRACCION, P.O. 31 DE DICIEMBRE DE 1999.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1998)
 V.- Por ocupar la vía pública los organismos descentralizados del gobierno federal, estatal o municipal y las personas físicas o morales, con toda clase de construcciones o instalaciones permanentes o semipermanentes, pagarán .020 cuotas mensuales por metro cuadrado o fracción.
 VI.- No especificados.

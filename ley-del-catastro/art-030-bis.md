@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 31 DE DICIEMBRE DE 1993)
-ARTICULO 30o BIS.- Los avalúos expedidos por la Dirección de Catastro no constituyen resolución administrativa. Para solicitar su modificación, los particulares interesados podrán solicitar la reconsideración de los avalúos, cuando consideren que el valor consignado en ellos no corresponda a la realidad. En el reglamento de esta Ley se establecerá el procedimiento a seguir para el trámite de la reconsideración.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 1999)
+ARTICULO 30o BIS.- Los avalúos expedidos por la Dirección de Catastro no constituyen resolución administrativa. Para solicitar su modificación, los particulares interesados podrán solicitar la reconsideración de los avalúos, en los términos de lo dispuesto en el artículo 32 Bis de esta Ley, cuando consideren que el valor consignado en ellos no corresponda a la realidad.
