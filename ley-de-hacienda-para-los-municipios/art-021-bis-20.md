@@ -1,4 +1,5 @@
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
 ARTICULO 21 Bis 20.- Las manifestaciones a que alude este Capítulo y la Ley del Catastro, respecto de contratos de promesa de venta, de ventas con reserva de dominio, así como de venta y cualesquiera otros contratos, resoluciones administrativas o judiciales, deberán, presentarse dentro del plazo de 30 días naturales de la fecha del contrato, acto o resolución.
 También se consideran comprendidas en este Artículo, las manifestaciones de división o fusión de predios en que no se opere traslado de dominio alguno, porque las porciones del predio dividido no salgan del dominio del propietario o por que los predios funcionados (sic) sean de un solo propietario. Los Notarios Públicos que autoricen dichas escrituras, tendrán obligación de manifestar también esos contratos, resoluciones o actos a la oficina fiscal respectiva, dentro del mismo término que establece el párrafo anterior.
-La omisión de los avisos aquí mencionados generará una multa de $500.00.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 1985)
+La Omisión de los avisos aquí mencionados generara una multa de $1,000.00.
