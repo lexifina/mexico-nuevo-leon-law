@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE ABRIL DE 2004
+Art. 410 Bis V.- Si alguno de los adoptantes fallece después de haber iniciado el procedimiento judicial de la adopción, podrá continuar el trámite el cónyuge supérstite, surtiendo efectos para ambos cónyuges, siempre que la voluntad del fallecido hubiere sido expresada y ratificada ante juez competente. En caso contrario, sólo tendrá efectos para el supérstite.
