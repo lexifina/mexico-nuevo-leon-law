@@ -3,9 +3,12 @@ CAPITULO X
 POR LIMPIA Y RECOLECCION DE DESECHOS INDUSTRIALES Y COMERCIALES
 (REFORMADO, P.O. 29 DE JULIO DE 1994)
 ARTICULO 65 Bis.- Por el servicio de limpia y recolección de desechos industriales y comerciales que preste el Municipio, se cobrará por cada inmueble ubicado en el Municipio, por mes:
-a) Inmuebles que en promedio generen hasta 50 kilogramos diarios de basura. N$90.00.
-b) Inmuebles que en promedio generen más de 50 kilogramos y hasta 100 kilogramos diarios de basura N$200.00.
-c) Inmuebles que en promedio generen más de 100 kilogramos y hasta 200 kilogramos diarios de basura N$400.00
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
+a) Inmuebles que en promedio generen hasta 50 kilogramos diarios de basura $116.00
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
+b) Inmuebles que en promedio generen más de 50 kilogramos y hasta 100 kilogramos diarios de basura $258.00
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 1995)
+c) Inmuebles que en promedio generen más de 100 kilogramos y hasta 200 kilogramos diarios de basura $516.00
 d) Inmuebles que en promedio generen más de 200 kilogramos de basura o el equivalente a tres metros cúbicos diarios, el cobro será fijado de común acuerdo entre el Municipio y el particular, en función al costo que represente la prestación del servicio.
 Si el servicio se presta solamente hasta tres veces por semana, se pagará el 50% de la cuota.
 Estarán exentos del pago de esta contribución en los casos de casas-habitación, de inmuebles que no cuenten con edificaciones permanentes, así como cuando el particular haya contratado este servicio con algún organismo público descentralizado o con un particular autorizado por el Municipio para la prestación de este servicio.
