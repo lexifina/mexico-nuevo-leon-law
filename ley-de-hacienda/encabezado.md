@@ -1,0 +1,6 @@
+LEY DE HACIENDA DEL ESTADO DE NUEVO LEON
+Ley publicada en el Periódico Oficial del Estado de Nuevo León, el sábado 28 de diciembre de 1974.
+EL CIUDADANO PEDRO G. ZORRILLA MARTINEZ, GOBERNADOR DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A LOS HABITANTES DEL MISMO HACE SABER:
+Que el H. Congreso del Estado Libre y Soberano de Nuevo León, LX Legislatura, en uso de las facultades que le concede el Artículo 63 de la Constitución Política Local, expide el siguiente:
+DECRETO NUM. 72
+LEY DE HACIENDA DEL ESTADO
