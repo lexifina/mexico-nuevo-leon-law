@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE DICIEMBRE DE 1979)
+ARTICULO 22 Bis.- La trasmisión de dominio de un inmueble, en ejecución de un fideicomiso, causará el impuesto sobre Traslación de Dominio, salvo cuando ésta se haga en favor del o de los fideicomisarios designados en el acto constitutivo del fideicomiso, o de los adquirientes de los Derechos del fideicomisario por cualquier título, siempre que en la constitución o adquisición se haya cubierto el impuesto correspondiente.

@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
+ARTICULO 41 Bis 16.- Para calcular el impuesto se requiere determinar primeramente su área de imposición atendiendo a los siguientes factores:
+I.- Las características, magnitud e importancia de la obra.
+II.- La estimación de los beneficios que se derivan de la obra, y de los que se traduzcan en forma de aumento de valor de los terrenos de la zona o zonas que abarque, considerando las condiciones previas y posteriores a la ejecución de la obra, así como el alcance o extensión de los beneficios o aumentos de valor para los predios colindantes o próximos a dicha obra.

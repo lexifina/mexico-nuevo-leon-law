@@ -1,0 +1,10 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
+ARTICULO 41 Bis 21.- La notificación de la liquidación deberá practicarse mediante un instructivo que contenga:
+a) El nombre del propietario.
+b) La ubicación del predio.
+c) La superficie real.
+d) La superficie afecta al impuesto.
+e) La distancia al eje de la obra.
+f) El monto total de la derrama.
+g) La cuota de imposición por metro cuadrado.
+h) El importe líquido total del impuesto.
