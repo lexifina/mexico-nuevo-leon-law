@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Se abroga la Ley Orgánica del Tribunal de lo Contencioso Administrativo y el Código Procesal del Tribunal de lo Contencioso Administrativo publicados en el Periódico Oficial del Estado de fecha 5 de julio de 1991.
