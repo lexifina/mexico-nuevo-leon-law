@@ -1,0 +1,1 @@
+Artículo Segundo.- Se realizará la modificación de las disposiciones o instrumentos jurídicos que corresponda a fin de garantizar la congruencia con las disposiciones contenidas en la presente ley que se aprueba, en un término que no deberá exceder de ciento veinte días hábiles, contados a partir de la entrada en vigor de la misma.
