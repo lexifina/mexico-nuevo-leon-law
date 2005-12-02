@@ -1,0 +1,1 @@
+Artículo Segundo. Se derogan las demás disposiciones que contravengan lo dispuesto en la presente Ley. Serán supletorias de la misma las disposiciones del Código Fiscal del Estado, la Ley de Justicia Administrativa, así como las del Derecho Común.
