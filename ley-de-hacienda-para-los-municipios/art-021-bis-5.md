@@ -1,4 +1,4 @@
 (ADICIONADO, P. O. 30 DE DICIEMBRE DE 1983)
 ARTICULO 21 Bis 5.- La tasa del impuesto, cuando se trate del primer avalúo del predio, se aplicará a partir del bimestre siguiente a la fecha en que ocurrió el hecho o circunstancia que dió lugar a la práctica del avalúo conforme a las disposiciones de este Capítulo y de la Ley del Catastro.
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
-En los casos de modificación del valor catastral, la tasa se aplicará a partir del bimestre siguiente a la fecha en que ocurra el hecho o circunstancia que motive la modificación.
+(REFORMADO, P.O. 27 DE DICIEMBRE DE 2005)
+En los casos de modificación del valor catastral de un predio, el impuesto predial se determinará sobre el nuevo valor catastral que resulte, el cual se aplicará a partir del bimestre siguiente a la fecha en que ocurra el hecho o circunstancia que motive la modificación. En caso de que resulte un incremento del impuesto, el contribuyente deberá pagar la diferencia de impuesto que resulte, aún y cuando se hubiere realizado el pago por anualidad, con el valor anterior. Si la modificación al valor catastral conlleva un decremento en el impuesto, la Tesorería Municipal deberá devolver al contribuyente las cantidades pagadas en exceso, desde la fecha en que se dieron los hechos que motivaron la reducción en el valor catastral.

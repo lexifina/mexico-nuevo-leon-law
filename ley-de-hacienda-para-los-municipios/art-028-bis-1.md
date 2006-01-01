@@ -14,9 +14,7 @@ III.- En las donaciones entre cónyuges y en las adquisiciones que se realicen a
 IV.- En las adquisiciones realizadas por partidos y asociaciones políticas, para su uso propio.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1983)
 V.- En las adquisiciones que hagan las Juntas de Mejoramiento Moral, Cívico y Material, previa autorización del Ayuntamiento respectivo.
-(REFORMADA, P.O. 31 DE DICIEMBRE DE 1999)
-VI.- En las adquisiciones que realicen los trabajadores al servicio de la Federación, Estado o Municipio, independientemente que estén o no sindicalizados, siempre y cuando el inmueble objeto del impuesto vaya a destinarse o se destine a vivienda y no sea propietario o poseedor de otro bien inmueble en el Estado. En los casos de trabajadores casados bajo el régimen de sociedad conyugal, la tarifa especial también operará al 100%.
-En estos casos cubrirán la tarifa referida, en las adquisiciones de terrenos cuyo valor base del Impuesto sea inferior a 7,500 cuotas y en casos de vivienda hasta de 15,000 cuotas, en caso contrario por el valor excedente será cubierto conforme a lo dispuesto por el artículo 28 BIS.
+VI.- (DEROGADA, P.O. 27 DE DICIEMBRE DE 2005)
 (REFORMADA, P.O. 26 DE DICIEMBRE DE 2003)
 VII.- En las adquisiciones realizadas por entes u organismos públicos creados para solucionar el problema de la vivienda y de la tenencia legal de la tierra, y en las adquisiciones realizadas por o con personas sin fines de lucro que lleven a cabo programas concretos, con finalidades y características iguales o similares, así como las personas que resulten directamente beneficiadas con dichos programas, siempre y cuando estas personas no sean propietarias o poseedoras de otro bien inmueble en el Estado y que lo destinen para su habitación.
 VIII.- (DEROGADA, P.O. 26 DE DICIEMBRE DE 2003)
