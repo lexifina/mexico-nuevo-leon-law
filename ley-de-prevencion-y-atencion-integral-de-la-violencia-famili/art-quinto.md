@@ -1,0 +1,1 @@
+Artículo Quinto.- El Consejo Estatal para la Prevención y Atención Integral de la Violencia Familiar en el Estado de Nuevo León, deberá llevar a cabo en los siguientes sesenta días contados a partir de la fecha de su integración, lo necesario para la implementación y desarrollo del registro y los sistemas a que se refiere la presente ley.

@@ -1,0 +1,1 @@
+Artículo Tercero.- El Consejo Estatal para la Prevención y Atención Integral de la Violencia Familiar en el Estado de Nuevo León deberá expedir su reglamento correspondiente en un plazo no mayor de sesenta días siguientes contados a partir de la fecha de instalación del mismo.

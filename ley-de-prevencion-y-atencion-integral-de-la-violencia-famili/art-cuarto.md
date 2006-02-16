@@ -1,0 +1,1 @@
+Artículo Cuarto.- El Consejo Estatal aprobará y expedirá el Programa de Prevención y Atención Integral de la Violencia Familiar en el Estado de Nuevo León, en un plazo no mayor de ciento veinte días siguientes contados a partir de la fecha de su instalación.

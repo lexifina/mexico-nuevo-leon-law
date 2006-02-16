@@ -1,0 +1,1 @@
+Artículo Segundo.- El Consejo Estatal para la Prevención y Atención Integral de la Violencia Familiar en el Estado de Nuevo León previsto en el artículo 4o de esta Ley, deberá quedar instalado en un plazo no mayor de sesenta días siguientes contados a partir de la entrada en vigor de esta Ley.
