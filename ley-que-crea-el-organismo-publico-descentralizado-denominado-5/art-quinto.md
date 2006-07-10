@@ -1,0 +1,1 @@
+Artículo Quinto.- El Organismo, deberá seguir dando cumplimiento al Decreto por el que se declara Zona Protegida con el carácter de Zona Histórica denominada Museo de Sitio de Arqueología Industrial a una superficie de 74.91 hectáreas que perteneció a la antigua Compañía Fundidora de Fierro y Acero de Monterrey, S.A., publicado en el Periódico Oficial del 28 de Febrero del 2001.

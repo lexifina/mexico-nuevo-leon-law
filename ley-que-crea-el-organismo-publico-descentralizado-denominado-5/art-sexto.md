@@ -1,0 +1,1 @@
+Artículo Sexto.- Las obligaciones y derechos derivados de los fideicomisos, arrendamientos, comodatos o de cualquier otra figura jurídica que celebró el Fideicomiso Parque Fundidora, se respetarán en los términos que hayan sido pactados.
