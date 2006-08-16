@@ -1,0 +1,1 @@
+Artículo Cuarto.- Formarán parte del patrimonio del Organismo, todos los bienes y obligaciones que a la entrada en vigor de esta Ley han sido adquiridos para el Instituto del Agua del Estado de Nuevo León como Órgano Administrativo Desconcentrado de Servicios de Agua y Drenaje de Monterrey, I.P.D.

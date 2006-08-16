@@ -1,0 +1,1 @@
+Artículo Sexto.- Los actos jurídicos celebrados por el Instituto del Agua del Estado de Nuevo León como Órgano Administrativo Desconcentrado de Servicios de Agua y Drenaje de Monterrey, I.P.D., continuarán vigentes para todos sus efectos legales, subrogándose los derechos y obligaciones que de ellos deriven, al Organismo que se crea por el presente decreto.
