@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 21 DE JULIO DE 1997)
-Artículo 723 BIS VI.- La sentencia que se emita será apelable en el efecto devolutivo.
+Artículo 723 BIS VI.- (DEROGADO, P.O. 10 DE SEPTIEMBRE DE 2006)

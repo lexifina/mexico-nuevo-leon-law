@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 21 DE JULIO DE 1997)
-Artículo 723 BIS I.- La demanda en que se ejercite cualquier acción de las previstas en el artículo que antecede, reunirá los requisitos señalados en los artículos 612 y 614 de este Código.
+Artículo 723 BIS I.- (DEROGADO, P.O. 10 DE SEPTIEMBRE DE 2006)
