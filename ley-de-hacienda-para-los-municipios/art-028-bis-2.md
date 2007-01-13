@@ -1,12 +1,12 @@
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1981)
 ARTICULO 28 Bis 2.- Para efectos de este impuesto se entiende por adquisición, la que se derive de:
-(REFORMADA, P.O. 31 DE DICIEMBRE DE 1982)
-I.- Todo acto por el que se trasmita la propiedad, incluyendo la donación que no se haga en los términos del Artículo 28 Bis I Fracción XIV, y la aportación a toda clase de asociaciones y sociedades.
-II.- La compra–venta en la que el vendedor se reserve la propiedad, aún cuando la transferencia de ésta opere con posterioridad.
+(REFORMADA, P.O. 13 DE ENERO DE 2007)
+I.- Todo acto por el que se transmita la propiedad, o cualquiera de sus modalidades, incluyendo derechos de copropiedad, así como la aportación a toda clase de asociaciones y sociedades.
+II.- La compra-venta en la que el vendedor se reserve la propiedad, aún cuando la transferencia de ésta opere con posterioridad.
 III.- La promesa de adquirir, cuando se pacte que el futuro comprador entrará en posesión de los bienes o que el futuro vendedor recibirá el precio de la venta o parte de él antes de que se celebre el contrato prometido.
 IV.- La cesión de derechos del comprador o del futuro comprador en los casos de las Fracciones II y III que anteceden.
-(REFORMADA, P.O. 29 DE DICIEMBRE DE 2000)
-V.- Fusión o escisión de sociedades, salvo lo dispuesto en el Código Fiscal del Estado en esta materia.
+(REFORMADA, P.O. 13 DE ENERO DE 2007)
+V.- Fusión y escisión de sociedades. En el caso de escisión no se considera adquisición cuando los accionistas propietarios de las acciones con derecho a voto, de la sociedad escindente y de las escindidas, sean los mismos y con la misma participación, durante un periodo de cinco años posteriores a la fecha en que se realice la escisión; siempre y cuando mantengan la misma participación en el capital.
 VI.- La dación en pago y la liquidación, reducción de capital, pago en especie de remanentes, utilidades o dividendos de asociaciones o sociedades civiles o mercantiles.
 VII.- Constitución de usufructo, transmisión de éste o de la nuda propiedad, así como la extinción del usufructo temporal.
 VIII.- Prescripción positiva.
@@ -19,8 +19,10 @@ XI.- En las adquisiciones, derechos o renta a cualquier plazo, de los lotes en l
 XII.- La realizada a través de la celebración de poderes irrevocables para actos de dominio siempre y cuando el apoderado no lo ejerza en el término de 6 meses.
 (ADICIONADA, P.O. 27 DE DICIEMBRE DE 2002)
 XIII.- La adjudicación mediante laudo laboral.
+(ADICIONADA, P.O. 13 DE ENERO DE 2007)
+XIV.- La que se realiza en la constitución, transmisión o extinción de un derecho real de superficie.
 En las permutas se considerará que se efectúan dos adquisiciones.
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 1990)
 En las adquisiciones efectuadas a través de arrendamiento financiero, cuando el arrendatario ejerza su opción de compra, se considerarán como una sola adquisición las realizadas por la arrendadora y por el arrendatario financieros (sic), siempre que se demuestre que fue cubierto el impuesto correspondiente a la adquisición efectuada por la arrendadora financiera. Consecuentemente, en estos casos no se generará el impuesto a cargo del arrendatario financiero.
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 1994)
-Si el arrendatario financiero se encuentra en los supuestos previstos en el artículo 28 Bis-1, fracciones I a XIV, provisionalmente se aplicará la tarifa especial a la adquisición efectuada por la arrendadora financiera. En caso de que al enajenarse el inmueble por parte de la arrendadora financiera, el adquirente no se encuentre en los supuestos previstos en el precepto jurídico a que hace referencia este párrafo, se cubrirá el impuesto definitivo a cargo tanto de la arrendadora como del adquirente, conforme a lo dispuesto en el artículo 28 Bis y en el párrafo anterior, según sea el caso.
+(REFORMADO, P.O. 13 DE ENERO DE 2007)
+Si el arrendatario financiero se encuentra en los supuestos previstos en el artículo 28 Bis 1, fracciones I a XIV, se aplicará la tarifa especial a la adquisición efectuada por la arrendadora financiera.

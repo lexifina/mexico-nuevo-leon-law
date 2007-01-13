@@ -30,6 +30,8 @@ c) Veteranos de la Revolución, en los términos del Decreto No. 71 expedido por
 d) Personas incapacitadas físicamente para trabajar.
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 2002)
 e) Jubilados y pensionados con ingresos propios, cuyo monto diario no exceda de dos cuotas y media. En este caso únicamente se exigirá para acreditar este supuesto, la credencial o el documento expedido por Institución Oficial correspondiente y el recibo de ingresos respectivo.
+(ADICIONADO, P.O. 13 DE ENERO DE 2007)
+f) Personas de 60 años y de más edad, con ingresos propios cuyo monto no exceda de dos cuotas y media o sin ingresos. En este caso únicamente se exigirá para acreditar este supuesto, la credencial de elector y el recibo de ingresos respectivo en su caso.
 (REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
 Si el valor catastral del predio excede de 7,354 cuotas y no de 14,708 cuotas, se pagará por concepto de impuesto predial anual el doble de tarifa especial.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)

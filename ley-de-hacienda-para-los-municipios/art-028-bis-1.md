@@ -24,8 +24,9 @@ IX.- En las adquisiciones por informaciones ad-perpetuam y sentencias judiciales
 X.- En las adquisiciones, derechos o renta a perpetuidad de los lotes en los panteones municipales.
 (REFORMADA, P.O. 29 DE DICIEMBRE DE 2000)
 XI.- En las adquisiciones de bienes del dominio privado que realicen los Municipios y las entidades paraestatales de los Municipios.
-(REFORMADA, P.O. 26 DE DICIEMBRE DE 2001)
-XII.- En las adquisiciones de viviendas cuyo valor gravable, no exceda de 15 cuotas elevadas al año, siempre que el adquirente sea persona física.
+(REFORMADO PRIMER PARRAFO, P.O. 13 DE ENERO DE 2007)
+XII.- En las adquisiciones de viviendas cuyo valor gravabable (sic), no exceda de 15 cuotas elevadas al año, siempre que el adquiriente sea una persona física y que no sea propietario o poseedor de otro bien inmueble en el Estado.
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
 También se cubrirá la tarifa especial en las adquisiciones de vivienda cuyo valor más alto entre el valor de adquisición y el valor catastral, no exceda de 9,398 cuotas, siempre que el adquirente sea jubilado o pensionado y que no sea propietario o poseedor de otro bien inmueble en el Estado.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1983)
 XIII.- En las adquisiciones que se realicen por causa de muerte.
