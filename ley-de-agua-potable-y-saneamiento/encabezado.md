@@ -1,5 +1,5 @@
 LEY DE AGUA POTABLE Y SANEAMIENTO PARA EL ESTADO DE NUEVO LEON
-Ley publicada en el Periódico Oficial del estado de Nuevo León, el viernes 3 de octubre de 1997.
+Ley publicada en el Periódico Oficial del Estado de Nuevo León, el viernes 3 de octubre de 1997.
 LEY DE AGUA POTABLE Y SANEAMIENTO PARA EL ESTADO DE NUEVO LEON
 BENJAMIN CLARIOND REYES-RETANA, GOBERNADOR DE TRANSICION DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A TODOS SUS HABITANTES HAGO SABER:
 Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
