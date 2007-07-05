@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 3 DE ENERO DEL 2000)
-Artículo 180 Bis IX.- En toda resolución que autorice la separación cautelar de personas o depósito de menores, el Juez ordenará la notificación de la misma a la persona o personas respecto de las cuales se autorizó la separación, decretando también los apercibimientos que sean necesarios a efecto de que tales personas se abstengan de molestar a los sujetos separados así como a sus depositarios o dependientes.
+(REFORMADO, P.O. 4 DE JULIO DE 2007)
+Artículo 180 Bis IX.- En toda resolución que autorice la separación cautelar de personas, el Juez ordenará la notificación de la misma a la persona o personas respecto de las cuales se autorizó la separación, decretando también los apercibimientos que sean necesarios a efecto de que tales personas se abstengan de molestar a los sujetos separados, así como a quienes se ha confiado su custodia, o a sus dependientes.
