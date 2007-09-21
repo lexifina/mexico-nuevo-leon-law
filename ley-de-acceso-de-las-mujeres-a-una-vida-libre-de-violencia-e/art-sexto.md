@@ -1,0 +1,1 @@
+Artículo Sexto.- El Banco Estatal de Datos e Información sobre Casos de Violencia contra las Mujeres, a que se refiere la fracción XX del artículo 33 de esta Ley, deberá integrarse dentro de los 365 días siguientes a la instalación del Sistema.
