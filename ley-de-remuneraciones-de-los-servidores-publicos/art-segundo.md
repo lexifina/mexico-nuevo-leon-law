@@ -1,0 +1,1 @@
+Artículo Segundo.- Dentro de los treinta días de la vigencia de esta Ley, el Congreso del Estado promoverá la integración e instalación del Consejo Ciudadano de Remuneraciones, tomando las providencias necesarias para facilitar dicho proceso.
