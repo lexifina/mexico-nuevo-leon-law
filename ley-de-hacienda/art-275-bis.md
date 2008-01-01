@@ -1,5 +1,5 @@
 (ADICIONADO Y REUBICADO, P.O. 31 DE DICIEMBRE DE 1993)
-ARTICULO 275 Bis. - Por los servicios prestados por la Secretaría de Educación.
+ARTICULO 275 Bis.- Por los servicios prestados por la Secretaría de Educación.
 (REFORMADA, P.O. 29 DE DICIEMBRE DE 2000)
 I.- Constancias de Estudios:
 1. Educación Básica:
