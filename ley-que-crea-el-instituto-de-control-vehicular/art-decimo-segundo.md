@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2007)
+Artículo Décimo Segundo.- Durante el año 2008, los Municipios que se coordinen con el Instituto de Control Vehicular del Estado para la vigilancia en el cumplimiento de las obligaciones en materia de control vehicular, percibirán por concepto de incentivos el equivalente a 0.6 cuotas de lo efectivamente cobrado por vehículo registrado dentro de su jurisdicción, que sean objeto de dicha vigilancia.
