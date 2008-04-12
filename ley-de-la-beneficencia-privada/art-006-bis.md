@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 11 DE ABRIL DE 2008)
+ARTICULO 6o. Bis.- Todo trámite que establezca la presente Ley será competencia, en primera y única instancia, de la Junta de Beneficencia Privada, con excepción de los trámites que se refieran ya sea a la constitución o a la disolución y liquidación de instituciones de beneficencia privada, en éstos únicos dos casos se resolverán en primera instancia ante la Junta y en segunda instancia ante Gobierno del Estado, por conducto de la Secretaría General de Gobierno.
+En éstos últimos casos el Ejecutivo del Estado tendrá un término no mayor de quince días hábiles para resolver. Pasado este término, operará la afirmativa ficta conforme a lo planteado por la Junta de Beneficencia Privada en la solicitud presentada al Ejecutivo.
