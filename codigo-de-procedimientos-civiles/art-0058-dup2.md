@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Articulo 58.- En caso de que el Tribunal Virtual presente evidencia de alteración electrónica no autorizada por el Tribunal Superior de Justicia, el administrador del sistema tomará las medidas pertinentes para impedir tales actos, informando inmediatamente al Tribunal Superior de Justicia quien emitirá las medidas definitivas de protección en el tiempo debido, siendo éste el necesario para su reunión en Pleno, mismas que se informarán a los usuarios a través de correo electrónico.

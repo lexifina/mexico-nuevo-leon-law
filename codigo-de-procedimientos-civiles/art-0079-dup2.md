@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Artículo 79.- Cuando se ordenen medios de comunicación en procesos llevados ante tribunales del Estado, podrán enviarse a través del sistema Tribunal Virtual. Estos documentos serán generados con la información contenida en la base de datos. Cuando se trate de exhortos o despachos se generará un expediente electrónico independiente al juicio de donde se derive.

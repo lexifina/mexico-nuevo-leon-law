@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Artículo 66.- Sólo podrán visualizarse las promociones una vez que haya sido publicado el acuerdo recaído a las mismas. Las resoluciones judiciales y las promociones ligadas a ellas estarán disponibles el mismo día de su publicación, para lo cual se hará una replicación en el sistema para actualizar la información. El administrador del sistema expondrá visiblemente en la página de Internet del Tribunal Virtual la última actualización de los datos para conocimiento de los usuarios.

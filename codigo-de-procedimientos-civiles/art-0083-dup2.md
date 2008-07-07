@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Artículo 83.- El Tribunal Virtual, haciendo uso de la información que se publica en el Boletín Judicial del Estado, proporcionará un servicio denominado "búsqueda por partes", en el cual los usuarios podrán indagar procedimientos con un nombre determinado, donde aparecerán las partes que intervienen, el tipo de procedimiento, el número de expediente y el juzgado en que se encuentra. La información de un expediente en particular podrá denegarse si se ha reservado en los términos del presente título.

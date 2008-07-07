@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Artículo 56.- Deberá informarse a los usuarios la renovación de programas necesarios para el Tribunal Virtual a fin de mantener su efectividad, modernización y su correcto flujo de información. Cuando estos cambios requieran la suspensión del servicio éste será informado cuando menos cinco días hábiles anteriores al cese del funcionamiento, debiendo indicar la duración, así como fecha y hora en que se reanudará el servicio.

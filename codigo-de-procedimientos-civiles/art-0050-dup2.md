@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Artículo 50.- El sistema tendrá cuatro funciones principales: La formación del expediente electrónico a través de la generación de las resoluciones judiciales en el sistema y la digitalización de documentos; la consulta de expedientes electrónicos; la recepción electrónica de promociones o peticiones diversas y la notificación en forma electrónica de las resoluciones judiciales.

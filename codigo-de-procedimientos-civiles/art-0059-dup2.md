@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Articulo 59.- Cuando por medidas de protección, mantenimiento o fallas técnicas se realice una suspensión general no prevista del servicio, el Tribunal Superior de Justicia emitirá los acuerdos necesarios para la realización de actuaciones judiciales por otro medio diverso, los cuales serán publicados en el Boletín Judicial que emite el Poder Judicial del Estado.

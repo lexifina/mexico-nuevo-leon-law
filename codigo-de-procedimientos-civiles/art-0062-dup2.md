@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Artículo 62.- Con la autorización señalada en el artículo anterior, se podrán consultar todos los autos y archivos, existentes en la base de datos del Tribunal Virtual, relacionados con el expediente electrónico respectivo, a través de los módulos que para ello se fijen en la página electrónica. En caso de falta de similitud entre las constancias del expediente físico y el electrónico, prevalecerán las del primero.
+Cuando se trate de una diferencia de carácter técnico relativo a captura de la información, será responsabilidad del administrador del sistema hacer esta corrección, una vez notificado de esa situación.
+Si la diferencia implica la existencia de una resolución judicial distinta en el expediente físico y en el expediente electrónico, se hará del conocimiento del Tribunal Superior de Justicia o al Consejo de la Judicatura, según corresponda, para que se actúe en los términos del artículo 65 de este título.

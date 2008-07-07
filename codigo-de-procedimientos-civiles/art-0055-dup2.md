@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Artículo 55.- Las contraseñas mediante las cuales los usuarios podrán acceder a lo servicios del Tribunal Virtual serán diseñadas por ellos mismos, bajo las instrucciones de los administradores, a través de un código alfanumérico. La responsabilidad del uso de las contraseñas que sean dadas de alta en el sistema serán exclusivamente del usuario por ser su creador y conocedor de las mismas.

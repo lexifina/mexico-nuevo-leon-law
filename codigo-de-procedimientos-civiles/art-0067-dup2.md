@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Artículo 67.- Los jueces o magistrados podrán ordenar la reserva en los juicios cuando a su consideración exista razón fundada para ello en términos de la Ley de Acceso a la Información Pública u otros ordenamientos legales, misma que se hará del conocimiento del administrador del sistema, a fin de que se exprese ese impedimento en los datos del procedimiento. Esto se hará en forma total o parcial, según disposición del juez.

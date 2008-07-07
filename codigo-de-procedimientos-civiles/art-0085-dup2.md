@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Artículo 85.- La información que los tribunales están obligados a entregar al Tribunal Superior de Justicia y al Consejo de la Judicatura conforme al artículo 40 de la Ley Orgánica del Poder Judicial del Estado, se hará pública a través del Tribunal Virtual en lo concerniente a los datos sobre los trámites judiciales, los cuales podrán verificarse remitiéndose a la base de datos para verificar su autenticidad.

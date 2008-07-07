@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Artículo 81.- El Tribunal Virtual generará una lista automática de expedientes que le han sido autorizados a cada usuario para consulta, a efecto de que se simplifique su revisión en la página de Internet. Esta lista se modificará en la medida que los juzgados o salas autoricen o revoquen el acceso a los expedientes electrónicos. De igual manera se dará una opción a los usuarios para que personalmente cancelen de esta lista los expedientes que deseen.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JULIO DE 2008)
+Artículo 70.- Una vez que se ha generado un usuario y contraseña para la consulta de expedientes, se deberá generar una contraseña adicional para enviar promociones electrónicas por medio de la Página del Tribunal Virtual. Esta segunda autorización se hará también por el tribunal que conoce la causa por medio de decreto, a petición escrita del usuario dentro del expediente físico. La autorización para enviar promociones electrónicas sólo la podrá otorgar el tribunal correspondiente.
