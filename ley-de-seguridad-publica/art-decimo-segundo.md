@@ -1,0 +1,1 @@
+Artículo Décimo Segundo.- El Ejecutivo del Estado determinará la factibilidad de reasignación presupuestal dentro del presente ejercicio fiscal para la instalación y funcionamiento del Instituto Estatal de Seguridad Pública.

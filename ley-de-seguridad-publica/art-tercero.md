@@ -1,0 +1,1 @@
+Artículo Tercero.- El Poder Ejecutivo presentará la iniciativa al Congreso del Estado, para la regulación del denominado "Instituto Estatal de Seguridad Pública" en un plazo no mayor de 30 días naturales, contados a partir de la fecha de entrada en vigor de este Decreto.

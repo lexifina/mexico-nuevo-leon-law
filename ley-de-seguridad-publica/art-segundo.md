@@ -1,0 +1,1 @@
+Artículo Segundo.- Se abroga la Ley del Sistema de Seguridad Pública del Estado de Nuevo León, publicada en el Periódico Oficial del Estado el día 24 de Mayo de 1996 y sus reformas, así como cualquiera otra disposición que se oponga al presente Decreto.

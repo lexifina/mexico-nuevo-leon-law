@@ -1,0 +1,1 @@
+Artículo Cuarto.- Hasta en tanto no se expida y entre en vigor la Ley de Instituto Estatal de Seguridad Pública, las atribuciones del mismo establecidas en esta Ley, serán ejercidas por la Secretaría de Seguridad Pública del Estado.

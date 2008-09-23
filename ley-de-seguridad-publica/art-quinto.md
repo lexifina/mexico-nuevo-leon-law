@@ -1,0 +1,1 @@
+Artículo Quinto.- El Congreso del Estado dentro del plazo de 30-treinta días naturales contados a partir de la fecha de la entrada en vigor de este Decreto, deberá expedir la convocatoria a que se refiere el segundo párrafo del Artículo 100 a efecto de nombrar los integrantes del Consejo Ciudadano establecido en la presente Ley.
