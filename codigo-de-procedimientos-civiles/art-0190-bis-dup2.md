@@ -1,2 +1,4 @@
 (ADICIONADO, P.O. 12 DE SEPTIEMBRE DE 2003)
 Artículo 190 Bis II.- Presentada la solicitud de investigación de la filiación, se resolverá de plano sobre su admisión, ordenándose dar vista a la persona a quien se impute la filiación a fin de que comparezca ante la Autoridad dentro del término de tres días, para que manifieste su aceptación o negativa a dicha imputación. Para el caso de que se omita manifestación alguna por parte de la persona requerida, se entenderá como una negativa de la filiación que se le atribuye.
+(REFORMADO [N. DE E. ADICIONADO], P.O. 21 DE ENERO DE 2009)
+Cuando la persona a quien se impute la filiación residiere fuera del lugar del juicio, el juez que conozca del procedimiento ampliará el término a que se refiere el párrafo anterior un día más por cada 100 kilómetros o fracción que exceda de la mitad.
