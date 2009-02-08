@@ -1,0 +1,1 @@
+Artículo 59.- E (sic) l derecho real de superficie forestal deberá constar en Escritura Pública, teniendo la obligación el Notario Público ante quien se celebre el acto, de dar aviso al Registro Nacional Forestal, además de que para que surta efectos contra terceros, tendrá que ser inscrito en el Registro Público de la Propiedad.
