@@ -1,0 +1,4 @@
+P.O. 20 DE FEBRERO DE 2009.
+Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Segundo.- El funcionamiento integral para la aplicación del Título Tercero "Del Procedimiento Oral", de la Ley de Justicia Administrativa para el Estado de Nuevo León, estará supeditado a la suficiencia presupuestal con motivo del requerimiento de ampliación de personal, instalaciones, equipamiento y capacitación. Su aplicación gradual se hará conforme lo determine el Pleno del Tribunal de lo Contencioso Administrativo.
+Tercero.- Los juicios que se encuentren en trámite pendientes de resolución, continuarán su substanciación conforme a las disposiciones vigentes en el momento de su inicio, excepto cuando voluntariamente las partes se sometan a los métodos alternos para la solución de conflictos.
