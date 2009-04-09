@@ -1,0 +1,5 @@
+P.O. 8 DE ABRIL DE 2009.
+Primero.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+Segundo.- El Consejo Estatal para la Promoción de Valores y Cultura de la Legalidad, dentro de un plazo no mayor a noventa días naturales siguientes al de la entrada en vigor del presente Decreto, acordará la fecha de inicio del primer procedimiento para la selección de los personajes que se estimen merecedores del homenaje a que se refiere el presente Decreto.
+Tercero.- El Consejo Estatal para la Promoción de Valores y Cultura de la Legalidad, dentro de un plazo no mayor a noventa días naturales, contados a partir de la entrada en vigor del presente Decreto, deberá aprobar la ubicación y características del Recinto, para su remisión al Ejecutivo del Estado.
+Cuarto.- El Ejecutivo, a través de la Secretaria de Finanzas y Tesorería General del Estado, determinará la reasignación presupuestal que corresponda para la realización del Recinto de los Hombres y Mujeres Ilustres del Estado de Nuevo León dentro del ejercicio fiscal 2009.
