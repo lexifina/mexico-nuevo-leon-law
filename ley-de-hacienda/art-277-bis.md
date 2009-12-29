@@ -6,7 +6,7 @@ a) Tamaño carta0.012 cuotas
 b) Tamaño oficio0.017 cuotas
 (REFORMADA, P.O. 19 DE DICIEMBRE DE 2008)
 II. Copias a color por hoja:
-a) Tamaño carta.0.024cuotas
+a) Tamaño carta.0.024 cuotas
 b) Tamaño oficio.0.034 cuotas
 (ADICIONADA, P.O. 26 DE DICIEMBRE DE 2003)
 III. Copias certificadas por cada documento, sin perjuicio de lo dispuesto en las fracciones anteriores…1 cuota
