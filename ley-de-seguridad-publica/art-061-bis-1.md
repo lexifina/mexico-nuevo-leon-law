@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 61 Bis 1.- Dentro del Sistema Único de Información Criminal se integrará una base estatal de datos de consulta obligatoria en las actividades de las Instituciones de Seguridad Pública, sobre personas remitidas, indiciadas, procesadas o sentenciadas, donde se incluyan su perfil criminológico, medios de identificación, recursos y modos de operación.
+Esta base estatal de datos se actualizará permanentemente y se conformará con la información que aporten las Instituciones de Seguridad Pública, relativa a las investigaciones, procedimientos penales, órdenes de detención y aprehensión, procesos penales, sentencias o ejecución de penas.

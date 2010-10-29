@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 218 Bis.- Las Instituciones Policiales exigirán de sus integrantes el más estricto cumplimiento del deber, a efecto de salvaguardar la integridad y los derechos de las personas, prevenir la comisión de delitos, y preservar las libertades, el orden y la paz públicos.

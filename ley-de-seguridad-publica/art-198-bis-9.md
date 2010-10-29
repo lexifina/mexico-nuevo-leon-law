@@ -1,0 +1,16 @@
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 198 Bis 9.- Son requisitos de permanencia en las Instituciones Policiales:
+I. Cumplir con los requisitos de ingreso;
+II. No ser sujeto de pérdida de confianza:
+III. Cumplir con sus obligaciones, así como con las comisiones que le sean asignadas:
+IV. Aprobar los cursos de formación, capacitación y profesionalización;
+V. Aprobar los procesos de evaluación de control de confianza, los cuales tendrán una vigencia de dos años;
+VI. Aprobar las evaluaciones del desempeño;
+VII. Participar en los procesos de promoción o ascenso que se convoquen, conforme a las disposiciones aplicables;
+VIII. Abstenerse de consumir sustancias psicotrópicas, estupefacientes u otras que produzcan efectos similares;
+IX. No padecer alcoholismo;
+X. Someterse a exámenes para comprobar la ausencia de alcoholismo;
+XI. Someterse a exámenes periódicos o aleatorios para comprobar el no uso de sustancias psicotrópicas, estupefacientes u otras que produzcan efectos similares;
+XII. No estar suspendido o inhabilitado, ni haber sido destituido por resolución firme como servidor público;
+XIII. No ausentarse del servicio sin causa justificada, por un periodo de tres días consecutivos o alternas (sic) dentro de un término de treinta días naturales; y
+XIV. Las demás que establezcan las disposiciones legales aplicables.

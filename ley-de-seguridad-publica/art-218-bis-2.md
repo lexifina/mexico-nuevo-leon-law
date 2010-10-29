@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 218 Bis 2.- Los Integrantes de las Instituciones Policiales, observarán las obligaciones previstas en el artículo 155 de esta Ley y se abstendrán de realizar las conductas a que se refiere el artículo 158 de esta Ley, con independencia de su adscripción orgánica.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 57 Bis 2.- La estadística delictiva describe el desenvolvimiento del delito y de las infracciones administrativas durante un periodo de tiempo determinado. La estadística delictiva geográfica tiene por objeto visualizar de manera automatizada, en mapas digitales e interactivos, los datos, cifras e indicadores que permitan describir el comportamiento delictivo y de infracciones administrativas en un periodo de tiempo determinado, incluyendo su referencia espacial, temporal y su evolución.

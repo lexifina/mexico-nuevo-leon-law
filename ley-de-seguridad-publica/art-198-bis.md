@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 198 Bis.- El servicio policial de carrera es el mecanismo institucional para garantizar la igualdad de oportunidades en el acceso a la administración pública con base en el mérito y con el fin de impulsar el desarrollo de la función pública para beneficio de la sociedad, constituyéndose en un instrumento de profesionalización de la seguridad pública.

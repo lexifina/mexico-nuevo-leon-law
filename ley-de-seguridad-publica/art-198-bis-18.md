@@ -1,0 +1,10 @@
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 198 Bis 18.- Los ascensos se concederán, teniendo en cuenta las circunstancias siguientes:
+l. Perfil y capacidad;
+II. Antigüedad en la corporación;
+III. Conducta;
+IV. Antigüedad como servidor público;
+V. Los resultados de la evaluación del desempeño y de las pruebas de control de confianza;
+VI. Méritos especiales; y
+VII. A través de los cursos de ascenso correspondiente.
+Cuando haya igualdad en las dos primeras, la antigüedad será las que se tomen en cuenta.

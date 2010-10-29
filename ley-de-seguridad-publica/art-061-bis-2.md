@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 61 Bis 2.- Las Instituciones de Procuración de Justicia podrán reservarse la información que ponga en riesgo alguna investigación, conforme a las disposiciones aplicables, pero la proporcionarán al Sistema Único de Información Criminal inmediatamente después que deje de existir tal condición.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 198 Bis 19.- La antigüedad para los elementos se contará desde la fecha en que hayan causado alta en cualquiera de las dependencias, en forma ininterrumpida.

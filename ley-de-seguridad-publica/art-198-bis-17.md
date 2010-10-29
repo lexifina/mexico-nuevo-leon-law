@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 198 Bis 17.- Por ningún motivo se concederán ascensos a los individuos que se encuentren:
+I. Inhabilitados por sentencia judicial ejecutoriada;
+II. Disfrutando de licencia para asuntos particulares;
+III. No aptos para ejercer el cargo motivo de la promoción, considerando los resultados de las evaluaciones aplicadas, en los términos de esta Ley;
+IV. Sujetos a un proceso penal;
+V. Desempeñando un cargo de elección popular; y
+VI. En cualquier otro supuesto previsto en otras Leyes.

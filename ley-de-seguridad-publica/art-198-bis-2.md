@@ -1,0 +1,15 @@
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 198 Bis 2.- La Carrera Policial comprende el grado policial, la antigüedad, las insignias, condecoraciones, estímulos y reconocimientos obtenidos, el resultado de los procesos de promoción, así como el registro de las correcciones disciplinarias y sanciones que, en su caso, haya acumulado el integrante. Se regirá por las normas mínimas siguientes:
+I. Las Instituciones Policiales deberán consultar los antecedentes de cualquier aspirante en el Registro Nacional y en el Registro Estatal, antes de que se autorice su ingreso a las mismas;
+II. Todo aspirante deberá tramitar, obtener y mantener actualizado el Certificado Único Policial, que expedirá el centro de control de confianza del Estado;
+III. Ninguna persona podrá ingresar a las Instituciones Policiales si no ha sido debidamente certificado y registrado en el Sistema;
+IV. Sólo ingresarán y permanecerán en las Instituciones Policiales, aquellos aspirantes e integrantes que cursen y aprueben los programas de formación, capacitación y profesionalización;
+V. La permanencia de los integrantes en las Instituciones Policiales está condicionada al cumplimiento de los requisitos que determine esta Ley y demás disposiciones aplicables;
+VI. Los méritos de los integrantes de las Instituciones Policiales serán evaluados por las instancias encargadas de determinar las promociones y verificar que se cumplan los requisitos de permanencia, señaladas en las leyes respectivas;
+VII. Para la promoción de los integrantes de las Instituciones Policiales se deberán considerar, por lo menos, los resultados obtenidos en los programas de profesionalización, los méritos demostrados en el desempeño de sus funciones y sus aptitudes de mando y liderazgo;
+VIII. Se determinará un régimen de estímulos y previsión social que corresponda a las funciones de los integrantes de las Instituciones Policiales;
+IX. Los integrantes podrán ser cambiados de adscripción, con base en las necesidades del servicio;
+X. El cambio de un Integrante de un área operativa a otra de distinta especialidad, requerirá autorización de la instancia correspondiente; y
+XI. Para cada una de las etapas que comprende la Carrera Policial deberá establecerse su regulación correspondiente.
+La Carrera Policial es independiente de los nombramientos para desempeñar cargos administrativos o de dirección que el integrante llegue a desempeñar en las Instituciones Policiales. En ningún caso habrá inamovilidad en los cargos administrativos y de dirección.
+En términos de las disposiciones aplicables, los titulares de las Instituciones Policiales podrán designar a los integrantes en cargos administrativos o de dirección de la estructura orgánica de las instituciones a su cargo; asimismo, podrán relevarlos libremente, respetando su grado policial y derechos inherentes a la Carrera Policial.

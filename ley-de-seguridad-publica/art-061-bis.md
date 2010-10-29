@@ -1,0 +1,5 @@
+(ADICIONADA CON LOS ARTICULOS QUE LA INTEGRAN, P.O. 28 DE OCTUBRE DE 2010)
+SECCIÓN TERCERA
+DEL SISTEMA ÚNICO DE INFORMACIÓN CRIMINAL
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 61 Bis.- El Estado y los Municipios, serán responsables de integrar y actualizar el Sistema Único de Información Criminal, con la información que generen las Instituciones de Procuración de Justicia e Instituciones Policiales, que coadyuve a salvaguardar la integridad y derechos de las personas, así como preservar las libertades, el orden y la paz públicos, mediante la prevención, persecución y sanción de las infracciones y delitos, así como la reinserción social del delincuente y del adolescente.

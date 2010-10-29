@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
+Artículo 198 Bis 24.- El orden de las categorías jerárquicas y grados tope del personal de la Instituciones Policiales con relación a las tareas operativas y de servicios será:
+l. Para las áreas operativas, de policía a Comisario General; y
+II. Para los servicios, de policía a Comisario Jefe.
