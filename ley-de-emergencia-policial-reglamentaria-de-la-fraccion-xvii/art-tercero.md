@@ -1,0 +1,3 @@
+ARTÍCULO TERCERO.- Los elementos que intervengan en el mando o en las acciones operativas de las corporaciones de policía del Municipio respecto del que se haya hecho la declaratoria, tendrán la obligación de acatar las órdenes que directamente o por conducto de su representante acreditado, transmita el Ejecutivo Estatal en los términos de esta ley.
+El servidor público municipal que incumpla con lo anterior será sujeto a las sanciones penales y administrativas correspondientes.
+Esta obligación permanecerá durante todo el tiempo en que la emergencia subsista y hasta la notificación de la cesación de sus efectos.

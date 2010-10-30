@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- Cuando el Titular del Ejecutivo del Estado juzgue que se ha incurrido en alguna de las hipótesis anteriores, podrá hacer la declaratoria correspondiente, asumiendo de manera inmediata y transitoria la facultad de transmitir órdenes a la policía del Municipio o municipios que correspondan.

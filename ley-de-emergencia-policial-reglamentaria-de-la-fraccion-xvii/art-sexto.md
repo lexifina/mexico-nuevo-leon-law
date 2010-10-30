@@ -1,0 +1,2 @@
+ARTÍCULO SEXTO.- La facultad de emitir la declaratoria corresponde de manera exclusiva e indelegable al Gobernador del Estado. La supervisión y ejecución de sus instrucciones operativas podrá delegarlas en el Secretario General de Gobierno, el Secretario de Seguridad Pública o el servidor público que designe para tal efecto.
+Ésta delegación de facultades operativas debe formar parte de la declaratoria para que surta efectos.

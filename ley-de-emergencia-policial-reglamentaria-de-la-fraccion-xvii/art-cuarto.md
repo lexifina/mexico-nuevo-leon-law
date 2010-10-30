@@ -1,0 +1,2 @@
+ARTÍCULO CUARTO.- El ejercicio de esta prerrogativa será únicamente a iniciativa del Ejecutivo Estatal, en condiciones de emergencia estrictamente eventual, temporal y nunca será motivada por fallas o insuficiencias estructurales, ni podrá incidir permanentemente en las políticas públicas municipales en materia de seguridad pública.
+Cesados los efectos de la declaratoria, la dirección, mando y estrategia del Presidente Municipal permanecerá conservándose autónoma y sin alteración alguna.
