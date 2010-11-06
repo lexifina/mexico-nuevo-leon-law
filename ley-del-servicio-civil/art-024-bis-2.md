@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE NOVIEMBRE DE 2010)
+Art. 24 Bis 2.- La licencia de maternidad se concede independientemente de las vacaciones establecidas o demás días de descanso obligatorio que se estipulen en la Ley. Si el correspondiente período vacacional coincide o queda comprendido dentro de este período, dicho periodo empezará a correr al día siguiente de la fecha en que se concluya la licencia respectiva.

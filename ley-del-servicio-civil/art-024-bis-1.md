@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 5 DE NOVIEMBRE DE 2010)
+Art. 24 Bis 1.- Las mujeres trabajadoras gozarán de licencia de maternidad remunerada de tres meses con el pago de salario íntegro, en caso de que se configure la adopción de un menor de hasta seis meses de edad, surtiendo efectos a partir de que el niño es entregado en patria potestad a su nueva familia.
+En el caso de adopción de un menor de edad que sea mayor a seis meses de edad, las madres adoptantes gozarán de un período de 45 días naturales con el pago de salario íntegro, a partir del momento en que se les otorgue la patria potestad del menor, a fin de garantizar su integración familiar y social.
