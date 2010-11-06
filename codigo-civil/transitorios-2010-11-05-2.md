@@ -1,0 +1,3 @@
+P.O. 5 DE NOVIEMBRE DE 2010.
+DECRETO NUMERO 117, POR EL QUE SE REFORMAN POR MODIFICACION LOS ARTICULOS 649, 666, 667, 669, 670, 671, 672, 675, 677 Y 705 PRIMER PARRAFO, TODOS DEL CODIGO CIVIL PARA EL ESTADO DE NUEVO LEON.
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
