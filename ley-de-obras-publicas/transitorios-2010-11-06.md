@@ -1,0 +1,5 @@
+P.O. 6 DE NOVIEMBRE DE 2010.
+Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Nuevo León.
+Segundo.- Los procedimientos iniciados antes de la entrada en vigor del presente Decreto, continuarán su trámite y conclusión conforme a las disposiciones vigentes en el momento en que se solicitaron.
+Tercero.- En un término que no exceda de ciento veinte días naturales a partir de la entrada en vigor del presente Decreto, el Titular del Ejecutivo del Estado y los Ayuntamientos, en el ámbito de sus respectivas competencias, realizarán las adecuaciones a las disposiciones reglamentarias vinculados con la presente reforma.
+Cuarto.- La SOP y demás dependencias y entidades del Estado que tengan competencia legal en materia de obras públicas, deberán iniciar la operación del Registro a que se refieren los artículos 23 BIS al 23 BIS 5 de esta Ley, en un plazo no mayor a 180 días naturales contados a partir de la entrada en vigor del presente Decreto.

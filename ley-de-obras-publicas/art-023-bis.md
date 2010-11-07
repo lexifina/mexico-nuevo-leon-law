@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE NOVIEMBRE DE 2010)
+Artículo 23 BIS.- La información del registro estatal de contratistas de obras públicas tiene como propósito, entre otros, facilitar los procedimientos de contratación de las dependencias y entidades de la administración pública estatal, y en su caso de los Municipios, sin perjuicio de la presentación de los documentos que se requieran en cualquier procedimiento de licitación o contratación, en términos de la presente Ley y demás disposiciones legales aplicables.
