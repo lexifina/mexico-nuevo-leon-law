@@ -1,0 +1,3 @@
+P.O. 24 DE JULIO DE 2010.
+Primero.- El presente Decreto entrará en vigor a los ciento ochenta días naturales a partir de la fecha de su publicación en el Periódico Oficial del Estado de Nuevo León.
+Segundo.- Las Normas Técnicas Estatales a que se refiere el artículo 20 de la Ley que se reforma, deberán ser publicadas en el Periódico Oficial del Estado de Nuevo León antes de la entrada en vigor del presente Decreto, mientras tanto, las Dependencias, Organismos y demás Autoridades que corresponda, deberán continuar aplicando en todos sus términos y condiciones, el catálogo de secciones de pavimento establecido en dicho artículo.
