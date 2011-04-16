@@ -1,0 +1,8 @@
+LEY QUE CREA LA UNIVERSIDAD DE CIENCIAS DE LA SEGURIDAD DEL ESTADO DE NUEVO LEÓN.
+Ley publicada en el Periódico Oficial del Estado de Nuevo León, el viernes 15 de abril de 2011.
+EL C. RODRIGO MEDINA DE LA CRUZ, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN, A TODOS SUS HABITANTES HAGO SABER: Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
+D E C R E T O
+Núm........ 195
+LEY QUE CREA LA UNIVERSIDAD DE CIENCIAS DE LA SEGURIDAD DEL ESTADO DE NUEVO LEÓN
+Capítulo I
+Disposiciones Generales
