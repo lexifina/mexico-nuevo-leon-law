@@ -1,4 +1,3 @@
-(DEROGADO ULTIMO PARRAFO, P.O. 18 DE MAYO DE 2011)
 (ADICIONADO, P.O. 18 DE MAYO DE 2011)
 ARTICULO 59 Bis.- Por la emisión de la anuencia municipal y en su caso, por la revalidación de la anuencia municipal, en los términos previstos en la Ley para la Prevención y Combate al Abuso del Alcohol y de Regulación para su Venta y Consumo para el Estado de Nuevo León, se cubrirán las siguientes cuotas, excepto en los municipios señalados en el artículo 58 Bis de esta Ley:
 A) Licencias y autorizaciones de cambio de giro o domicilio:

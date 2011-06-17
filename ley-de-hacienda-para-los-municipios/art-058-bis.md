@@ -1,4 +1,3 @@
-(DEROGADO ULTIMO PARRAFO, P.O. 18 DE MAYO DE 2011)
 (ADICIONADO, P.O. 18 DE MAYO DE 2011)
 ARTICULO 58 Bis.- Por la emisión de la anuencia municipal y en su caso, por revalidación anual de la anuencia municipal, en los términos previstos en la Ley para la Prevención y Combate al Abuso del Alcohol y de Regulación para su Venta y Consumo del Estado de Nuevo León, se cubrirán las siguientes cuotas en los municipios de Apodaca, Cadereyta Jiménez, General Escobedo, García, Guadalupe, Juárez, Monterrey, San Nicolás de los Garza, San Pedro Garza García, Santa Catarina y Santiago:
 A) Licencias y autorizaciones de cambio de giro o domicilio:
