@@ -1,7 +1,3 @@
-(ADICIONADO, P.O. 21 DE JUNIO DE 2004)
-ARTÍCULO 36 Bis 2.- Los Jueces de Jurisdicción Concurrente conocerán:
-(REFORMADA, P.O. 12 DE ABRIL DE 2006) (F. DE E., P.O. 16 DE JUNIO DE 2006)
-I. De las controversias que se susciten con motivo del cumplimiento y aplicación de leyes federales, cuando las mismas sólo afecten intereses particulares y que deriven de actos de comercio, sujetos a las leyes mercantiles que no sean competencia de los Juzgados Menores:
-II. (DEROGADA, P.O. 12 DE ABRIL DE 2006)
-III. De la atención y trámite de los exhortos que les dirijan los Jueces de Primera Instancia del Estado, los demás jueces y tribunales de la República; y
-IV. De las demás funciones que les impongan las leyes y otros ordenamientos jurídicos.
+(REFORMADO, P.O. 17 DE JUNIO DE 2011)
+ARTÍCULO 36 Bis 2.- Corresponde a los Jueces del Juicio Oral Penal conocer del juicio oral penal en los casos que establezca el Código de Procedimientos Penales del Estado de Nuevo León.
+El Consejo de la Judicatura del Estado, mediante acuerdos generales determinará los Jueces de Juicio Oral, que funcionarán en el sistema acusatorio y que conocerán del Juicio Oral Penal en los casos que establezca el Código Procesal Penal para el Estado de Nuevo León.

@@ -1,9 +1,8 @@
-(ADICIONADO, P.O. 10 DE SEPTIEMBRE DE 2006)
-ARTÍCULO 36 Bis 3.- Corresponde a los Jueces de Garantías de Adolescentes Infractores, en los términos de la Ley de la materia:
-I.- Aprobar los acuerdos reparatorios del daño o perjuicio;
-II.- Resolver sobre la suspensión del proceso a prueba;
-III.- Resolver sobre el otorgamiento de medidas cautelares;
-IV.- Recabar la declaración preparatoria del adolescente a quien se le impute la comisión de un delito;
-V.- Resolver sobre la vinculación a proceso del adolescente a quien se le impute la comisión de un delito;
-VI.- Resolver sobre la admisión de las pruebas que se desahogarán en la audiencia del juicio; y
-VII.- Ejercer las demás atribuciones que esta Ley o las demás leyes le otorguen.
+(REFORMADO, P.O. 17 DE JUNIO DE 2011)
+ARTÍCULO 36 Bis 3.- Corresponde a los Jueces de Ejecución de Sanciones Penales:
+l. Supervisar que la ejecución de toda pena se aplique de conformidad con la sentencia definitiva que la impuso, salvaguardando la legalidad y demás derechos y garantías que asistan al reo durante la ejecución de la misma;
+II. Modificar el tipo o la duración de la sanción penal impuesta en la sentencia definitiva;
+III. Ordenar la cesación de la pena una vez transcurrido el plazo fijado por la sentencia;
+IV. Atender las quejas que formulen los condenados por sentencia firme sobre actos de la autoridad administrativa que vulneren sus derechos fundamentales;
+V. Visitar los centros de reinserción social, con el fin de cumplir eficazmente con sus atribuciones, y
+VI. Las demás atribuciones que ésta y otras leyes le asignen.

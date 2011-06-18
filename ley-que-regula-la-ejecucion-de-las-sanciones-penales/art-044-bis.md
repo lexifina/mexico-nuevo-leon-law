@@ -1,3 +1,3 @@
-(ADICIONADO [N. DE E. REFORMADO], P.O. 7 DE JULIO DE 2007)
-ARTICULO 44 bis.- Cuando un sentenciado aporte pruebas ciertas, suficientemente valoradas por el juez de la causa, para dictar sentencia condenatoria irrevocable a personas responsables de la comisión de los delitos tipificados en los Artículos 165 bis ó 176 del Código Penal para el Estado de Nuevo León, podrá ofrecérsele la remisión parcial de la pena, desde un tercio hasta la mitad de la privativa de libertad impuesta.
-La autoridad competente, al decidir respecto de la remisión parcial de la pena, tomará en cuenta la gravedad de los delitos cometidos por el sentenciado colaborador.
+(REFORMADO, P.O. 17 DE JUNIO DE 2011)
+ARTICULO 44 Bis.- Cuando un condenado aporte pruebas ciertas, suficientemente valoradas por el Juez de la causa, para dictar sentencia condenatoria irrevocable a personas responsables de la comisión de los delitos tipificados en los Artículos 165 Bis ó 176 del Código Penal para el Estado de Nuevo León, podrá ofrecérsele la remisión parcial de la pena, desde un tercio hasta la mitad de la privativa de libertad impuesta.
+EI Juez de Ejecución, al decidir respecto de la remisión parcial de la pena, tomará en cuenta la gravedad de los delitos cometidos por el condenado colaborador.
