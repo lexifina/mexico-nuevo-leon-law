@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE JULIO DE 2011)
+ARTICULO 10 Bis.- Las dependencias y entidades del Poder Ejecutivo, así como el Poder Judicial y el Poder Legislativo, llevarán a cabo la planeación, el diseño, programación, ejecución y evaluación del presupuesto, en el ámbito de su competencia, con perspectiva de equidad de género, entendiéndose por esto, el enfoque o herramienta que permite identificar y atender el fenómeno de la desigualdad e inequidad entre hombres y mujeres.
