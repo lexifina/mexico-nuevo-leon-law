@@ -1,4 +1,4 @@
-LEY DE EDUCACION DEL ESTADO DE NUEVO LEON
+LEY DE EDUCACIÓN DEL ESTADO DE NUEVO LEÓN
 Ley publicada en el Periódico Oficial del Estado de Nuevo León, el lunes 16 de octubre de 2000.
 EL C. LIC. FERNANDO DE JESUS CANALES CLARIOND, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A TODOS SUS HABITANTES HAGO SABER:
 Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
