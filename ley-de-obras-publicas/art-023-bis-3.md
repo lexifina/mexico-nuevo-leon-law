@@ -7,7 +7,8 @@ III.- Escritura constitutiva, sus modificaciones, y datos de su inscripción en 
 IV.- Relación de Accionistas y nombre de sus representantes legales, así como la información relativa a los documentos que los acrediten como tales y sus datos de inscripción en el Registro Público de la Propiedad y del Comercio;
 V.- Especialidad de la contratista y la información relativa a los contratos de obras o servicios que lo acrediten, actualizado de forma semestral;
 VI.- Experiencia acreditada con contratos de obras públicas o servicios relacionados con las mismas concluidos en tiempo y monto;
-VII.- Información referente a la capacidad técnica, económica y financiera; los recursos económicos se deberán comprobar con la última declaración anual formulada ante la Secretaría de Hacienda y Crédito Público y con el balance correspondiente, que comprenda hasta 60 días naturales anteriores a la fecha de solicitud de concurso, y los recursos financieros a su vez se acreditarán con la presentación de estados financieros auditados;
+(REFORMADA, P.O. 19 DE DICIEMBRE DE 2011)
+VII.- Información referente a la capacidad técnica, económica y financiera; los recursos económicos se deberán comprobar con la última declaración anual formulada ante la Secretaría de Hacienda y Crédito Público o con el balance correspondiente, que comprenda hasta 60 días naturales anteriores a la fecha de solicitud de concurso, y los recursos financieros a su vez se acreditan con la presentación de estados financieros auditados;
 VIII.- Inventario de maquinaria y equipo disponibles;
 IX.- Cédula profesional del responsable técnico y currículum de su experiencia, afín a la especialidad del registro;
 X.- Constancia del Registro Federal de Contribuyentes;
