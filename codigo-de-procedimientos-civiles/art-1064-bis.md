@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2011)
+Artículo 1064 Bis.- En los asuntos mencionados en las fracciones II, III y V del Artículo 989 de este Código, una vez ejecutoriada la sentencia o convenio y no habiéndose logrado su cumplimiento voluntario, se procederá a su ejecución forzosa de acuerdo con lo dispuesto en la Ley Orgánica del Poder Judicial, y conforme a las reglas establecidas en este Código para tal efecto.
