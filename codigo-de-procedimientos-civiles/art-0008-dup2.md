@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 14 DE ENERO DE 2005)
+(REFORMADO PRIMER PÁRRAFO, P.O. 14 DE ENERO DE 2005)
 Artículo 8.- La cita del emplazamiento se enviará al demandado por medio del actuario o del Secretario del juzgado al lugar que el actor designe para ese fin y que podrá ser:
 I.- La habitación del demandado, su despacho, su establecimiento mercantil o su taller;
 (REFORMADA, P.O. 14 DE ENERO DE 2005)

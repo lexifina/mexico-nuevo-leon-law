@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 10 DE SEPTIEMBRE DE 2006)
+(REFORMADO PRIMER PÁRRAFO, P.O. 10 DE SEPTIEMBRE DE 2006)
 Artículo 461 Bis.- Para que sean elevados a la categoría de cosa juzgada o, en su caso, de sentencia ejecutoriada, los convenios o laudos resultantes de los métodos alternos realizados antes del inicio de un procedimiento jurisdiccional para la solución del conflicto, deberán atenderse las siguientes reglas:
 (ADICIONADA, P.O. 14 DE ENERO DE 2005)
 I. Las partes conjunta o separadamente, presentarán el convenio o laudo resultante, con el fin de que se constate que se haya observado lo dispuesto en el presente Código, la ley que regule los métodos alternos de solución de conflictos y demás disposiciones aplicables;

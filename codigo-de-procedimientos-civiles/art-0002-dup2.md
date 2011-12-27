@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 14 DE ENERO DE 2005)
+(REFORMADO PRIMER PÁRRAFO, P.O. 14 DE ENERO DE 2005)
 Artículo 2.- Quedan incluidos en este Título los juicios cuya cuantía no exceda de ciento cincuenta cuotas diarias del salario mínimo general vigente en el lugar del juicio
 Para estimar el interés del negocio se atenderá a lo que el actor demande. Los réditos, daños y perjuicios no serán tenidos en consideración si son posteriores a la presentación de la demanda aún cuando se reclamen en ella.
 (REFORMADO, P.O. 14 DE ENERO DE 2005)

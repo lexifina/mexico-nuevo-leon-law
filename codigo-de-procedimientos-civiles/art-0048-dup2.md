@@ -6,7 +6,8 @@ Contraseña: es una clave elegida por el interesado en el proceso de su registro
 Firma Electrónica: es la información en forma electrónica consignada en un mensaje de datos, adjuntados o lógicamente asociados al mismo por cualquier tecnología, que son utilizados para identificar al firmante en relación con el mensaje y que produce los mismos efectos jurídicos que la firma autógrafa, siendo admisible como prueba en juicio.
 Página Electrónica: son las pantallas de acceso de los sistemas computacionales que mediante Internet pública el Poder Judicial del Estado.
 Acción Electrónica: es cualquier consulta, envío de información o interacción que se realicen en las páginas electrónicas del Tribunal Virtual del Poder Judicial del Estado.
-Notificación Electrónica: proceso mediante el cual se dan a conocer las actuaciones judiciales realizadas en los procesos civiles, familiares y de jurisdicción concurrente a los usuarios del Tribunal Virtual que así lo hayan solicitado.
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2011)
+Notificación Electrónica: proceso mediante el cual se dan a conocer las actuaciones judiciales realizadas en los procesos civiles, familiares y de jurisdicción concurrente a los usuarios del Tribunal Virtual.
 Expediente Electrónico: Es el conjunto de documentos digitalizados, promociones electrónicas y resoluciones realizadas en los sistemas del poder judicial, almacenados en sus bases de datos siendo una copia fiel del expediente físico.
 Administrador: Persona u órgano que conforme a lo indicado en este título es encargado de realizar una función de servicio, control, monitoreo, estadística o de naturaleza análoga, dentro de la estructura del Tribunal Virtual, ya sea de orden administrativo o técnico.
 Servicios: Funciones del Tribunal Virtual que serán determinadas por el administrador del sistema, controlada por él y debidamente identificadas para beneficio de los usuarios.

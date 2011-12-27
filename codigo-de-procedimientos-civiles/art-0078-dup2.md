@@ -1,4 +1,2 @@
-(ADICIONADO, P.O. 7 DE JULIO DE 2008)
-Artículo 78.- La notificación personal a través del Tribunal Virtual se entiende hecha en el mismo día de publicación de las resoluciones, en virtud de que la replicación y actualización de datos se hará el mismo día en los términos del artículo 68 de este título. Lo anterior se tendrá en cuenta para el cómputo de términos judiciales conforme a las leyes aplicables.
-(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 7 DE JULIO DE 2008)
-De los medios de comunicación en el proceso
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2011)
+Artículo 78.- Las notificaciones personales realizadas electrónicamente a través del Tribunal Virtual se tendrán por legalmente practicadas y surtirán sus efectos en los términos de lo previsto por el artículo 76, ubicado en el Capítulo V, Titulo Primero del Libro Primero de este Código. Lo anterior se tendrá en cuenta para el cómputo de términos judiciales conforme a las leyes aplicables.

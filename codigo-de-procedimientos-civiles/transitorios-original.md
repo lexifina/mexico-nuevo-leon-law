@@ -9,7 +9,7 @@ EL GOBERNADOR CONSTITUCIONAL SUBSTITUTO DEL ESTADO.
 LIC. LUIS M. FARIAS.
 EL SECRETARIO GENERAL DE GOBIERNO:
 LIC. ARTURO SUAREZ LUNA.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
 P.O. 1º. DE FEBRERO DE 1975.
 Artículo 1º.- Las presentes reformas entrarán en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
 Articulo 2º.- El actual Presidente del Tribunal Superior de Justicia del Estado, continuará con igual carácter hasta el día primero de octubre de mil novecientos setenta y seis, fecha en la cual se procederá a la elección correspondientes en los términos indicados por esta Ley; lo anterior para efecto de garantizar la continuidad en la aplicación de la presente reforma.

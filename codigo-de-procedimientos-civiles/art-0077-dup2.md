@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 7 DE JULIO DE 2008)
-Artículo 77.- El usuario que esté facultado para oír y recibir notificaciones podrá solicitar por escrito a la autoridad que ejerce jurisdicción que las resoluciones judiciales que ameriten notificación personal se le hagan a través del Tribunal Virtual, señalando al efecto su nombre de usuario.
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2011)
+Artículo 77.- El usuario que solicite la consulta del expediente electrónico por medio del Tribunal Virtual, estará aceptando que todas las notificaciones personales se realicen por vía electrónica, con excepción del emplazamiento y las que impliquen algún mandamiento de ejecución.

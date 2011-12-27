@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 4 DE JULIO DE 2007)
+(REFORMADO PRIMER PÁRRAFO, P.O. 4 DE JULIO DE 2007)
 Artículo 180 Bis II.- La separación cautelar de personas, tiene por objeto tutelar la seguridad de las personas sujetas a violencia familiar. Toda separación cautelar decretada con fundamento en este Capítulo, tendrá un carácter prejudicial y provisional, en los siguientes términos:
 (REFORMADA, P.O. 3 DE ENERO DEL 2000)
 I.- Será autorizada para tutelar la seguridad de las personas receptoras de violencia familiar, en tanto preparan y presentan las acciones legales que correspondan en contra de su agresor;
