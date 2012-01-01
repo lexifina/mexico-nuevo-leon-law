@@ -1,0 +1,3 @@
+P.O. 26 DE DICIEMBRE DE 2011.
+DECRETO NÚMERO 282, POR EL QUE SE REFORMA LA LEY DE HACIENDA DEL ESTADO EN SU ARTÍCULO 159 BIS, PUNTO 3; ASÍ COMO EL ARTÍCULO OCTAVO TRANSITORIO.
+Artículo Único.- El presente Decreto entrará en vigor a partir del día 1° de enero del 2012.
