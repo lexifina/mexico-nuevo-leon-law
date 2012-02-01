@@ -1,5 +1,7 @@
 (ADICIONADO, P.O. 20 DE FEBRERO DE 2009) (F. DE E., P.O. 20 DE MARZO DE 2009)
 Artículo 82 Bis.- La audiencia de pruebas y alegatos deberá celebrarse en la hora y fecha señaladas para tal efecto y únicamente podrá diferirse en los supuestos siguientes:
-I.- Que no se realice la notificación en tiempo para alguna de las partes la notificación del auto que señale la fecha y hora para la celebración de la audiencia y siempre que no esté presente en la misma;
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO PRIMER PÁRRAFO, P.O. 1 DE FEBRERO DE 2012)
+I.- Cuando, en atención a lo establecido en el párrafo segundo del Artículo 35 y por el último párrafo del Artículo 78 de esta Ley, alguna de las partes no sea enterada oportunamente del auto en que se señale la fecha y hora para la celebración de la audiencia, o del auto mediante el cual se pongan a la vista los dictámenes rendidos por los peritos;
 II.- En caso fortuito o de fuerza mayor; y
 III.- Cuando las partes lo soliciten con cuarenta y ocho horas de anticipación siempre y cuando sea por causa grave, plenamente justificada y acordada favorablemente.
