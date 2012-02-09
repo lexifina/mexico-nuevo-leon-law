@@ -1,2 +1,2 @@
 P.O. 13 DE FEBRERO DE 1981.
-UNICO:- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+UNICO:- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
