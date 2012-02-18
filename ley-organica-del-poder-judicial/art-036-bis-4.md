@@ -1,5 +1,5 @@
 (REFORMADO, P.O. 17 DE JUNIO DE 2011)
-ARTÍCULO 36 Bis 4.- Corresponde a los Jueces de Garantías de Adolescentes Infractores, en los términos de la Ley de la materia:
+ARTÍCULO 36 BIS 4.- Corresponde a los Jueces de Garantías de Adolescentes Infractores, en los términos de la Ley de la materia:
 I. Aprobar los acuerdos reparatorios del daño o perjuicio;
 II. Resolver sobre la suspensión del proceso a prueba;
 III. Resolver sobre el otorgamiento de medidas cautelares:

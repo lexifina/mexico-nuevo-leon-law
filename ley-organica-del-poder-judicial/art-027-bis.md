@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 21 DE JUNIO DE 2004)
-ARTÍCULO 27 Bis.- Las atribuciones de los Secretarios Generales de Acuerdos en el Tribunal Superior de Justicia, serán:
+ARTÍCULO 27 BIS.- Las atribuciones de los Secretarios Generales de Acuerdos en el Tribunal Superior de Justicia, serán:
 I. Asistir a todas las sesiones plenarias del área a la que estén asignados;
 II. Transcribir en las actas los acuerdos tomados por el Pleno y recabar las firmas correspondientes, recibir, autorizar con su firma, y en su caso, remitir o turnar a la autoridad correspondiente, los exhortos, rogatorios y despachos para su diligenciación;
 III. Preparar los acuerdos de trámite;

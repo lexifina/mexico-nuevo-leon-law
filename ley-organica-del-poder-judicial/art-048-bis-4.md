@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 17 DE JUNIO DE 2011)
-ARTÍCULO 48 Bis 4.- Serán atribuciones del Presidente de los Juzgados de Juicio Oral Penal Colegiados:
+ARTÍCULO 48 BIS 4.- Serán atribuciones del Presidente de los Juzgados de Juicio Oral Penal Colegiados:
 l. Representar al Juzgado;
 II. Presidir las sesiones del Pleno del Juzgado, dirigir los debates y conservar el orden;
 III. Turnar a los Jueces los asuntos que sean competencia del Juzgado, mediante acuerdo reservado, para que formulen los proyectos de resolución;

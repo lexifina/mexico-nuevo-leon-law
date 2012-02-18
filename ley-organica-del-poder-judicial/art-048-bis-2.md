@@ -1,2 +1,2 @@
 (ADICIONADO, P.O. 17 DE JUNIO DE 2011)
-ARTÍCULO 48 Bis 2.- Las sesiones de los Juzgados de Juicio Oral Penal Colegiados se realizarán en los días y horas que estos establezcan mediante acuerdos generales publicados en sus estrados con al menos veinticuatro horas de anticipación.
+ARTÍCULO 48 BIS 2.- Las sesiones de los Juzgados de Juicio Oral Penal Colegiados se realizarán en los días y horas que estos establezcan mediante acuerdos generales publicados en sus estrados con al menos veinticuatro horas de anticipación.

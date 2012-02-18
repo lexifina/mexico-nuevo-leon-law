@@ -2,7 +2,8 @@ ARTÍCULOS TRANSITORIOS
 ARTÍCULO PRIMERO.- La presente Ley iniciará su vigencia al día siguiente de su publicación en el Periódico Oficial del Estado.
 ARTÍCULO SEGUNDO.- El Consejo de la Judicatura queda facultado para proveer lo necesario para el inmediato cumplimiento de la presente ley en el ámbito de sus atribuciones.
 ARTÍCULO TERCERO.- Se abroga la Ley Orgánica del Poder Judicial del Estado de Nuevo León, publicada en el Periódico Oficial del Estado del día 10 de Enero de 1979.
-ARTÍCULO CUARTO.- Hasta en tanto el Pleno del Tribunal Superior de Justicia determine otra distritación, a propuesta del Consejo de la Judicatura, ésta será la siguiente:
+(REFORMADO PRIMER PÁRRAFO, P.O. 17 DE FEBRERO DE 2012)
+ARTÍCULO CUARTO TRANSITORIO DEL DECRETO 158 DE FECHA 8 DE FEBRERO DE 1999.- Hasta en tanto el Pleno del Consejo de la Judicatura determine otra distritación, a propuesta del Tribunal Superior de Justicia, ésta será la siguiente:
 El Estado se divide en doce Distritos Judiciales; los que conocerán de las materias Civil, Familiar, Penal, y en su caso de Jurisdicción Concurrente, a excepción de aquellos Distritos que se establezcan que son de un ramo. El segundo, tercero y cuarto Distritos Judiciales son del ramo penal, atendiendo a que los Juzgados de lo Civil y Familiar que comprenden estos distritos tienen su cabecera en el municipio de Monterrey y corresponden al primer distrito.
 Cada uno de los distritos comprenderá los siguientes Municipios:
 PRIMER DISTRITO.- Con residencia en la Ciudad de Monterrey:

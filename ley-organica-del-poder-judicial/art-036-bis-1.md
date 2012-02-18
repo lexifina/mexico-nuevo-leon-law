@@ -1,5 +1,5 @@
 (REFORMADO, P.O. 17 DE JUNIO DE 2011)
-ARTÍCULO 36 Bis 1.- Corresponde a los Jueces de Control:
+ARTÍCULO 36 BIS 1.- Corresponde a los Jueces de Control:
 I. Atender al Ministerio Público, en términos de ley, en la investigación de los delitos;
 II. Resolver, en forma inmediata, y por cualquier medio, las solicitudes de medidas cautelares, órdenes de protección precautorias de emergencia y preventivas, así como las técnicas de investigación de la autoridad, que requieran control judicial, garantizando los derechos de los indiciados y de las victimas u ofendidos;
 III. Ejercer el control de detención de imputados puestos a su disposición;

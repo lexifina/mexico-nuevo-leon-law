@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 17 DE JUNIO DE 2011)
-ARTÍCULO 36 Bis 6.- Corresponde a los Jueces de Ejecución de Medidas Sancionadoras de Adolescentes Infractores:
+ARTÍCULO 36 BIS 6.- Corresponde a los Jueces de Ejecución de Medidas Sancionadoras de Adolescentes Infractores:
 I. Controlar que la ejecución de toda medida sancionadora se aplique de conformidad con la sentencia definitiva que la impuso, salvaguardando la legalidad y demás derechos y garantías que asisten al adolescente durante la ejecución de la misma;
 II. Controlar el otorgamiento o denegación de cualquier beneficio relacionado con las medidas sancionadoras;
 III. Ordenar la cesación de la medida sancionadora una vez transcurrido el plazo fijado por la sentencia;

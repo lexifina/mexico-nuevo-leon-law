@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 21 DE JUNIO DE 2004)
-ARTÍCULO 30 Bis 4.- Los Magistrados de las Salas Colegiadas tendrán atribuciones para:
+ARTÍCULO 30 BIS 4.- Los Magistrados de las Salas Colegiadas tendrán atribuciones para:
 I. Concurrir, participar y votar en las sesiones y reuniones a las que sean convocados por el Presidente de la Sala;
 II. Designar al personal de su ponencia observando las disposiciones del Título Séptimo de la presente Ley;
 III. Integrar las Salas, para resolver colegiadamente los asuntos de su competencia;

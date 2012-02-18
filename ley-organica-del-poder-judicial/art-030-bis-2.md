@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 21 DE JUNIO DE 2004)
-ARTÍCULO 30 Bis 2.- Serán atribuciones del Pleno de las Salas Colegiadas:
+ARTÍCULO 30 BIS 2.- Serán atribuciones del Pleno de las Salas Colegiadas:
 I. Elegir de entre sus miembros a su Presidente;
 II. Expedir los acuerdos necesarios para el mejor ejercicio de sus funciones;
 III. Dictar las sentencias que correspondan dentro de los asuntos que sean de su competencia; y

@@ -13,4 +13,4 @@ Por tanto mando se imprima, publique, circule y se le dé el debido cumplimiento
 Constitución y Reformas.
 Monterrey, 16 de diciembre de 1917.
 Nicéforo Zambrano.- J.L. González, Srio.
-N. DE. E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE CONSTITUCION.
+N. DE. E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.

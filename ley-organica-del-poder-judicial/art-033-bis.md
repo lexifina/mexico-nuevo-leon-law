@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 21 DE JUNIO DE 2004)
-ARTÍCULO 33 Bis.- Los Jueces de Primera Instancia, además de las atribuciones que les corresponden por materia, tendrán las siguientes:
+ARTÍCULO 33 BIS.- Los Jueces de Primera Instancia, además de las atribuciones que les corresponden por materia, tendrán las siguientes:
 I. Cumplir y hacer cumplir sin demora y con apego a la ley, los acuerdos y determinaciones que el Tribunal Superior de Justicia, el Consejo de la Judicatura y ellos, emitan;
 II. Dirigir el desarrollo de los procesos, presidir las audiencias de prueba, y tomar la protesta a los testigos, absolventes y en caso necesario, a los peritos;
 III. Remitir al Archivo Judicial los expedientes concluidos;

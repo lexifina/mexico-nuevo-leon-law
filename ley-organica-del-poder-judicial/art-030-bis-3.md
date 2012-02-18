@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 21 DE JUNIO DE 2004)
-ARTÍCULO 30 Bis 3.- Serán atribuciones del Presidente de las Salas Colegiadas:
+ARTÍCULO 30 BIS 3.- Serán atribuciones del Presidente de las Salas Colegiadas:
 I. Representar a la Sala;
 II. Presidir las sesiones del Pleno de la Sala, dirigir los debates y conservar el orden;
 III. Turnar a los Magistrados Instructores los asuntos competencia de la Sala, para que formulen los proyectos de resolución;

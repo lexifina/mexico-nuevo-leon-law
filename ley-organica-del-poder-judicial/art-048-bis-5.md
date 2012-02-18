@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 17 DE JUNIO DE 2011)
-ARTÍCULO 48 Bis 5.- Los Jueces de los Juzgados de Juicio Oral Penal Colegiados tendrán atribuciones para:
+ARTÍCULO 48 BIS 5.- Los Jueces de los Juzgados de Juicio Oral Penal Colegiados tendrán atribuciones para:
 I. Concurrir, participar y votar en las sesiones y reuniones a las que sean convocados por el Presidente del Juzgado;
 II. Designar al personal de su ponencia observando las disposiciones del Titulo Séptimo de la presente Ley;
 III. Integrar los Juzgados, para resolver colegiadamente los asuntos de su competencia;

@@ -1,5 +1,5 @@
 (REFORMADO, P.O. 17 DE JUNIO DE 2011)
-ARTÍCULO 36 Bis 3.- Corresponde a los Jueces de Ejecución de Sanciones Penales:
+ARTÍCULO 36 BIS 3.- Corresponde a los Jueces de Ejecución de Sanciones Penales:
 l. Supervisar que la ejecución de toda pena se aplique de conformidad con la sentencia definitiva que la impuso, salvaguardando la legalidad y demás derechos y garantías que asistan al reo durante la ejecución de la misma;
 II. Modificar el tipo o la duración de la sanción penal impuesta en la sentencia definitiva;
 III. Ordenar la cesación de la pena una vez transcurrido el plazo fijado por la sentencia;
