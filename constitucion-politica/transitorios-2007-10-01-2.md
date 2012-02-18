@@ -1,3 +1,3 @@
 P.O. 1 DE OCTUBRE DE 2007.
-DECRETO NUMERO 148, QUE REFORMA EL ARTICULO 152.
+DECRETO NÚMERO 148, QUE REFORMA EL ARTÍCULO 152.
 Artículo Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
