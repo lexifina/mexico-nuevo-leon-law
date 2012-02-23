@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE FEBRERO DE 2012)
+ARTICULO 40o BIS II.- Las empresas o instituciones del sector público o privado que participen en la formación de aptitudes, capacidades y experiencia de calidad de estudiantes o egresados a través de las prácticas profesionales a que se refiere el Artículo 40 Bis de esta Ley, deberán extender al concluir el periodo de práctica una constancia de terminación, y que además describa las habilidades y capacidades adquiridas por el practicante durante dicho período.
