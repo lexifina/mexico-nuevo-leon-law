@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE ABRIL DE 2012)
+Artículo 27 BIS.- En el caso de establecimientos como casinos, centros de apuestas, salas de sorteos, casas de juego y similares, deberán contar con sus propias unidades internas de respuesta. Asimismo, en dichos establecimientos se deberán realizar, con la asistencia de personal de la Dirección de Protección Civil y de la autoridad municipal, simulacros de evacuación para hacer frente a altos riesgos, emergencias o desastres.
