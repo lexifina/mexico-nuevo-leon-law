@@ -1,0 +1,9 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO
+(ADICIONADO, P.O. 16 DE MAYO DE 2012)
+Art. 323 Bis 5.- Son órdenes de protección preventivas las siguientes:
+I. Retención y guarda de armas de fuego en posesión del agresor. Es aplicable lo anterior a las armas punzantes, cortantes y contundentes y cualquier combinación de las anteriores que, independientemente de su uso, hayan sido empleadas para amenazar o lesionar a la víctima;
+II. Inventario de los bienes muebles e inmuebles de propiedad común, incluyendo los implementos de trabajo de la víctima;
+III. Uso y goce de bienes muebles que se encuentren en el inmueble que sirva de domicilio a la víctima;
+IV. Acceso de autoridades policíacas o de personas que auxilien a la víctima, al domicilio en común de esta última con el agresor, para tomar las pertenencias personales y familiares de la o las víctimas que vivan en el domicilio;
+V. Entrega inmediata de objetos de uso personal y documentos de identidad de la víctima y de sus familiares que vivan en el domicilio; y
+VI. Auxilio policíaco de reacción inmediata a favor de la víctima, con autorización expresa de ingreso al domicilio donde se localice o se encuentre la víctima en el momento de solicitar el auxilio.
