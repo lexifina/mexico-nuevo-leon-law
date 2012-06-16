@@ -1,0 +1,3 @@
+P.O. 15 DE JUNIO DE 2012.
+Primero.- Las reformas al Artículo 287 Bis 2, del Artículo Segundo del presente Decreto, entrarán en vigor al día siguiente al de su publicación en el Periódico Oficial del Estado de Nuevo León.
+Segundo.- Los Artículos 98 Bis a 98 Bis 5; así como la reforma al Artículo 287 Bis 3 señalados en el Artículo Segundo del presente Decreto; así como las demás disposiciones de los Artículos Primero, Segundo y Tercero del presente Decreto, entrarán en vigor cuando inicie la vigencia de las reformas a la Ley Orgánica del Poder Judicial del Estado de Nuevo León, que establece, las atribuciones de las autoridades jurisdiccionales en la materia.
