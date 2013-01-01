@@ -1,7 +1,7 @@
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 2000)
 ARTICULO 15 Bis.- Se entiende que no hay enajenación en los siguientes casos:
 I.- En escisión, siempre que se cumpla con los requisitos siguientes:
-(REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 2002)
+(REFORMADO PRIMER PÁRRAFO, P.O. 27 DE DICIEMBRE DE 2002)
 A).- Que los accionistas propietarios de por lo menos el 51% de las acciones con derecho a voto, de la sociedad escindente y de las escindidas, sean los mismos durante un período de dos años contados a partir del año inmediato anterior a la fecha en que se realice la escisión; siempre y cuando se protocolice la escisión de que se trate, dentro de un período de un año a partir de la fecha en que se llevó a cabo.
 Para determinar el porcentaje del 51% se deberá considerar el total de las acciones con derecho a voto emitidas por la sociedad a la fecha de inicio del periodo, excluyendo las que se consideran colocadas entre el gran público inversionista y que hayan sido enajenadas a través de bolsa de valores autorizada o mercados reconocidos. No se consideran como acciones con derecho a voto, aquéllas que lo tengan limitado y las que en los términos de la Legislación Mercantil se denominen acciones de goce; tratándose de sociedades que no sean por acciones se considerarán las partes sociales en vez de las acciones con derecho a voto, siempre que no lo tengan limitado.
 B).- Que cuando desaparezca una sociedad con motivo de escisión, la sociedad escindente designe a la sociedad que asuma la obligación de registrarse en los padrones de la Secretaría de Finanzas y Tesorería General del Estado.

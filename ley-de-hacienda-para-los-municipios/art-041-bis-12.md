@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1999)
+(REFORMADO PRIMER PÁRRAFO, P.O. 31 DE DICIEMBRE DE 1999)
 ARTICULO 41 Bis 12.- El costo por derramar de una obra pública estará constituido por lo siguiente:
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 1983)
 I.- Importe del Anteproyecto y del Proyecto.

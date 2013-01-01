@@ -1,10 +1,10 @@
-(REFORMADO PRIMER PARRAFO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO PRIMER PÁRRAFO, P.O. 26 DE DICIEMBRE DE 2001)
 ARTICULO 28 Bis 1.- En la adquisición de viviendas cuyo valor gravable no exceda de 25 cuotas elevadas al año y siempre que el adquirente sea persona física y no posea otro bien raíz en el Estado, cubrirá el impuesto aplicando la tasa del 2% al valor del inmueble, después de reducirlo en 15 cuotas elevadas al año. Para efectos de la no-propiedad de predios, bastará que el interesado manifieste bajo protesta de decir verdad que no es propietario o poseedor de otro bien inmueble en el Estado, conservando el Municipio sus facultades de comprobación.
-(REFORMADO PRIMER PARRAFO, P.O. 30 DE DICIEMBRE DE 1998)
+(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE DICIEMBRE DE 1998)
 El Impuesto sobre adquisición de inmuebles se cubrirá a una tarifa única especial por cada inmueble equivalente a 7 cuotas, en los siguientes casos:
 (REFORMADA, P.O. 26 DE DICIEMBRE DE 2003)
 I.- En las adquisiciones realizadas por instituciones de beneficencia privada, constituidas en términos legales, respecto de bienes destinados exclusivamente a sus fines.
-(REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 2002)
+(REFORMADO PRIMER PÁRRAFO, P.O. 27 DE DICIEMBRE DE 2002)
 II.- En las adquisiciones hechas por instituciones públicas de enseñanza y establecimientos de enseñanza propiedad de particulares que tengan autorización o reconocimiento de validez oficial de estudios en los términos de la Ley General de Educación y de la Ley de Educación del Estado, por los bienes destinados exclusivamente a sus fines educativos.
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
 No quedan comprendidos dentro de este beneficio, los predios destinados a usos distintos de aulas, laboratorios o instalaciones similares de dichos planteles educativos. Tratándose de instalaciones deportivas, culturales o de otra índole, no gozarán de este beneficio, en caso de que las mismas sean utilizadas además para la realización de eventos no gratuitos, distintos de los eventos que realice la propia institución educativa con motivo de la práctica de la enseñanza correspondiente.

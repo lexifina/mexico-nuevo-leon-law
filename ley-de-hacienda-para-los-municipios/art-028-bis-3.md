@@ -1,6 +1,6 @@
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1981)
 ARTICULO 28 Bis 3.- En la determinación de este impuesto se deberán seguir las reglas siguientes:
-(REFORMADO PRIMER PARRAFO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO PRIMER PÁRRAFO, P.O. 26 DE DICIEMBRE DE 2001)
 I.- Para efectos de este impuesto, se utilizará el salario mínimo general de la zona económica en donde se encuentre ubicado el inmueble, vigente al momento en que se pague el impuesto.
 (REFORMADO, P.O. 13 DE ENERO DE 2007)
 El Valor Catastral que se utilice para la determinación de este impuesto, será el vigente al momento en que se pague el impuesto.
@@ -12,7 +12,7 @@ Cuando no exista valor de operación, el impuesto se calculará con base en el v
 Para los fines del Impuesto sobre Adquisición de Inmuebles, se considera que el usufructo, la nuda propiedad y el derecho real de superficie tiene un valor, cada uno de ellos del 50% del valor del inmueble.
 (ADICIONADO, P.O. 27 DE DICIEMBRE DE 2005)
 Cuando el valor de operación se pacte en moneda extranjera, el tipo de cambio se determinará al que se indique en el contrato privado o la escritura pública correspondiente, o en su defecto, de acuerdo al que rija el día de firma del contrato, en su caso el día de firma de la escritura, conforme al que se publicó por el Banco de México, en el Diario Oficial de la Federación.
-(REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 2005)
+(REFORMADO PRIMER PÁRRAFO, P.O. 27 DE DICIEMBRE DE 2005)
 III. En las adquisiciones que se hagan constar en escrituras públicas, actas fuera de protocolo o cualquier otro instrumento o contrato en que intervengan los notarios, jueces corredores y demás fedatarios que por disposición legal tengan funciones notariales, calcularán el impuesto bajo su responsabilidad, haciendo constar en la escritura o documento el procedimiento para su cálculo y lo declararán y enterarán mediante la formulación de una nota oficial, conforme al modelo autorizado; la nota declaratoria deberá estar firmada por el fedatario conjuntamente con el contribuyente, debiendo señalarse domicilio común para el efecto de oír y recibir notificaciones en el Municipio donde se ubique el inmueble adquirido. Si se omite el señalamiento del domicilio para recibir notificaciones en los términos señalados en este párrafo, la Tesorería Municipal podrá notificar por estrados las resoluciones respectivas. Si el impuesto es cubierto directamente por el contribuyente, el fedatario hará constar tal circunstancia en la escritura del documento en que intervenga, antes de proceder a autorizar dicho instrumento. En el documento que se presente para su inscripción en el Registro Público de la Propiedad y del Comercio, los fedatarios insertarán los datos del recibo oficial o declaración de pago del impuesto correspondiente.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1988)
 En los demás casos, los contribuyentes pagarán el impuesto mediante la formulación de la nota oficial que presentarán ante la oficina recaudadora correspondiente.

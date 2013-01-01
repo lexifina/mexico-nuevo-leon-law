@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO UNICO DEL DECRETO QUE MODIFICA EL CODIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO ÚNICO DEL DECRETO QUE MODIFICA EL CÓDIGO.
 (REFORMADO, P.O. 17 DE DICIEMBRE DE 2010)
 ARTICULO 33 Bis.- La Administración Pública Estatal, Central y Paraestatal, en ningún caso contratará adquisiciones, arrendamientos, servicios u obra pública con proveedores que:
 I.- Tengan a su cargo créditos fiscales firmes, determinados, que no se encuentren pagados o garantizados en alguna de las formas permitidas por este Código.

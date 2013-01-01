@@ -1,12 +1,12 @@
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1992)
 ARTICULO 52 Bis.- Por los servicios prestados en tramitaciones urbanísticas que se realizan en el Municipio en materia de desarrollo urbano:
-(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1999)
+(REFORMADO PRIMER PÁRRAFO, P.O. 31 DE DICIEMBRE DE 1999)
 I.- Por subdivisiones, parcelaciones, fusiones y relotificaciones, por cada lote o fracción resultante 30 cuotas
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
 Por los predios resultantes de hasta 250 metros cuadrados de superficie y los que se deriven de herencias, si el valor catastral de éstos no excede de 6,378 cuotas, siempre que el propietario sea persona física y no tenga otra propiedad raíz en el Estado o, teniendo una sola, su valor catastral no exceda de 12,755 cuotas, se pagarán por cada lote o fracción resultante 3 cuotas
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
 Por información de factibilidad y lineamientos de los usos de suelo urbanos y de las edificaciones 2 cuotas
-(REFORMADO PRIMER PARRAFO, P.O. 29 DE DICIEMBRE DE 1997)
+(REFORMADO PRIMER PÁRRAFO, P.O. 29 DE DICIEMBRE DE 1997)
 II.- Por inicio de trámite de licencia de uso de suelo o de edificación, por unidad de edificación o vivienda o por superficie de terreno, conforme a la siguiente tarifa:
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
 a) Hasta 100 m2 6 cuotas
@@ -18,7 +18,7 @@ c) Mayor de 250 m2 y hasta 500 m2 18 cuotas
 d) Mayor de 500 m2 y hasta 1,000 m2 24 cuotas
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
 e) Mayor de 1,000 m2 30 cuotas
-(REFORMADO PRIMER PARRAFO, P.O. 29 DE DICIEMBRE DE 1997)
+(REFORMADO PRIMER PÁRRAFO, P.O. 29 DE DICIEMBRE DE 1997)
 III.- Por la licencia de uso de suelo o de edificaciones, por unidad de edificación o vivienda o por superficie de terreno, conforme a la siguiente tarifa:
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
 a) Hasta 100 m2 6 cuotas
@@ -30,7 +30,7 @@ c) Mayor de 250 m2 y hasta 500 m2 18 cuotas
 d) Mayor de 500 m2 y hasta 1,000 m2 24 cuotas
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
 e) Mayor de 1,000 m2 30 cuotas
-(REFORMADO PRIMER PARRAFO, P.O. 29 DE DICIEMBRE DE 1997)
+(REFORMADO PRIMER PÁRRAFO, P.O. 29 DE DICIEMBRE DE 1997)
 Adicionalmente se cubrirá una cantidad complementaria, por metro cuadrado de construcción, excluyendo estacionamientos, conforme a la siguiente tarifa:
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 1999)
 a) Hasta 100 m2 0.08 cuotas

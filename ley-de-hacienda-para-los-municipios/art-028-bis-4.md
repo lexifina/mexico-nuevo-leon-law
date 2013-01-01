@@ -1,6 +1,6 @@
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1983)
 ARTICULO 28 Bis 4.- El pago del impuesto deberá hacerse:
-(REFORMADO PRIMER PARRAFO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO PRIMER PÁRRAFO, P.O. 26 DE DICIEMBRE DE 2001)
 I.- Dentro de los 60 días naturales seguidos a aquél en que:
 a) Se constituya o adquiera el usufructo o la nuda propiedad. En el caso de usufructo temporal, cuando se extinga.
 b) Se cedan los derechos hereditarios o al enajenarse bienes por la sucesión.

@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 27 DE DICIEMBRE DE 1996)
+(REFORMADO PRIMER PÁRRAFO, P.O. 27 DE DICIEMBRE DE 1996)
 ARTICULO 21 Bis 9.- El Impuesto Predial se pagará a una tarifa única especial de 2 cuotas anuales, cuando se trate de los siguientes casos:
 (REFORMADA, P.O. 26 DE DICIEMBRE DE 2003)
 I.- Los Predios destinados a planteles escolares no oficiales donde se imparta enseñanza obligatoria en los términos del Artículo 3°. de la Constitución Política de los Estados Unidos Mexicanos, autorizada por el Gobierno Federal o Estatal y sometida a su vigilancia, incluyendo los planteles que impartan enseñanza universitaria, siempre que el inmueble sea propio.
@@ -18,7 +18,7 @@ VI.- Los predios afectados al patrimonio de familia, en los términos del Códig
 VII.- Los inmuebles propiedad de instituciones de beneficencia privada o de asociaciones con objetivos similares, siempre que dichos inmuebles estén destinados directamente a los fines de las mismas y que en los mismos no se realicen actividades lucrativas o de negocio. No se considerará actividad lucrativa o de negocio, los frutos o productos de los bienes inmuebles de las instituciones o asociaciones que se destinen a los fines de las mismas, siempre que sus informes hayan sido aprobados por la Junta de Beneficencia Privada del Estado.
 (REFORMADA, P.O. 26 DE DICIEMBRE DE 2001)
 VIII.- Los predios pertenecientes a entes u organismos creados por el Gobierno del Estado para solucionar el problema de la vivienda y de la tenencia legal de la tierra; o a las personas que lleven a cabo programas concretos con finalidades y características iguales o similares a las que persigue el fideicomiso denominado "Fomento Metropolitano de Monterrey" respecto de los predios directamente destinados a esos programas; y, predios cuyo valor catastral no exceda de 6,049 cuotas, adquiridos por las personas que resulten directamente beneficiadas con tales programas, siempre que habiten tal inmueble y no sean propietarios o poseedores de otro inmueble en el Estado y que la propiedad o posesión por la que se solicite, esté inscrita en el Registro Público de la Propiedad y del Comercio.
-(REFORMADO PRIMER PARRAFO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO PRIMER PÁRRAFO, P.O. 26 DE DICIEMBRE DE 2001)
 IX.- Los predios cuyo valor catastral no exceda de 7,354 cuotas y pertenezcan a:
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1983)
 a) Huérfanos menores de 18 años.

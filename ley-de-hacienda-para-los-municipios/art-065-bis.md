@@ -1,7 +1,7 @@
 (ADICIONADO CON EL ARTICULO QUE LO INTEGRA, P.O. 29 DE DICIEMBRE DE 1989)
 CAPITULO X
 POR LIMPIA Y RECOLECCION DE DESECHOS INDUSTRIALES Y COMERCIALES
-(REFORMADO PRIMER PARRAFO, P.O. 29 DE DICIEMBRE DE 2000)
+(REFORMADO PRIMER PÁRRAFO, P.O. 29 DE DICIEMBRE DE 2000)
 ARTICULO 65 Bis.- Por el servicio de limpia y recolección de desechos industriales y comerciales, que preste el Municipio, se cobrará por cada inmueble ubicado en el Municipio, por mes:
 (REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
 a) Inmuebles que en promedio generen hasta 5 kilogramos diarios de basura 2 cuotas

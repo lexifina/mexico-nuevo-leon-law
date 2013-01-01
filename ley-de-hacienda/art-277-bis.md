@@ -1,15 +1,11 @@
 (REFORMADO PRIMER PARRAFO, P.O. 19 DE DICIEMBRE DE 2008)
 ARTICULO 277 Bis.- Por la expedición de copias, certificaciones y reproducciones diversas, que expida cualquier autoridad, dependencia, entidad, órgano u organismo, estatal de Nuevo León, se causarán los derechos de acuerdo a las siguientes tarifas:
-(REFORMADA, P.O. 19 DE DICIEMBRE DE 2008)
-I. Copias simples por hoja:
-a) Tamaño carta0.012 cuotas
-b) Tamaño oficio0.017 cuotas
-(REFORMADA, P.O. 19 DE DICIEMBRE DE 2008)
-II. Copias a color por hoja:
-a) Tamaño carta.0.024 cuotas
-b) Tamaño oficio.0.034 cuotas
-(ADICIONADA, P.O. 26 DE DICIEMBRE DE 2003)
-III. Copias certificadas por cada documento, sin perjuicio de lo dispuesto en las fracciones anteriores…1 cuota
+(REFORMADA, P.O. 31 DE DICIEMBRE DE 2012)
+I. Copia simple, tamaño carta u oficio, por hoja ….. 0.018 cuotas
+(REFORMADA, P.O. 31 DE DICIEMBRE DE 2012)
+II. Copia a color, tamaño carta u oficio, por hoja ….. 0.20 cuotas
+(REFORMADA, P.O. 31 DE DICIEMBRE DE 2012)
+III. Copias certificadas por cada documento, sin perjuicio de lo dispuesto en las fracciones anteriores ….. 2 cuotas
 (ADICIONADA, P.O. 26 DE DICIEMBRE DE 2003)
 IV. Copias simples de planos0.43 cuotas
 (ADICIONADA, P.O. 26 DE DICIEMBRE DE 2003)

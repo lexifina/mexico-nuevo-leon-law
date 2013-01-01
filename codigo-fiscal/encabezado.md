@@ -1,4 +1,4 @@
-CODIGO FISCAL DEL ESTADO DE NUEVO LEON
+CÓDIGO FISCAL DEL ESTADO DE NUEVO LEÓN
 Código publicado en el Periódico Oficial del Estado de Nuevo León, el viernes 30 de noviembre de 1984.
 EL CIUDADANO ALFONSO MARTINEZ DOMINGUEZ, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A TODOS SUS HABITANTES HAGO SABER:
 Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
