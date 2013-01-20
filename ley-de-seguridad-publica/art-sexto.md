@@ -1,2 +1,1 @@
-(REFORMADO, P.O. 24 DE JUNIO DE 2009)
-Artículo Sexto.- Se deberá presentar al Congreso en un plazo no mayor a 300-trescientos días naturales contados a partir de la entrada en vigor de este Decreto, las iniciativas de Ley del Servicio Policial de Carrera y de la Ley relativa a la regulación de los Comités de Participación Comunitaria en materia de Seguridad Pública a que se refiere el Artículo 118 de este ordenamiento.
+Artículo Sexto.- (DEROGADO, P.O. 19 DE ENERO DE 2013)

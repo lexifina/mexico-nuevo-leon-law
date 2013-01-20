@@ -1,2 +1,2 @@
 (ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
-Articulo 198 Bis 3.- Dentro del Servicio de Carrera de la Policía sólo se podrá ingresar, permanecer y ascender a la categoría o jerarquía inmediata superior y ser separado, en los términos y las condiciones que establece esta Ley, y el Reglamento correspondiente.
+Articulo 198 Bis 3.- Dentro del Servicio de Carrera de la Policía sólo se podrá ingresar, permanecer y ascender a la categoría jerarquía inmediata superior y ser separado, en los términos y las condiciones que establece esta Ley, y el Reglamento correspondiente.
