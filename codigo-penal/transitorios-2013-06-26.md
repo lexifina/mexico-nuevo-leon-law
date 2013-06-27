@@ -1,0 +1,4 @@
+P.O. 26 DE JUNIO DE 2013
+DECRETO No. 69 POR EL QUE SE DEROGA LA FRACCIÓN X DEL ARTÍCULO 245 Y SE ADICIONA EL TÍTULO VIGÉSIMO INTITULADO "DELITOS CONTRA LA IDENTIDAD PERSONAL", CON UN CAPÍTULO ÚNICO DENOMINADO "SUPLANTACIÓN DE IDENTIDAD, QUE CONTIENE EL ARTÍCULO 444 DEL CÓDIGO PENAL PARA EL ESTADO DE NUEVO LEÓN.
+Artículo Primero.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado de Nuevo León.
+Artículo Segundo.- Los procedimientos penales iniciados antes de la entrada en vigor del presente Decreto, conforme a la fracción X del Artículo 245 del Código Penal para el Estado de Nuevo, se seguirán tramitando hasta su conclusión acorde a las disposiciones vigentes al momento de la comisión de los hechos que les dieron origen. Lo mismo se observará respecto de la ejecución de las penas correspondientes.
