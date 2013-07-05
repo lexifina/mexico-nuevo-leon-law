@@ -1,6 +1,6 @@
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1981)
 ARTICULO 28 Bis 3.- En la determinación de este impuesto se deberán seguir las reglas siguientes:
-(REFORMADO PRIMER PÁRRAFO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO PRIMER PÁRRAFO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 I.- Para efectos de este impuesto, se utilizará el salario mínimo general de la zona económica en donde se encuentre ubicado el inmueble, vigente al momento en que se pague el impuesto.
 (REFORMADO, P.O. 13 DE ENERO DE 2007)
 El Valor Catastral que se utilice para la determinación de este impuesto, será el vigente al momento en que se pague el impuesto.
@@ -25,7 +25,7 @@ Los fedatarios no estarán obligados a enterar el impuesto cuando consignen en e
 IV.- (DEROGADA, P.O. 30 DE DICIEMBRE DE 1991)
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1998)
 El enajenante responde solidariamente del impuesto que deba pagar el adquirente, cesando su responsabilidad desde el momento en que compruebe fehacientemente ante la Tesorería Municipal, mediante los elementos de prueba que ésta exija, que ha recibido el pago total del precio pactado en la operación de enajenación, siempre y cuando la operación se haya elevado a escritura pública.
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 El plazo para computar la extinción de las facultades de las autoridades fiscales a que se refiere el artículo 67 del Código Fiscal del Estado se iniciará a partir de la fecha en que se presente la declaración del impuesto ante la Tesorería Municipal.
 (REFORMADO, P.O. 26 DE DICIEMBRE DE 2003)
 En caso de que no se presente la declaración del impuesto ante la Tesorería Municipal, las facultades de las autoridades fiscales mencionadas en el párrafo anterior, no se extinguirán.

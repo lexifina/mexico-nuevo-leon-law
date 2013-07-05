@@ -1,7 +1,7 @@
 (ADICIONADO, P.O. 18 DE MAYO DE 2011)
 ARTICULO 58 Bis.- Por la emisión de la anuencia municipal y en su caso, por revalidación anual de la anuencia municipal, en los términos previstos en la Ley para la Prevención y Combate al Abuso del Alcohol y de Regulación para su Venta y Consumo del Estado de Nuevo León, se cubrirán las siguientes cuotas en los municipios de Apodaca, Cadereyta Jiménez, General Escobedo, García, Guadalupe, Juárez, Monterrey, San Nicolás de los Garza, San Pedro Garza García, Santa Catarina y Santiago:
 A) Licencias y autorizaciones de cambio de giro o domicilio:
-1.- Estadios de futbol y beisboI, arenas de box, lucha libre, plazas de toros y en general todo lugar donde se realicen actividades deportivas, con capacidad de hasta 15,000 personas, 1,500 cuotas, con capacidad de más de 15,000 personas y hasta 25,000 personas, 2,700 cuotas y con capacidad de más de 25,000 personas, 3,500 cuotas;
+1.- Estadios de futbol y beisbol, arenas de box, lucha libre, plazas de toros y en general todo lugar donde se realicen actividades deportivas, con capacidad de hasta 15,000 personas, 1,500 cuotas, con capacidad de más de 15,000 personas y hasta 25,000 personas, 2,700 cuotas y con capacidad de más de 25,000 personas, 3,500 cuotas;
 2.- Cabarets, centros nocturnos, discotecas, casas y establecimientos de apuestas, lugares públicos de reunión con variedad artística y similares, con un área de atención al público no mayor de 120 metros cuadrados, 2.390 cuotas y con superficie de atención al público mayor a 120 metros cuadrados, 2,825 cuotas;
 3.- Rodeos con capacidad de hasta 1,500 personas, 1,883 cuotas y con capacidad mayor de 1,500 personas, 2,500 cuotas;
 4.- Hoteles y moteles de paso, con servicio de bar y restaurante-bar, 1,500 cuotas;

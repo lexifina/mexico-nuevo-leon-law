@@ -1,12 +1,12 @@
 (ADICIONADO, P.O. 1 DE JULIO DE 2011)
 ARTICULO 18 Bis.- El Estado impulsará la igualdad entre mujeres y hombres a través de la incorporación de la perspectiva de equidad de género en la planeación, diseño, elaboración, ejecución, seguimiento y evaluación del presupuesto a través de las unidades ejecutoras del gasto.
 Los titulares de las dependencias y entidades, serán responsables de que se ejecuten con eficiencia, eficacia, efectividad y perspectiva de equidad de género, las acciones previstas en sus respectivos programas y presupuestos.
-Será obligatorio para todas las unidades administrativas responsables del gasto, la inclusión de programas orientados a promover la igualdad de género en sus presupuestos anuales, con un impacto diferenciado de género.
+Sera obligatorio para todas las unidades administrativas responsables del gasto, la inclusión de programas orientados a promover la igualdad de género en sus presupuestos anuales, con un impacto diferenciado de género.
 La Contraloría y Transparencia Gubernamental, verificará periódicamente los resultados de la ejecución de los programas y presupuestos de las dependencias y de las entidades, en materia de perspectiva de equidad de género.
 Para tal efecto, las unidades responsables del gasto deberán considerar lo siguiente:
 I.- Incorporar en sus programas la perspectiva de equidad de género y reflejarla en sus indicadores;
 II.- Identificar y registrar la población objetivo y la atendida por dichos programas, desagregada por sexo y grupo de edad en los indicadores y en los padrones de beneficiarias y beneficiarios que corresponda;
 III.- Fomentar la perspectiva de equidad de género en el diseño y la ejecución de programas en los que, aún cuando no estén dirigidos a mitigar o solventar desigualdades de género, se pueda identificar de forma diferenciada los beneficios específicos para mujeres y hombres;
 IV.- Establecer o consolidar en los programas bajo su responsabilidad, las metodologías de evaluación y seguimiento que generen información relacionada con indicadores para resultados con perspectiva de equidad de género;
-V.- Aplicar la perspectiva de equidad de género en las evaluaciones de los programas, con los criterios que emitan la Secretaría de Finanzas y Tesorería General del Estado y el Instituto Estatal de las Mujeres; e
+V.- Aplicar la perspectiva de equidad de género en las evaluaciones de los programas, con los criterios que emitan la Secretaria de Finanzas y Tesorería General del Estado y el Instituto Estatal de las Mujeres; e
 VI.- Incluir en sus programas y campañas de comunicación social contenidos que promuevan la igualdad entre mujeres y hombres, la erradicación de la violencia de género, y de roles y estereotipos que fomenten cualquier forma de discriminación. El Instituto Estatal de las Mujeres coadyuvará con las unidades administrativas responsables del gasto de las dependencias y entidades, en el contenido de estos programas y campañas.

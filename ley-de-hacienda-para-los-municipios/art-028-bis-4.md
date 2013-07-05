@@ -1,6 +1,6 @@
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 1983)
 ARTICULO 28 Bis 4.- El pago del impuesto deberá hacerse:
-(REFORMADO PRIMER PÁRRAFO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO PRIMER PÁRRAFO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 I.- Dentro de los 60 días naturales seguidos a aquél en que:
 a) Se constituya o adquiera el usufructo o la nuda propiedad. En el caso de usufructo temporal, cuando se extinga.
 b) Se cedan los derechos hereditarios o al enajenarse bienes por la sucesión.
@@ -17,7 +17,7 @@ Cuando estas operaciones se hayan celebrado respecto de una vivienda o suelo urb
 III.- Dentro de los treinta días siguientes al momento de efectuarse la cesión de derechos, respecto del impuesto a cargo del cedente que se hubiere generado al adquirir sus derechos sobre el inmueble. El cesionario no responderá por este pago.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 1992)
 IV.- En los casos no previstos en las fracciones anteriores, dentro del mes siguiente a aquél en que los contratantes firmen la escritura pública correspondiente, y si no están sujetos a esta formalidad, a partir del momento en que se adquiera el dominio conforme a las leyes.
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 La autoridad fiscal municipal por sí no podrá modificar el valor catastral; sin perjuicio de los demás derechos de fiscalización que aquélla conserva.
 El impuesto se cubrirá en efectivo o mediante cheque certificado ante las oficinas receptoras de las Tesorerías Municipales donde se ubique el bien materia del impuesto o en las instituciones bancarias autorizadas por el Municipio correspondiente, localizadas en la circunscripción territorial del propio Municipio de que se trate. Cuando el pago se efectúe extemporáneamente, no podrá enterarse en instituciones bancarias.
 (REFORMADO, P.O. 13 DE ENERO DE 2007)

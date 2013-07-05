@@ -3,19 +3,19 @@ CAPITULO X
 POR LIMPIA Y RECOLECCION DE DESECHOS INDUSTRIALES Y COMERCIALES
 (REFORMADO PRIMER PÁRRAFO, P.O. 29 DE DICIEMBRE DE 2000)
 ARTICULO 65 Bis.- Por el servicio de limpia y recolección de desechos industriales y comerciales, que preste el Municipio, se cobrará por cada inmueble ubicado en el Municipio, por mes:
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 a) Inmuebles que en promedio generen hasta 5 kilogramos diarios de basura 2 cuotas
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 b) Inmuebles que en promedio generen más de 5 Kilogramos y hasta 10 kilogramos diarios de basura 4 cuotas
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 c) Inmuebles que en promedio generen más de 10 kilogramos y hasta 25 kilogramos diarios de basura 6 cuotas
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 d) Inmuebles que en promedio generen más de 25 kilogramos y hasta 50 kilogramos diarios de basura 14 cuotas
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 e) Inmuebles que en promedio generen más de 50 kilogramos y hasta 100 kilogramos diarios de basura 25 cuotas
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 f) Inmuebles que en promedio generen más de 100 kilogramos y hasta 200 kilogramos diarios de basura 48 cuotas
-(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001)
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 g) Inmuebles que en promedio generen más de 200 kilogramos de basura o el equivalente a tres metros cúbicos diarios, se cobrarán 48 cuotas más 0.50 cuotas por cada 5 kilogramos adicionales de basura o fracción que se generen.
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 2002)
 Estarán exentos del pago de esta contribución en los casos de casas-habitación, excepto cuando se trate de basura y desechos de jardín que excedan de 3 metros cúbicos, en cuyo caso se cubrirán por el excedente 2 cuotas por cada metro cúbico o fracción de materia recolectada, así como cuando el particular haya contratado este servicio con algún organismo público descentralizado o con un particular autorizado por el Municipio para la prestación de este servicio.
