@@ -49,3 +49,5 @@ Para la aplicación de los derechos previstos en este Articulo, cuando en un est
 Si algún expendio de bebidas alcohólicas no encuadra especificamente en la clasificación contenida en este Artículo, se equiparará a la que por sus características le sea más semejante.
 Se entiende por área de exposición al público, la totalidad de piso de venta o consumo a que tiene acceso el público, en un determinado establecimiento.
 Los derechos previstos en este Artículo, serán aplicables únicamente a los establecimientos en los que se consuman o expendan bebidas alcohólicas total o parcialmente al público en general.
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2013)
+Los montos de las cuotas señaladas en el inciso A) de este artículo se incrementarán en un 20% en los Municipios cuyos Ayuntamientos hayan acordado la ampliación de horario conforme lo establecido en el segundo párrafo del artículo 21 de la Ley para la Prevención y combate al abuso del alcohol y de Regulación para su Venta y Consumo para el Estado de Nuevo León.

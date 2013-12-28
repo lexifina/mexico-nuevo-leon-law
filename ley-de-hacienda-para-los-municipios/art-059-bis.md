@@ -42,3 +42,5 @@ En los casos señalados en los numerales 1 y 2 del inciso B), en ningún caso la
 Para la aplicación de los derechos previstos en este articulo, cuando en un establecimiento existan varios giros, se pagarán los derechos correspondientes para cada uno de ellos.
 Si algún expendio de bebidas alcohólicas no encuadra específicamente en la clasificación contenida en este articulo, se equiparará a la que por sus características le sea más semejante.
 Se entiende por área de exposición al público, la totalidad de piso de venta a que tiene acceso el público, en un determinado establecimiento.
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2013)
+Los montos de las cuotas señaladas en el inciso A) de este artículo se incrementarán en un 20% en los Municipios cuyos Ayuntamientos hayan acordado la ampliación de horario conforme lo establecido en el segundo párrafo del artículo 21 de la Ley para la Prevención y combate al abuso del alcohol y de Regulación para su Venta y Consumo para el Estado de Nuevo León.
