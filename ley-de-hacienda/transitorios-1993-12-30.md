@@ -1,6 +1,6 @@
 P.O. 30 DE DICIEMBRE DE 1993.
 ARTICULO UNICO.- El presente Decreto entrará en vigor el día 1o. de Enero de 1994.
-N. DE E. POR CONSIDERARLO IMPORTANTE SE TRANSCRIBE EL ARTICULO QUINTO DEL DECRETO NUM. 340.
+N. DE E. POR CONSIDERARLO IMPORTANTE SE TRANSCRIBE EL ARTÍCULO QUINTO DEL DECRETO NUM. 340.
 ARTICULO QUINTO.- Mientras esté en vigor la coordinación en derechos entre la Federación y el Estado, en los términos previstos por la Ley de Coordinación Fiscal, no se mantendrán en vigor derechos estatales y municipales por:
 I.- Licencias, anuencias previas al otorgamiento de las mismas, en general concesiones, permisos o autorizaciones, o bien obligaciones y requisitos que condicionen el ejercicio de actividades comerciales o industriales y de prestación de servicios. Así mismo, los que resulten como consecuencia de permitir o tolerar excepciones a una disposición administrativa tales como la ampliación de horario, con excepción de las siguientes:
 a) Licencias de construcción.

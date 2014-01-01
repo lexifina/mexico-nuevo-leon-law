@@ -1,4 +1,4 @@
-(REFORMADO PRIMER PARRAFO, P.O. 19 DE DICIEMBRE DE 2008)
+(REFORMADO PRIMER PÁRRAFO, P.O. 19 DE DICIEMBRE DE 2008)
 ARTICULO 277 Bis.- Por la expedición de copias, certificaciones y reproducciones diversas, que expida cualquier autoridad, dependencia, entidad, órgano u organismo, estatal de Nuevo León, se causarán los derechos de acuerdo a las siguientes tarifas:
 (REFORMADA, P.O. 31 DE DICIEMBRE DE 2012)
 I. Copia simple, tamaño carta u oficio, por hoja ….. 0.018 cuotas

@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO UNICO DEL DECRETO QUE MODIFICA LA LEY.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO ÚNICO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 17 DE DICIEMBRE DE 2010)
 ARTICULO 276 Bis.- Por los servicios prestados por la Secretaría de Desarrollo Sustentable, se causarán los siguientes derechos:
 ConceptoTARIFA
@@ -52,6 +52,6 @@ Anual95 cuotas
 d) Evaluación de la factibilidad de
 aprovechamiento de recursos minerales
 no reservados a la Federación72 cuotas
-(REFORMADA SU DENOMINACION, P.O. 31 DE DICIEMBRE DE 1993)
+(REFORMADA SU DENOMINACIÓN, P.O. 31 DE DICIEMBRE DE 1993)
 CAPITULO SEPTIMO
 De los Derechos por Servicios Prestados por Diversas Dependencias y Entidades de los Poderes Legislativo, Ejecutivo y Judicial

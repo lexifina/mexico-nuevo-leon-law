@@ -29,7 +29,7 @@ f) Certificados de estudios, de actas de examen profesional y transcripciones de
 g) Constancias de Servicio Social de escuelas desaparecidas ….. 1.5 cuotas
 5. Ejercicio Profesional:
 a) Trámite de Cédula Profesional, así como Autorización para el ejercicio de especialidad, por cada trámite ….. 5 cuotas
-N. DE E. EN RELACION CON LA VIGENCIA DE LOS DERECHOS CONTENIDOS EN LA PRESENTE FRACCION, VER ARTICULO CUARTO TRANSITORIO DE LA LEY DE INGRESOS DEL ESTADO DE NUEVO LEON, P.O. 13 DE ENERO DE 2007.
+N. DE E. EN RELACIÓN CON LA VIGENCIA DE LOS DERECHOS CONTENIDOS EN LA PRESENTE FRACCIÓN, VER ARTÍCULO CUARTO TRANSITORIO DE LA LEY DE INGRESOS DEL ESTADO DE NUEVO LEÓN, P.O. 13 DE ENERO DE 2007.
 II.- Instituciones Educativas:
 1.- Por el inicio de trámite de incorporación, entrega de folleto-instructivo, por nivel específico y de paquete de formularios para el trámite N$80.00
 2.- Por los estudios y análisis de los siguientes programas oficiales:
@@ -68,6 +68,6 @@ d) Cambio de representante legal N$400.00
 e) Cambio de personal docente N$400.00
 f) Cambio de persona física a personal moral N$1,000.00
 Los derechos de refrendo anual a que se refiere este artículo deberán cubrirse durante el mes de Marzo de cada año.
-(REUBICADO [N. DE E. ANTES CAPITULO CUARTO] Y REFORMADA SU DENOMINACION, P.O. 31 DE DICIEMBRE DE 1993)
+(REUBICADO [N. DE E. ANTES CAPÍTULO CUARTO] Y REFORMADA SU DENOMINACIÓN, P.O. 31 DE DICIEMBRE DE 1993)
 CAPITULO QUINTO
 De los Derechos por Servicios Prestados por la Secretaría de Finanzas y Tesorería General
