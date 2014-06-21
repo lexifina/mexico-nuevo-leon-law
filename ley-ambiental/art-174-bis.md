@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE JUNIO DE 2014)
+Artículo 174 Bis.- Las bolsas de plástico que se entreguen a título gratuito, de manera onerosa o con motivo de cualquier acto comercial, para transportación, carga o traslado al consumidor final, deberán cumplir con los criterios y normas de producción y consumo sustentable señalados en el reglamento u ordenamientos administrativos respectivos, conforme a lo establecido en la fracción XI del Artículo 7 de la presente Ley.
