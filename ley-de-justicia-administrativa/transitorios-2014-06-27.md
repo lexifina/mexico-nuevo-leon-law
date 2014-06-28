@@ -1,7 +1,8 @@
 P.O. 27 DE JUNIO DE 2014.
 Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
 Segundo.- La operación de lo dispuesto en el artículo 102, relativo a la implementación de la oralidad en los juicios contenciosos administrativos, se aplicará de manera gradual y sucesiva considerando como factor el tipo de actos administrativos impugnados, conforme a las siguientes reglas:
-I. A partir del día siguiente al de la publicación del presente Decreto en el Periódico Oficial del Estado, iniciará la operación del procedimiento oral en los juicios contenciosos administrativos que versen sobre:
+(F. DE E. 28 DE JUNIO DE 2014)
+I. A partir de los 90 días naturales siguientes al de la publicación del presente Decreto en el Periódico Oficial del Estado, iniciará la operación del procedimiento oral en los juicios contenciosos administrativos que versen sobre:
 1. Fracción V del Artículo 17 de la Ley de Justicia Administrativa para el Estado y Municipios de Nuevo León.
 2. Fracción VIII del Artículo 17 de la Ley de Justicia Administrativa para el Estado y Municipios de Nuevo León.
 II. A partir de los noventa días naturales siguientes al de la publicación del presente Decreto en el Periódico Oficial del Estado, iniciará la operación del procedimiento oral en los juicios contenciosos administrativos que versen sobre los asuntos que se refieren en el artículo 17, fracción III de la Ley de Justicia Administrativa para el Estado y Municipios de Nuevo León.
