@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE OCTUBRE DE 2014)
+Artículo 21 Bis. Posteriormente, la mencionada autoridad municipal notificará a la autoridad estatal competente en materia de expedición de licencias, sobre la resolución definitiva y en su caso le remitirá la licencia retenida, a fin de que ésta efectúe las anotaciones correspondientes en la Base de Datos donde se registren dichas sanciones, así como su cumplimiento, lo cual deberá tomarse en cuenta para determinar la reincidencia.
