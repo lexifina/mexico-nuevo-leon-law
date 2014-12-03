@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE DICIEMBRE DE 2014)
+Artículo 211 Bis 1.- La formulación de la denuncia, así como los acuerdos, resoluciones y recomendaciones que emita la autoridad estatal ambiental, no afectarán el ejercicio de otros derechos o medios de defensa que pudieran corresponder a los afectados conforme a las disposiciones jurídicas aplicables, no suspenderán ni interrumpirán sus plazos preclusivos, de prescripción o de caducidad.
