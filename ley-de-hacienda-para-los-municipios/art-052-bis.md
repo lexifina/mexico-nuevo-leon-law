@@ -69,7 +69,7 @@ C.- Lotes con superficie mayor de 300 m2 0.172 cuotas
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 1999)
 4.- Campestres ubicados en el resto del Estado 0.007 cuotas
 (REFORMADO, P.O. 13 DE ENERO DE 2007)
-5.- Otros ubicados en los municipios de Apodaca, Escobedo, García Guadalupe (sic), Juárez, Monterrey, San Nicolás de los Garza, San Pedro Garza García, Santiago y Santa Catarina 0.107 cuotas
+5.- Otros ubicados en los municipios de Apodaca, Escobedo, García Guadalupe, Juárez, Monterrey, San Nicolás de los Garza, San Pedro Garza García, Santiago y Santa Catarina 0.107 cuotas
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 1999)
 6.- Otros ubicados en el resto del Estado 0.007 cuotas
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996)
