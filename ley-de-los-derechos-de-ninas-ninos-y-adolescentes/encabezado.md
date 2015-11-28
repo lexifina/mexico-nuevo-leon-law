@@ -1,0 +1,5 @@
+LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES PARA EL ESTADO DE NUEVO LEÓN
+Ley publicada en la Sección Tercera del Periódico Oficial del Estado de Nuevo León, el viernes 27 de noviembre de 2015.
+JAIME HELIODORO RODRÍGUEZ CALDERÓN, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN, A TODOS SUS HABITANTES HAGO SABER: Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
+D E C R E T O
+Núm........ 017
