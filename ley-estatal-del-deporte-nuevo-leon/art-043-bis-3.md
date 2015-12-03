@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE DICIEMBRE DE 2015)
+Artículo 43 Bis 3.- La Charrería será considerada como parte del patrimonio cultural deportivo del Estado y sus municipios, y en el ámbito de sus competencias deberán preservarla, apoyarla, promoverla, fomentarla y estimularla, celebrando convenios de coordinación y colaboración entre ellos y con las Asociaciones Deportivas, Estatales y Municipales correspondientes.

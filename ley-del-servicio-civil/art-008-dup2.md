@@ -10,4 +10,4 @@ Por tanto mando se imprima, publique, circule y se le dé el debido cumplimiento
 Dado en el Despacho del Poder Ejecutivo en Monterrey, Nuevo León, a los cinco días del mes de junio de mil novecientos cuarenta y ocho.
 El Gobernador Constitucional del Estado.- LIC. ARTURO B. DE LA GARZA Y GARZA.
 El Secretario General de Gobierno.- LIC. JESUS C. TREVIÑO.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
