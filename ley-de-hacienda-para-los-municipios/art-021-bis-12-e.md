@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2015)
+ARTICULO 21 Bis 12-E.- Los Municipios podrán celebrar con empresas y/o particulares convenios para la compra-venta de los materiales a reciclar o reusar, el comprador de los materiales de conformidad a los valores de mercado, al momento de la transacción expedirá por cada operación comprobante de pago, este se hará efectivo al presentarlo en las oficinas recaudadoras del Municipio correspondiente.
+Derivado de las operaciones señaladas en el párrafo anterior, las empresas y/o particulares convenidos para la compra de materiales, deberán depositar a favor del Municipio, la misma cantidad de dinero señalada en los comprobantes de pago expedidos a los contribuyentes y acorde a lo estipulado en el convenio.

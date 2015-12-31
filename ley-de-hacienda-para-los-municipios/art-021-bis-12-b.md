@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2015)
+ARTICULO 21 Bis 12-B.- El impuesto predial podrá ser pagado total o parcialmente en dinero o en especie, siempre y cuando el bien o bienes entregados al Municipio con el objetivo de saldar el adeudo de dicho impuesto, tenga como finalidad el fomento a la protección del medio ambiente mediante materiales que puedan ser reciclados o reusados, de conformidad con el listado de materiales que establezca cada Municipio y que deberán publicar en el Periódico Oficial del Estado de Nuevo León.
