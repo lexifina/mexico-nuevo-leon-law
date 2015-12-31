@@ -1,7 +1,7 @@
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 1981)
 ARTICULO 28 Bis 2.- Para efectos de este impuesto se entiende por adquisición, la que se derive de:
 (REFORMADA, P.O. 13 DE ENERO DE 2007)
-I.- Todo acto por el que se transmita la propiedad, o cualquiera de sus modalidades, incluyendo derechos de copropiedad, así como la aportación a toda clase de asociaciones y sociedades.
+I.- Todo acto por el que se trasmitan la propiedad, o cualquiera de sus modalidades, incluyendo derechos de copropiedad, así como la aportación a toda clase de asociaciones y sociedades.
 II.- La compra-venta en la que el vendedor se reserve la propiedad, aún cuando la transferencia de ésta opere con posterioridad.
 III.- La promesa de adquirir, cuando se pacte que el futuro comprador entrará en posesión de los bienes o que el futuro vendedor recibirá el precio de la venta o parte de él antes de que se celebre el contrato prometido.
 IV.- La cesión de derechos del comprador o del futuro comprador en los casos de las Fracciones II y III que anteceden.
