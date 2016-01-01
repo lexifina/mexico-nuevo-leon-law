@@ -6,4 +6,9 @@ I.- Huelga, a partir de su estallamiento y hasta su levantamiento.
 II.- Fallecimiento del contribuyente, hasta en tanto se designe al representante legal de la sucesión.
 III.- Cuando el contribuyente cambie su domicilio fiscal sin haber presentado el aviso correspondiente, o cuando no se le localice en el que haya señalado.
 IV.- Interposición de algún medio de defensa contra los actos o actividades motivo de la revisión, dichos plazos se suspenderán desde la fecha en que se interponga el medio de defensa hasta que se dicte su resolución definitiva.
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
+V.- Cuando el contribuyente no atienda el requerimiento de datos, informes o documentos solicitados por las autoridades fiscales para verificar el cumplimiento de sus obligaciones fiscales, durante el periodo que transcurra entre el día del vencimiento del plazo otorgado en el requerimiento y hasta el día en que conteste o atienda el requerimiento, sin que la suspensión pueda exceder de seis meses. En el caso de dos o más solicitudes de información, se sumarán los distintos periodos de suspensión y en ningún caso el periodo de suspensión podrá exceder de un año.
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
+VI.- Tratándose de la fracción VII del artículo anterior, el plazo se suspenderá a partir de que la autoridad informe al contribuyente la reposición del procedimiento.
+Dicha suspensión no podrá exceder de un plazo de dos meses contados a partir de que la autoridad notifique al contribuyente la reposición del procedimiento.
 Cuando las autoridades no concluyan la visita o revisión dentro de los plazos autorizados, las facultades de comprobación se entenderán concluidas a su vencimiento, quedando a salvo las facultades de las autoridades para determinar la situación fiscal del contribuyente o responsable solidario con base en la verificación realizada dentro del plazo autorizado.
