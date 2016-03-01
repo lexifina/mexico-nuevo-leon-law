@@ -1,0 +1,3 @@
+P.O. 29 DE FEBRERO DE 2016.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 076. SE REFORMA POR MODIFICACIÓN LAS FRACCIONES VII Y VIII; Y POR ADICIÓN DE UNA FRACCIÓN IX (SIC) ARTÍCULO 6 DE LA LEY QUE CREA LA UNIVERSIDAD TECNOLÓGICA DE CADEREYTA".]
+Único.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
