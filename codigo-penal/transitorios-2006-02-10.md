@@ -1,6 +1,0 @@
-P.O. 10 DE FEBRERO DE 2006.
-Artículo Primero.- El presente Decreto entrara en vigor el día siguiente de su publicación en el Periódico Oficial del Estado.
-Artículo Segundo.- El artículo 22 fracción XVII de la Ley Orgánica de la Administración Pública para el Estado de Nuevo León entrará en vigor el día 15 de febrero de 2006.
-Artículo Tercero.- El Ejecutivo del Estado y las autoridades municipales en el ámbito de su competencia, deberán expedir, en un término que no exceda de noventa días contados a partir de la entrada en vigor del presente decreto, las disposiciones reglamentarias que regulen el servicio comunitario.
-Artículo Cuarto.- El Ejecutivo del Estado deberá expedir en un plazo no mayor a 90 días hábiles contados a partir de la entrada en vigor del presente Decreto el Reglamento del Consejo Estatal de Salud, en el cual deberá regularse las funciones del Consejo y sus Comisiones, así como la integración de estas.
-Artículo Quinto.- Se concede a las personas físicas y morales que transporten con fines comerciales bebidas alcohólicas dentro del Estado de Nuevo León, un plazo de 60 días hábiles a partir de la entrada en vigor del presente decreto, para obtener la Autorización de Transporte de Bebidas Alcohólicas expedida por la Secretaria de Salud, en los términos de las disposiciones de este Decreto.

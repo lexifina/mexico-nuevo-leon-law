@@ -1,5 +1,0 @@
-P.O. 28 DE JULIO DE 2004.
-Artículo Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
-Artículo Segundo.- Las disposiciones referentes al procedimiento abreviado, la suspensión del procedimiento de preparación de la acción penal, la suspensión del procedimiento a prueba del procesado y la mediación y conciliación penal, entrarán en vigor a los 30 días siguientes a la publicación del presente Decreto.
-Artículo Tercero.- Las disposiciones del Juicio Oral Penal entrarán en vigor dentro de los 120 días siguientes a la publicación de este Decreto, previo acuerdo expedido por el Consejo de la Judicatura del Estado y publicado en su Órgano de difusión así como en el Periódico Oficial del Estado.
-Artículo Cuarto.- Los procedimientos que en cualquier instancia estén en trámite al iniciar la vigencia de este Decreto, se tramitarán con las disposiciones de carácter general que estuvieran vigentes al momento del inicio de dichos procedimientos.
