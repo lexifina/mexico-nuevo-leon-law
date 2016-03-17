@@ -1,3 +1,0 @@
-(ADICIONADO, B.O. 11 DE MARZO DE 2008)
-Artículo 36 Bis.- En la emisión de valores, las Entidades Públicas o en su caso, los fiduciarios de los fideicomisos a que se refiere el presente Capítulo, podrán constituir garantías, esquemas financieros o contratar a aseguradoras financieras y cualesquiera otras personas que otorguen una garantía financiera a los valores emitidos.
-De la misma manera, los fiduciarios de los fideicomisos o que se refiere el presente Capítulo podrán, conjuntamente con la celebración de los actos jurídicos por los cuales realicen captación de recursos, constituir o contratar cualesquiera garantías de pago oportuno.

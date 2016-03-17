@@ -1,0 +1,6 @@
+P.O. 30 DE JULIO DE 2010.
+Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Segundo.- El Consejo Interinstitucional a que se refiere la Ley para Prevenir, Atender, Combatir y Erradicar la Trata de Personas en el Estado de Nuevo León, se integrará dentro de los sesenta días hábiles siguientes a la entrada en vigor del presente Decreto.
+Tercero.- Las dependencias y entidades del Ejecutivo Estatal y municipal, que tengan entre sus atribuciones la asistencia a víctimas de algún tipo de delito, deberán incluir a partir del ejercicio fiscal 2011 y en los subsecuentes, dentro de sus presupuestos anuales, recursos suficientes para la implementación de programas y acciones para prevenir, atender, combatir y erradicar la trata de personas.
+Cuarto.- La Procuraduría General de Justicia en el Estado, deberá incluir a partir del ejercicio fiscal 2011 y en los subsecuentes, dentro de su presupuesto anual, recursos suficientes, para iniciar la construcción del albergue a que se refiere esta Ley y el Articulo Tercero Transitorio, así como el necesario para su funcionamiento y administración.
+Quinto.- En tanto no exista disponibilidad del albergue, la Procuraduría General de Justicia del Estado de Nuevo León, será la responsable de velar por la seguridad de las víctimas del delito de trata de personas.

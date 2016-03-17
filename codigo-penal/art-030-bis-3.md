@@ -1,2 +1,0 @@
-(ADICIONADO, B.O. 11 DE MARZO DE 2008)
-Artículo 30 Bis 3.- Los Municipios, podrán solicitar individual o conjuntamente al Congreso del Estado la afectación o cesión de los ingresos, derechos y bienes señalados en el artículo 30 Bis de esta Ley, al patrimonio de los fideicomisos a que se refiere el presente Capítulo, a efecto de que sirvan como base de la emisión de valores o como medio de pago de los valores que se emitan.
