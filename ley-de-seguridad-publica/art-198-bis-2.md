@@ -2,8 +2,10 @@
 Artículo 198 Bis 2.- La Carrera Policial comprende el grado policial, la antigüedad, las insignias, condecoraciones, estímulos y reconocimientos obtenidos, el resultado de los procesos de promoción, así como el registro de las correcciones disciplinarias y sanciones que, en su caso, haya acumulado el integrante. Se regirá por las normas mínimas siguientes:
 I. Las Instituciones Policiales deberán consultar los antecedentes de cualquier aspirante en el Registro Nacional y en el Registro Estatal, antes de que se autorice su ingreso a las mismas;
 II. Todo aspirante deberá tramitar, obtener y mantener actualizado el Certificado Único Policial, que expedirá el centro de control de confianza del Estado;
-III. Ninguna persona podrá ingresar a las Instituciones Policiales si no ha sido debidamente certificado y registrado en el Sistema;
-IV. Sólo ingresarán y permanecerán en las Instituciones Policiales, aquellos aspirantes e integrantes que cursen y aprueben los programas de formación, capacitación y profesionalización;
+(REFORMADA, P.O. 15 DE ABRIL DE 2016)
+III. Ninguna persona podrá ingresar a las Instituciones Policiales si no cuenta con Certificado con efectos de Patente Policial expedido por la Universidad y con exámenes de control de confianza aprobados;
+(REFORMADA, P.O. 15 DE ABRIL DE 2016)
+IV. Sólo ingresarán y permanecerán en las Instituciones Policiales, aquellos aspirantes e integrantes que cursen y aprueben los programas de formación, capacitación y profesionalización que imparta la Universidad.
 V. La permanencia de los integrantes en las Instituciones Policiales está condicionada al cumplimiento de los requisitos que determine esta Ley y demás disposiciones aplicables;
 VI. Los méritos de los integrantes de las Instituciones Policiales serán evaluados por las instancias encargadas de determinar las promociones y verificar que se cumplan los requisitos de permanencia, señaladas en las leyes respectivas;
 VII. Para la promoción de los integrantes de las Instituciones Policiales se deberán considerar, por lo menos, los resultados obtenidos en los programas de profesionalización, los méritos demostrados en el desempeño de sus funciones y sus aptitudes de mando y liderazgo;

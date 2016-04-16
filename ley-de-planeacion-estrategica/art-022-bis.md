@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 15 DE ABRIL DE 2016)
+Artículo 22 bis. El Consejo remitirá al Congreso del Estado la información relativa a las evaluaciones realizadas al Plan Estratégico y al Plan Estatal, así como los resultados de las mismas, en un plazo que no exceda de diez días hábiles posteriores a la conclusión de las evaluaciones.
+El Titular del Ejecutivo informará al Congreso del Estado, en un plazo que no exceda de 10 días hábiles posteriores a la toma de acuerdos correspondientes, acerca de las decisiones tomadas respecto a la procedencia de la implementación de las propuestas y opiniones que deriven del análisis de estrategias y evaluaciones de desempeño que se lleven a cabo por el Consejo al Plan Estratégico y al Plan Estatal.

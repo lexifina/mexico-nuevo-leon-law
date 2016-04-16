@@ -3,7 +3,8 @@ Artículo 198 Bis 9.- Son requisitos de permanencia en las Instituciones Policia
 I. Cumplir con los requisitos de ingreso;
 II. No ser sujeto de pérdida de confianza:
 III. Cumplir con sus obligaciones, así como con las comisiones que le sean asignadas:
-IV. Aprobar los cursos de formación, capacitación y profesionalización;
+(REFORMADA, P.O. 15 DE ABRIL DE 2016)
+IV. Obtener y mantener actualizado el Certificado con efectos de Patente Policial expedido por la Universidad de Ciencias de la Seguridad.
 V. Aprobar los procesos de evaluación de control de confianza, los cuales tendrán una vigencia de dos años;
 VI. Aprobar las evaluaciones del desempeño;
 VII. Participar en los procesos de promoción o ascenso que se convoquen, conforme a las disposiciones aplicables;

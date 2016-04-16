@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 15 DE ABRIL DE 2016)
+Artículo 158 Bis.- Son conductas prohibidas de los Titulares de las Instituciones Policiales de los Municipios, y en su caso, de los Secretarios del Ayuntamiento las siguientes:
+I. Asignar o permitir la asignación de funciones de policía a persona que no cuente con Certificado con efectos de Patente Policial, expedido por la Universidad de Ciencias de la Seguridad.
