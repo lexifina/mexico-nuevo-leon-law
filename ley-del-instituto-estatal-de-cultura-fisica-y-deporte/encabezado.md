@@ -1,4 +1,4 @@
-LEY DEL INSTITUTO ESTATAL DE CULTURA FISICA Y DEPORTE
+LEY DEL INSTITUTO ESTATAL DE CULTURA FÍSICA Y DEPORTE
 Ley publicada en el Periódico Oficial del Estado de Nuevo León, el miércoles 24 de diciembre de 2003.
 E. C. JOSÉ NATIVIDAD GONZÁLEZ PARÁS, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN, A TODOS SUS HABITANTES HAGO SABER:
 Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
