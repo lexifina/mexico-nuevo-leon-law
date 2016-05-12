@@ -1,5 +1,5 @@
 CÓDIGO DE PROCEDIMIENTOS CIVILES DEL ESTADO DE NUEVO LEÓN
-Ley publicada en el Periódico Oficial del Estado de Nuevo León, el sábado 3 de febrero de 1973.
+Código publicado en el Periódico Oficial del Estado de Nuevo León, el sábado 3 de febrero de 1973.
 CODIGO DE PROCEDIMIENTOS CIVILES DEL ESTADO DE NUEVO LEON.
 EL CIUDADANO LICENCIADO LUIS M. FARIAS, GOBERNADOR CONSTITUCIONAL SUBSTITUTO DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A LOS HABITANTES DEL MISMO HACE SABER:
 Que el H. Congreso del Estado Libre y Soberano de Nuevo León, LIX Legislatura, en uso de las facultades que le conceden el Artículo 63 de la Constitución Política Local, expide el siguiente:
