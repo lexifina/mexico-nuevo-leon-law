@@ -1,7 +1,7 @@
 P.O. 27 DE DICIEMBRE DE 1990.
 ARTICULO PRIMERO:- Las reformas a los artículos 55, 56, 57, 84 y 123 de la Constitución Política del Estado de Nuevo León no tendrán aplicación en el ejercicio de los primeros tres años del próximo Titular del Poder Ejecutivo y en la renovación del Poder Legislativo y Ayuntamientos correspondientes al año de 1991.
 ARTICULO SEGUNDO:- Los Diputados componentes de la Legislatura electa en 1991 durarán tres años y treinta días, por esa sola vez, para que los Titulares del Congreso Local entren en ejercicio en las fechas a las cuales se refieren las reformas.
-ARTICULO TERCERO:- El Congreso del Estado, por mayoría absoluta, por esta única vez hará la designación de un Gobernador de Transición que cubra el período del primero de agosto al tres de octubre de mil novecientos noventa y siete. El Ciudadano electo deberá reunir los requisitos constitucionales para ocupar el cargo.
+ARTICULO TERCERO:- El Congreso del Estado, por mayoría absoluta, por esta única vez hará la de asignación de un Gobernador de Transición que cubra el período del primero de agosto al tres de octubre de mil novecientos noventa y siete. El Ciudadano electo deberá reunir los requisitos constitucionales para ocupar el cargo.
 ARTICULO CUARTO:- Los miembros del Ayuntamiento con ejercicio a partir del mes de enero de mil novecientos noventa y dos por esa única vez concluirán sus labores el treinta de octubre de mil novecientos noventa y cuatro.
 ARTICULO QUINTO:- Las reformas a los Artículos 82 último párrafo, y 134 entrarán en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
 ARTICULO SEXTO:- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
