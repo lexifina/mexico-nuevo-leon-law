@@ -3,17 +3,18 @@ CAPITULO XI
 POR OCUPACION DE LA VIA PUBLICA
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 1989)
 ARTICULO 65 Bis 1.- Por ocupación de la vía pública:
-(REFORMADA, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADA, P.O. 4 DE JULIO DE 2013)
-I.- Por ocupar la vía pública con toda clase de instalaciones fijas o semifijas, se pagarán 0.016 cuotas diarias por metro cuadrado completo o fracción. En ningún caso la cantidad a pagar será inferior a lo que corresponda por un metro.
-Por otras ocupaciones de la vía pública, se pagarán 0.081 cuotas diarias por metro cuadrado completo o fracción. En ningún caso la cantidad a pagar será inferior a lo que corresponda por un metro.
-(REFORMADA, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADA, P.O. 4 DE JULIO DE 2013)
-II.- Por ocupar la vía pública, los propietarios de sitios de automóviles, de camiones y camionetas de carga o de pasajeros destinados al servicio público, pagarán 5 cuotas por unidad trimestralmente.
+(REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
+I. Por ocupar la vía pública con toda clase de instalaciones fijas o semifijas, se pagarán 0.224 cuotas diarias por metro cuadrado completo o fracción. En ningún caso la cantidad a pagar será inferior a lo que corresponda por un metro.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
+Por otras ocupaciones de la vía pública, se pagarán 0.1134 cuotas diarias por metro cuadrado completo o fracción. En ningún caso la cantidad a pagar será inferior a lo que corresponda por un metro.
+(REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
+II.- Por ocupar la vía pública, los propietarios de sitios de automóviles, de camiones y camionetas de carga o de pasajeros destinados al servicio público, pagarán 7 cuotas por unidad trimestralmente.
 (REFORMADO PRIMER PÁRRAFO, P.O. 29 DE DICIEMBRE DE 2000)
 III.- Por ocupar la vía pública con cajones para estacionamiento de vehículos, en la extensión que señale el departamento de tránsito, de acuerdo con su reglamento, se pagará una tarifa anual en la forma siguiente:
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 2000)
-a) Las empresas comerciales 5 cuotas por metro cuadrado.
-(REFORMADO, P.O. 29 DE DICIEMBRE DE 2000)
-b) Los particulares 1.5 cuotas por metro cuadrado.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
+a) Las empresas comerciales 7 cuotas por metro cuadrado.
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
+b) Los particulares 2.10 cuotas por metro cuadrado.
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 1996) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 Se exceptúan de lo anterior, los lugares en donde se encuentren instalados parquímetros, en cuyo caso se pagará una cuota adicional por metro cuadrado.
 (ADICIONADO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)

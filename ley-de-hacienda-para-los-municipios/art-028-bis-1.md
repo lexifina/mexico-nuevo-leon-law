@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
-ARTICULO 28 Bis 1.- En la adquisición de viviendas cuyo valor gravable no exceda de 25 cuotas elevadas al año y siempre que el adquirente sea persona física y no posea otro bien raíz en el Estado, cubrirá el impuesto aplicando la tasa del 2% al valor del inmueble, después de reducirlo en 15 cuotas elevadas al año. Para efectos de la no-propiedad de predios, bastará que el interesado manifieste bajo protesta de decir verdad que no es propietario o poseedor de otro bien inmueble en el Estado, conservando el Municipio sus facultades de comprobación.
+(REFORMADO PRIMER PÁRRAFO, P.O. 30 DE DICIEMBRE DE 2016)
+ARTICULO 28 bis-1.- En la adquisición de inmuebles cuyo valor gravable no exceda dentro de 30 cuotas elevadas al año y siempre que el adquiriente sea persona física y no posea otro bien raíz en el Estado, cubrirá el impuesto aplicando la tase (sic) del 3% al valor del inmueble, después de reducirlo en 15 cuotas elevadas al año. Para efectos de la no-propiedad de predios, bastará que el interesado manifieste bajo protesta de decir verdad que no es propietario o poseedor de otro bien inmueble en el Estado, conservando el Municipio sus facultades de comprobación.
 (REFORMADO PRIMER PÁRRAFO, P.O. 30 DE DICIEMBRE DE 1998)
 El Impuesto sobre adquisición de inmuebles se cubrirá a una tarifa única especial por cada inmueble equivalente a 7 cuotas, en los siguientes casos:
 (REFORMADA, P.O. 29 DE DICIEMBRE DE 2014)
@@ -24,7 +24,7 @@ IX.- En las adquisiciones por informaciones ad-perpetuam y sentencias judiciales
 X.- En las adquisiciones, derechos o renta a perpetuidad de los lotes en los panteones municipales.
 (REFORMADA, P.O. 29 DE DICIEMBRE DE 2000)
 XI.- En las adquisiciones de bienes del dominio privado que realicen los Municipios y las entidades paraestatales de los Municipios.
-(REFORMADO PRIMER PARRAFO, P.O. 13 DE ENERO DE 2007)
+(REFORMADO PRIMER PÁRRAFO, P.O. 13 DE ENERO DE 2007)
 XII.- En las adquisiciones de viviendas cuyo valor gravabable (sic), no exceda de 15 cuotas elevadas al año, siempre que el adquiriente sea una persona física y que no sea propietario o poseedor de otro bien inmueble en el Estado.
 (REFORMADO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 También se cubrirá la tarifa especial en las adquisiciones de vivienda cuyo valor más alto entre el valor de adquisición y el valor catastral, no exceda de 9,398 cuotas, siempre que el adquirente sea jubilado o pensionado y que no sea propietario o poseedor de otro bien inmueble en el Estado.
