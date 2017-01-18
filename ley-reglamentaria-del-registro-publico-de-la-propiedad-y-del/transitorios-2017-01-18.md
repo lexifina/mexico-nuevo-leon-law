@@ -1,0 +1,5 @@
+P.O. 18 DE ENERO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 182. POR EL QUE SE REFORMA POR MODIFICACIÓN DE LA FRACCIÓN V DEL ARTÍCULO 2907 Y EL ARTÍCULO 2910 DEL CÓDIGO CIVIL PARA EL ESTADO DE NUEVO LEÓN; TAMBIÉN REFORMA POR MODIFICACIÓN DE LAS FRACCIONES II, VIII Y IX DEL ARTÍCULO 106 Y EL ARTÍCULO 138 DE LA LEY DEL NOTARIADO DEL ESTADO DE NUEVO LEÓN; ADEMÁS REFORMA POR MODIFICACIÓN DE LA FRACCIÓN VII DEL ARTÍCULO 29 DE LA LEY REGLAMENTARIA DEL REGISTRO PÚBLICO DE LA PROPIEDAD Y DEL COMERCIO PARA EL ESTADO DE NUEVO LEÓN".]
+Primero.- El presente Decreto entrará en vigor el día primero de enero de 2017.
+Segundo.- Los avisos, inscripciones, escrituras, y demás trámites llevados a cabo previo a la entrada en vigor del presente decreto se sujetarán a los plazos, términos y condiciones vigentes al momento de su realización.
+Tercero.- El primer informe a que (sic) referencia el segundo párrafo del artículo 138 de la Ley del Notariado del Estado de Nuevo León deberá presentarse durante el mes de agosto de 2017.

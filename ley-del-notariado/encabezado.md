@@ -1,4 +1,4 @@
-LEY DEL NOTARIADO DEL ESTADO DE NUEVO LEON
+LEY DEL NOTARIADO DEL ESTADO DE NUEVO LEÓN
 Ley publicada en el Periódico Oficial del Estado de Nuevo León, el lunes 26 de diciembre de 1983.
 EL CIUDADANO ALFONSO MARTINEZ DOMINGUEZ, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A TODOS SUS HABITANTES HAGO SABER:
 Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
