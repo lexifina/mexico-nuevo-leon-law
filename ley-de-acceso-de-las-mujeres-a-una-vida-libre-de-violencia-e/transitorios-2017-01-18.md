@@ -1,0 +1,3 @@
+P.O. 18 DE ENERO DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 218. SE ADICIONA UNA FRACCIÓN AL ARTÍCULO 6 Y SE REORDENA EL CONTENIDO DE LAS FRACCIONES VI Y VII, DE LA LEY DE ACCESO A LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA".]
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
