@@ -1,0 +1,3 @@
+P.O. 18 DE ENERO DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 185. SE REFORMAN POR MODIFICACIÓN LOS ARTÍCULOS 5 PRIMER PÁRRAFO, 9 ÚLTIMO PÁRRAFO, 18 FRACCIONES XVII Y XVIII, DE LA LEY DE JUSTICIA ADMINISTRATIVA PARA EL ESTADO DE NUEVO LEÓN".]
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
