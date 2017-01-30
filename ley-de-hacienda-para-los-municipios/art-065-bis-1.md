@@ -3,8 +3,8 @@ CAPITULO XI
 POR OCUPACION DE LA VIA PUBLICA
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 1989)
 ARTICULO 65 Bis 1.- Por ocupación de la vía pública:
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
-I. Por ocupar la vía pública con toda clase de instalaciones fijas o semifijas, se pagarán 0.224 cuotas diarias por metro cuadrado completo o fracción. En ningún caso la cantidad a pagar será inferior a lo que corresponda por un metro.
+(REFORMADA, P.O. 30 DE DICIEMBRE DE 2016) (F. DE E., P.O. 30 DE ENERO DE 2017)
+I. Por ocupar la vía pública con toda clase de instalaciones fijas o semifijas, se pagarán 0.0224 cuotas diarias por metro cuadrado completo o fracción. En ningún caso la cantidad a pagar será inferior a lo que corresponda por un metro.
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
 Por otras ocupaciones de la vía pública, se pagarán 0.1134 cuotas diarias por metro cuadrado completo o fracción. En ningún caso la cantidad a pagar será inferior a lo que corresponda por un metro.
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
