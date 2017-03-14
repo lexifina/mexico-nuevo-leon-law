@@ -1,4 +1,0 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
-(ADICIONADO, P.O. 14 DE DICIEMBRE DE 2016)
-Art. 632 Bis.- Al margen de los Consejos Locales de Tutelas que se reglamentan en artículos que anteceden, el Tribunal Superior de Justicia del Estado, a través del órgano interno que corresponda, podrá contar con los tutores, curadores o interventores que su presupuesto permita, a efecto de que puedan intervenir dentro de los procesos jurisdiccionales donde sea necesario.
-Las personas que desempeñan los cargos señalados en el párrafo anterior, deberán cumplir con los requisitos que exige el presente código, así como los que exijan las demás leyes y reglamentos.

@@ -1,2 +1,0 @@
-P.O. 25 DE SEPTIEMBRE DE 2009.
-Artículo Único.- El presente Decreto entrará en vigor el 30 de septiembre de 2009.

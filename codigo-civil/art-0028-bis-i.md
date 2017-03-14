@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 13 DE OCTUBRE DE 2000)
-Art. 28 Bis I.- Transcurrido el lapso de seis meses a que se refiere el artículo anterior, el que no quiera que nazca esa presunción, declarará dentro de los siguientes quince días hábiles, tanto a la autoridad municipal de su anterior domicilio, como a la autoridad municipal de su nueva residencia, que no desea perder aquel domicilio y adquirir uno nuevo. La declaración no surtirá efectos si se hace en perjuicio de tercero.

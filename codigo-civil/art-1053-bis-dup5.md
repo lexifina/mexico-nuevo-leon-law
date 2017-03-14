@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 13 DE OCTUBRE DE 2000)
-Art. 1053 Bis VI.- El propietario de una edificación o una plantación existentes en su terreno, los puede enajenar separadamente de la propiedad del suelo. El superficiario se convertirá en el adquiriente del edificio o plantación como titular del derecho real de superficie, el cual lo puede enajenar o gravar a terceros, sin necesidad del consentimiento del propietario, con excepción del derecho del tanto en caso de venta.

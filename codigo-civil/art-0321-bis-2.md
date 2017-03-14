@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 24 DE DICIEMBRE DE 2010)
-Art. 321 Bis 2.- Cuando cambien las circunstancias económicas del deudor alimentario, éste se encuentra obligado a hacerlo del conocimiento del Juez dentro del término de treinta días, en la vía y forma correspondiente, apercibido que en caso de no hacerlo, se le impondrá una multa en los términos previstos por la fracción I del Artículo 42 del Código de Procedimientos Civiles en vigor.

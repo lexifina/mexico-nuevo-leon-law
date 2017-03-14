@@ -1,4 +1,0 @@
-(ADICIONADO, P.O. 27 DE MAYO DE 2015)
-Art. 417 Bis 4.- El Juez competente aprobará la incorporación de la niña, el niño o adolescente a una familia de acogida, a solicitud de la Procuraduría de la Defensa del Menor y la Familia en vía de jurisdicción voluntaria o como medida cautelar a petición del Ministerio Público en juicio contencioso, sin perjuicio de lo que se resuelva en sentencia, previo el cumplimiento de los requisitos siguientes:
-I. El Juez, deberá escuchar a la niña o niño a partir de los seis años, previa evaluación psicológica en la que se determine su desarrollo evolutivo, cognoscitivo y madurez y en todos los casos tratándose de adolescentes; y
-II. Se cuente con la opinión del equipo multidisciplinario en relación al origen, la comunidad y las condiciones culturales donde se han desarrollado niñas, niños y adolescentes, así como la idoneidad de la familia cuya declaración de acogida se pretenda.

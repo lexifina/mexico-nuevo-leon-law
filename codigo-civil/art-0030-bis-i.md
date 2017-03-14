@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 13 DE OCTUBRE DE 2000)
-Art. 30 Bis I.- Salvo disposición legal en contrario, la minoría de edad, el estado de interdicción y las demás manifestaciones de incapacidad establecidas por la ley, son restricciones a la capacidad de ejercicio. Sin embargo, los incapaces pueden ejercitar sus derechos o contraer y cumplir obligaciones por medio de sus representantes, quienes los otorgarán en nombre y por cuenta de estos.

@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2005)
-Art. 1812 Bis II.- Si el daño origina la muerte, o la incapacidad permanente total o parcial, la reparación del daño consistirá en el pago de los gastos mortuorios y de todos lo (sic) que en su caso se hubieren hecho con el fin de curar a la víctima de las lesiones que le hayan causado la muerte, o la incapacidad en su caso.
-La reparación del daño a que se refiere el párrafo anterior deberá ser proporcional a la necesidad de la víctima y a la capacidad de quien está obligado a pagarla, sin que pueda llegar a constituir una suma que lesione los legítimos derechos de la familia de quien infiera el daño.
