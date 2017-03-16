@@ -3,3 +3,5 @@ Artículo 78 BIS 1. El Comité de Seguimiento de Acuerdos, será el responsable 
 I. Mantener actualizado el listado de Acuerdos Aprobados por el Pleno del Congreso, en los que se solicita la atención, información o la intervención de alguna autoridad federal, estatal o municipal, en el marco de sus atribuciones.
 II. Solicitar, por conducto de su Presidente, a las autoridades competentes, la respuesta de los Acuerdos enviados para la atención, información o intervención de diversas problemáticas, cuando transcurra un tiempo prudente, posterior a la aprobación del Acuerdo; e
 III. Informar cada mes al Pleno del Congreso del seguimiento y situación que guardan los Acuerdos enviados a las autoridades federales, estatales o municipales, para la atención, información o intervención, conforme a sus atribuciones, de diversas problemáticas.
+(ADICIONADA, P.O. 15 DE MARZO DE 2017)
+IV. Proporcionar a la Oficialía Mayor el estatus del listado de los Acuerdos que sean aprobados por el Pleno del Congreso, especificando si han sido respondidos o no por la autoridad aludida y que sean publicados en la página oficial del Congreso del Estado.
