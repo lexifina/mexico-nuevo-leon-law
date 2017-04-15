@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN
 Constitución publicada en el Periódico Oficial del Estado de Nuevo León, el domingo 16 de diciembre de 1917.
 NICÉFORO ZAMBRANO, Gobernador Constitucional del Estado Libre y Soberano de Nuevo León, a todos sus habitantes hago saber: Que el H. Congreso Constituyente del mismo ha tenido a bien dirigirme, para su promulgación, la Constitución Política siguiente:
