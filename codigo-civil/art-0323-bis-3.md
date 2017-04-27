@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO
 (ADICIONADO, P.O. 16 DE MAYO DE 2012)
 Art. 323 Bis 3.- Las órdenes de protección son personalísimas e intransferibles, serán emitidas por las autoridades competentes y podrán ser:
 I. De emergencia;

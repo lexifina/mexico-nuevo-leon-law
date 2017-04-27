@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO
 (ADICIONADO, P.O. 16 DE MAYO DE 2012)
 Art. 323 Bis 7.- Son órdenes de protección de naturaleza civil, las siguientes:
 I. Suspensión temporal al agresor del régimen de visitas y convivencia con sus descendientes;

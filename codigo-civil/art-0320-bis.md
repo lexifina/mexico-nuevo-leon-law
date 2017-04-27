@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.]
 (ADICIONADO, P.O. 14 DE DICIEMBRE DE 2016)
 Art. 320 Bis.- La obligación de dar alimentos cesará:
 I.- En caso de ingratitud del acreedor hacia el deudor y en los supuestos contenidos en los artículos 1213 fracción VIII y 1237 de este Código;

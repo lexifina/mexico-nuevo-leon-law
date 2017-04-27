@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO
 (ADICIONADO, P.O. 16 DE MAYO DE 2012)
 Art. 323 Bis 5.- Son órdenes de protección preventivas las siguientes:
 I. Retención y guarda de armas de fuego en posesión del agresor. Es aplicable lo anterior a las armas punzantes, cortantes y contundentes y cualquier combinación de las anteriores que, independientemente de su uso, hayan sido empleadas para amenazar o lesionar a la víctima;
