@@ -1,0 +1,3 @@
+P.O. 22 DE ENERO DE 1997.
+ARTICULO PRIMERO.- El presente Decreto entrará en vigor al día de su publicación en el Periódico Oficial del Estado.
+ARTICULO SEGUNDO.- En relación a las adiciones que se mencionan en el artículo quinto de este Decreto, las instituciones ya establecidas deberán cumplir con todas las obligaciones señaladas en el mismo, en un plazo no mayor de treinta días a partir de su vigencia y el Consejo Estatal de Adopciones dará a conocer los formatos e instructivos a través de los que se proporcionará la información, lo cual deberá hacerse en un plazo no mayor de diez días a partir de la iniciación de la vigencia de este Decreto.

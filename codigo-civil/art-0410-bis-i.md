@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 28 DE ABRIL DE 2004)
+Art. 410 Bis I.- El adoptado por adopción plena adquirirá la misma condición de un hijo consanguíneo, es decir, la filiación completa, respecto al adoptante o adoptantes y a la familia de éstos; dejando sin efectos los vínculos que tuvo con su familia de origen, excepto para contraer matrimonio. El adoptado adquiere en la familia del (sic) de los adoptantes, los mismos derechos y obligaciones del hijo consanguíneo y debe llevar los apellidos del adoptante o adoptantes.

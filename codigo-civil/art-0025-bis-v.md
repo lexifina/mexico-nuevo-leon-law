@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 13 DE OCTUBRE DE 2000)
+Art. 25 Bis V.- Para cumplir con lo dispuesto en el artículo anterior, la misma sentencia ordenará se envíen copias certificadas de los puntos resolutivos de la misma al Oficial del Registro Civil que corresponda, para que anote marginalmente el sentido del fallo, en el acta de nacimiento del afectado y en su caso, en la de su matrimonio y en todas aquéllas en las que haya lugar.
