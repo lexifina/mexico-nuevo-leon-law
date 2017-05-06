@@ -1,0 +1,3 @@
+P.O. 5 DE MAYO DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 255. SE REFORMA LAS FRACCIONES XXV Y XXVI Y SE ADICIONA UNA FRACCIÓN XXVII AL ARTÍCULO 18 DE LA LEY DE INFRAESTRUCTURA FÍSICA EDUCATIVA Y DEPORTIVA DE NUEVO LEÓN".]
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
