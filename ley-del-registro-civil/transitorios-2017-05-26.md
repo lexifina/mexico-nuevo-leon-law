@@ -1,0 +1,3 @@
+P.O. 26 DE MAYO DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 257. SE REFORMA EL ARTÍCULO 178 DEL CÓDIGO CIVIL PARA EL ESTADO DE NUEVO LEÓN; SE REFORMA LA FRACCIÓN XIII DEL ARTÍCULO 17 DE LA LEY DEL REGISTRO CIVIL PARA EL ESTADO DE NUEVO LEÓN".]
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
