@@ -1,0 +1,3 @@
+P.O. 7 DE JUNIO DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 256. SE REFORMA LA FRACCIÓN III INCISOS C), D) Y E) Y LA FRACCIÓN IV PÁRRAFOS SEGUNDO, CUARTO Y QUINTO Y SE ADICIONA UN INCISO F) A LA FRACCIÓN III DEL ARTÍCULO 196 DEL CÓDIGO PENAL PARA EL ESTADO DE NUEVO LEÓN".]
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
