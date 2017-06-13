@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 15 DE JUNIO DE 2012)
 Artículo 222 Bis X.- En los supuestos previstos en el Artículo 323 Bis VII fracciones II, III, IV y V del Código Civil para el Estado de Nuevo León, las órdenes de protección se estará a las siguientes reglas:
 I.- Se solicitarán al Juez por escrito, debiendo acreditar el derecho para gestionarla y la necesidad de la medida mediante documentales o testigos idóneos, por lo menos dos;

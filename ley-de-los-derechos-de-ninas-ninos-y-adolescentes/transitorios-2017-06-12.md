@@ -1,0 +1,5 @@
+P.O. 12 DE JUNIO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 258. SE REFORMA A LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE NUEVO LEÓN, MEDIANTE ADICIÓN DE LA FRACCIÓN IV AL ARTÍCULO 2 Y DE LAS FRACCIONES IV Y V AL ARTÍCULO 145 RECORRIÉNDOSE SUBSECUENTEMENTE LAS DEMÁS FRACCIONES DE DICHO ARTÍCULO".]
+Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial en el Estado.
+Segundo.- Dentro de un plazo de ciento veinte días naturales a partir de la entrada en vigor del presente Decreto, los Municipios y el Estado, deberán homologar sus reglamentos en la materia conforme al presente Decreto.
+Tercero.- En caso de que por disposición del Instituto Federal de Telecomunicaciones, el número 075 tenga que migrar al número 911 como un número único ya armonizado a nivel nacional para la prestación de servicios de emergencia, se tome en consideración que preste los mismos servicios por el que fue aprobado el presente Decreto.

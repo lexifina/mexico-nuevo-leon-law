@@ -1,4 +1,3 @@
-[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.]
 (REFORMADO PRIMER PÁRRAFO, P.O. 14 DE DICIEMBRE DE 2016)
 Artículo 461 BIS.- Para que sean elevados a la categoría de cosa juzgada o, en su caso, de sentencia ejecutoriada, los convenios o laudos resultantes de los mecanismos alternativos para la solución de controversias, realizados antes del inicio de un procedimiento jurisdiccional, salvo los convenios que se vinculen al divorcio o a sus consecuencias jurídicas que en él se hubieren declarado, deberán atenderse las siguientes reglas:
 (ADICIONADA, P.O. 14 DE ENERO DE 2005)

@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADO PRIMER PÁRRAFO, P.O. 27 DE JUNIO DE 2012)
 Artículo 190 Bis IV.- En caso de negativa de la filiación, se ordenará la práctica de la prueba biológica respectiva, misma que deberá realizarse ante una institución con capacidad para realizar este tipo de pruebas y que cumpla con los requisitos establecidos por la Secretaría de Salud del Estado. En el mismo proveído se señalará la fecha para su desahogo, a fin de que se tomen las muestras respectivas, previa citación de las personas que se someterán a dicha prueba, constituyéndose el juez en el lugar señalado para la práctica de la prueba, levantando acta circunstanciada de lo que acontezca. La institución designada tendrá un plazo de treinta días para rendir el dictamen, pudiéndose prorrogar dicho término a solicitud de la misma.
 (ADICIONADO, P.O. 12 DE SEPTIEMBRE DE 2003)

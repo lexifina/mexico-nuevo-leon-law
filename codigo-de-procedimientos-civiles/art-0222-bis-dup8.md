@@ -1,3 +1,2 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 15 DE JUNIO DE 2012)
 Artículo 222 Bis IX.- Para el caso de las órdenes de protección de naturaleza civil, a que se refiere el Artículo 323 Bis VII fracción I, del Código Civil para el Estado de Nuevo León, se estará al procedimiento previsto para las órdenes de protección de emergencia y preventivas. Debiendo en ello el juez que conozca de la solicitud de estas diligencias remitir las actuaciones, una vez decretada y ejecutada en su caso la orden de protección respectiva, a la autoridad que haya decretado el régimen de visitas o de convivencia que se suspende.
