@@ -1,0 +1,4 @@
+P.O. 19 DE JUNIO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 266. SE REFORMAN LOS ARTÍCULOS 90 SEGUNDO PÁRRAFO, 227 TERCER PÁRRAFO, 325 FRACCIONES XV, 461, 461 BIS FRACCIÓN I, IV, 466, 477, 479, 958 PRIMER PÁRRAFO, 987 PRIMER, SEGUNDO Y TERCER PÁRRAFO, 993, 1022, 1048, 1052 Y 1054 PRIMER PÁRRAFO TODOS DEL CÓDIGO DE PROCEDIMIENTOS CIVILES DEL ESTADO DE NUEVO LEÓN".]
+Primero.- El presente Decreto entrará en vigor una vez concluido el proceso legislativo concerniente a la reforma a la Ley Orgánica del Poder Judicial del Estado de Nuevo León, en materia de Mecanismos Alternativos de Solución de Controversias.
+Segundo.- Los procedimientos cuya tramitación se hubiera iniciado antes de la entrada en vigor de este decreto, proseguirán la misma conforme a la normativa vigente con anterioridad a dicho inicio de vigencia.
