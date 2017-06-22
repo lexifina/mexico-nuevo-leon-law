@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 21 DE JUNIO DE 2017)
+Artículo 32 Bis.- La Secretaría de Seguridad Pública del Estado y los municipios en conjunto con la federación llevarán un padrón de aficionados violentos o que hayan participado en riñas dentro de los espectáculos deportivos, mismos que se incorporarán a la base de datos del Sistema Nacional de Seguridad, cuya confidencialidad se realizará de conformidad a la Ley de la materia.
+Además dicha Secretaría emitirá un código rojo que permitirá identificar a los aficionados que hayan cometido el delito de violencia en espectáculos deportivos para su registro, mismos que les permitirán a los administradores negarles el acceso a las instalaciones.
