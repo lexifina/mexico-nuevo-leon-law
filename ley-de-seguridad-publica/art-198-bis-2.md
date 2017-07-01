@@ -1,7 +1,8 @@
 (ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
 Artículo 198 Bis 2.- La Carrera Policial comprende el grado policial, la antigüedad, las insignias, condecoraciones, estímulos y reconocimientos obtenidos, el resultado de los procesos de promoción, así como el registro de las correcciones disciplinarias y sanciones que, en su caso, haya acumulado el integrante. Se regirá por las normas mínimas siguientes:
 I. Las Instituciones Policiales deberán consultar los antecedentes de cualquier aspirante en el Registro Nacional y en el Registro Estatal, antes de que se autorice su ingreso a las mismas;
-II. Todo aspirante deberá tramitar, obtener y mantener actualizado el Certificado Único Policial, que expedirá el centro de control de confianza del Estado;
+(REFORMADA, P.O. 30 DE JUNIO DE 2017)
+II. Todo aspirante deberá tramitar, obtener y mantener actualizado el Certificado Único Policial, que expedirán los Centros de Control de Confianza del Estado y Municipales;
 (REFORMADA, P.O. 15 DE ABRIL DE 2016)
 III. Ninguna persona podrá ingresar a las Instituciones Policiales si no cuenta con Certificado con efectos de Patente Policial expedido por la Universidad y con exámenes de control de confianza aprobados;
 (REFORMADA, P.O. 15 DE ABRIL DE 2016)

@@ -5,7 +5,8 @@ II. No ser sujeto de pérdida de confianza:
 III. Cumplir con sus obligaciones, así como con las comisiones que le sean asignadas:
 (REFORMADA, P.O. 15 DE ABRIL DE 2016)
 IV. Obtener y mantener actualizado el Certificado con efectos de Patente Policial expedido por la Universidad de Ciencias de la Seguridad.
-V. Aprobar los procesos de evaluación de control de confianza, los cuales tendrán una vigencia de dos años;
+(REFORMADA, P.O. 30 DE JUNIO DE 2017)
+IV (SIC). Aprobar los procesos de evaluación de control de confianza, los cuales tendrán una vigencia de tres años;
 VI. Aprobar las evaluaciones del desempeño;
 VII. Participar en los procesos de promoción o ascenso que se convoquen, conforme a las disposiciones aplicables;
 VIII. Abstenerse de consumir sustancias psicotrópicas, estupefacientes u otras que produzcan efectos similares;
