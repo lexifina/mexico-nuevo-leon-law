@@ -1,0 +1,5 @@
+P.O. 5 DE JULIO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 270. SE REFORMAN LOS ARTÍCULOS 73, 73 BIS, 73 BIS II; Y SE ADICIONAN LOS ARTÍCULOS 73 BIS IV Y 73 BIS V, TODOS DE LA LEY ESTATAL DE SALUD".]
+Primero.- El presente decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Estado de Nuevo León.
+Segundo.- La Secretaría de Salud deberá expedir los reglamentos o demás ordenamientos respectivos a la operación y funcionamiento de los Centros Estatales de Atención Pública Contra las Adicciones, así como de las Instituciones Privadas que prestas estos servicios, mismos que deberán publicarse dentro de un plazo de ciento veinte días naturales contados a partir de la fecha de publicación del presente decreto en el Periódico Oficial del Estado de Nuevo León.
+Tercero.- La Secretaría de Finanzas y Tesorería General del Estado deberá realizar las modificaciones presupuestales y determinar las partidas necesarias para el funcionamiento adecuado de los Centros Estatales de Atención Pública Contra las Adicciones, para el siguiente ejercicio fiscal, a partir de la entrada en vigor del presente Decreto.
