@@ -1,0 +1,8 @@
+(NOTA: EL 26 DE OCTUBRE DE 2017, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO QUINTO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 83/2017 Y SUS ACUMULADAS 88/2017, 89/2017, 91/2017, 92/2017, 96/2017 Y 98/2017, DECLARÓ LA INVALIDEZ DE ESTE ARTÍCULO, LA CUAL SURTIÓ EFECTOS EL 27 DE OCTUBRE DE 2017 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/).
+(ADICIONADO, P.O. 10 DE JULIO DE 2017)
+Artículo 81 Bis 3. El convenio de candidatura común deberá contener:
+I. Nombre de los partidos que la conforman, así como el tipo de elección de que se trate;
+II. La manifestación por escrito de proporcionar a la Comisión Estatal Electoral, una vez concluido sus procesos internos, el nombre, apellidos, edad, lugar de nacimiento, domicilio, clave de la credencial para votar del candidato o los candidatos, según corresponda;
+III. La aprobación del convenio por parte de los órganos directivos correspondientes de cada uno de los partidos políticos postulantes del candidato común;
+IV. Indicar las aportaciones en porcentajes de cada uno de los partidos para gastos de la campaña, sujetándose a los límites de contratación de los medios de comunicación distintos a radio y televisión, y a los topes de gastos de campaña determinados por el Consejo General; y
+V. Para las elecciones de los Ayuntamientos, determinar el partido político al que pertenecerán los candidatos en caso de resultar electos.
