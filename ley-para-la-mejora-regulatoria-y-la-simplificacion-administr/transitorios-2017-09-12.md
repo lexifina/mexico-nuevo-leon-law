@@ -1,0 +1,7 @@
+P.O. 12 DE SEPTIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 290. SE REFORMAN LOS ARTÍCULOS 1, 2, 3 FRACCIONES XIII Y XXVI, 9, 11, 25, 27, 29, 30, 32, 36, 45, 52, 58, 63, 64, 66, 67, 70 Y 90 DE LA LEY PARA LA MEJORA REGULATORIA Y LA SIMPLIFICACIÓN ADMINISTRATIVA DEL ESTADO DE NUEVO LEÓN, Y SE DEROGA EL ARTÍCULO DÉCIMO TRANSITORIO DEL DECRETO 216 PUBLICADO EL 18 DE ENERO DE 2017 EN EL PERIÓDICO OFICIAL DEL ESTADO".]
+Primero.- El presente Decreto entrará en vigor al día de su publicación en el Periódico Oficial del Estado.
+Segundo.- Se deroga el Artículo Décimo Transitorio del Decreto 216 que contiene la Ley para la Mejora Regulatoria y la Simplificación Administrativa del Estado de Nuevo León, publicado el 18 de enero de 2017 en el Periódico Oficial del Estado.
+Tercero.- La VUMAT y VUC deberán estar integradas y operando en un término de un año a partir de la entrada en vigor de este Decreto, y las disposiciones aplicables entrarán en vigor una vez que el R. Ayuntamiento publique en su gaceta municipal los tramites a operar y los mecanismos de cada una.
+Cuarto.- Se deroga el Artículo Sexto Transitorio del Decreto Número 216.
+Quinto.- Se deberá adecuar la legislación en materia de mejora regulatoria de los municipios, en atención a lo dispuesto en el artículo 17 de esta Ley, en un plazo no mayor de 180 días naturales contado a partir de la entrada en vigor de la misma.
