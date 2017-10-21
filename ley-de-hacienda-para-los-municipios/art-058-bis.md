@@ -59,7 +59,7 @@ Hasta 150 metros cuadrados de Expendio o consumo abierto al público 210 cuotas
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
 Por el excedente de 150 metros, Pagarán por cada metro cuadrado o fracción de expendio o consumo abierto al público 0.84 cuotas.
 (REFORMADO [N. DE E. REPUBLICADO PRIMER PÁRRAFO], P.O. 30 DE DICIEMBRE DE 2016)
-En ningún caso la cantidad a pagar Será mayor a 1 ,400 cuotas
+En ningún caso la cantidad a pagar Será mayor a 1,400 cuotas
 (REFORMADO [N. DE E. REPUBLICADO PRIMER PÁRRAFO], P.O. 30 DE DICIEMBRE DE 2016)
 B) Permisos especiales:
 1.- Para el expendio y consumo de bebidas alcohólicas, 0.2

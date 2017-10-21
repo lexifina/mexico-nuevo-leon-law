@@ -19,6 +19,8 @@ b) Los particulares 2.10 cuotas por metro cuadrado.
 Se exceptúan de lo anterior, los lugares en donde se encuentren instalados parquímetros, en cuyo caso se pagará una cuota adicional por metro cuadrado.
 (ADICIONADO, P.O. 26 DE DICIEMBRE DE 2001) (REPUBLICADO, P.O. 4 DE JULIO DE 2013)
 Dicha tarifa deberá pagarse de manera proporcional conforme los meses completos del año que hayan transcurrido.
+(ADICIONADO, P.O. 20 DE OCTUBRE DE 2017)
+Los Ayuntamientos dentro de del (sic) ámbito de sus facultades podrán considerar dentro de las bases generales para el otorgamiento de subsidios de contribuciones y demás ingresos municipales tarifas especiales para el estacionamiento de vehículos de personas con discapacidad hasta por un 100% de los derechos.
 (REFORMADO PRIMER PÁRRAFO, P.O. 26 DE DICIEMBRE DE 2003)
 IV.- Por estacionamiento de vehículos en la vía pública, en aquellos lugares donde existan instalados parquímetros, por cada hora $ 2.50
 (ADICIONADO, P.O. 27 DE DICIEMBRE DE 2002)
