@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE NOVIEMBRE DE 2017)
+Artículo 126 Bis.- Los (sic) resoluciones favorables a que se refiere la fracción II del artículo 126 de esta Ley, sólo se concederán a las personas físicas o morales legalmente constituidas y que puedan operar de acuerdo a la Ley, siempre que su objeto social se refiera a la explotación de bancos de material pétreo o yacimientos geológicos o actividad relacionada a que se refiere el presente capítulo.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE NOVIEMBRE DE 2017)
+Artículo 126 Bis 4.- Las Normas Ambientales Estatales que emita la Secretaría deberán asegurar que las emisiones que salgan de los predios donde se lleve a cabo el aprovechamiento de materiales no reservados a la Federación no rebasen los límites máximos permisibles establecidos en las normas oficiales mexicanas de salud referentes a los criterios de calidad de aire ambiental.
