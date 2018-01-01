@@ -42,7 +42,6 @@ ARTICULO 12o.- El cómputo de recargos y la imposición de multas que se mencion
 ARTICULO 13o.- Los derechos por servicio de limpia y recolección de desechos industriales y comerciales correspondientes a los meses de Enero y Febrero de 1990, podrán ser cubiertos hasta el día 15 de Marzo del mismo año, sin recargos.
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 1999)
 ARTICULO 14o.- Se suspende la vigencia del Impuesto Sobre Diversiones y Espectáculos Públicos únicamente en materia de espectáculos cinematográficos por los que se cause el Impuesto al Valor Agregado, mientras permanezca en vigor el Convenio de Adhesión al Sistema Nacional de Coordinación Fiscal, celebrado por el Estado de Nuevo León y la Secretaría de Hacienda y Crédito Público, el 29 de Octubre de 1979.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO ÚNICO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 2012)
 ARTÍCULO 15o.- Para efectos de lo dispuesto en los artículos 58 Bis y 59 Bis de esta Ley, se entiende como anuencia municipal y su revalidación anual, el permiso emitido por el Municipio para el expendio de bebidas alcohólicas hasta el mes de mayo del 2011.
 Por lo tanto envíese al Ejecutivo para su promulgación y publicación en el Periódico Oficial del Gobierno del Estado.

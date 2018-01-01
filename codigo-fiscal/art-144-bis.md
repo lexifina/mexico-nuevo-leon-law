@@ -1,4 +1,3 @@
-(DEROGADO QUINTO PÁRRAFO, P.O. 29 DE DICIEMBRE DE 2000)
 (ADICIONADO, P.O. 29 DE DICIEMBRE DE 2000)
 ARTICULO 144 Bis.- La Secretaría de Finanzas y Tesorería General del Estado podrá cancelar créditos fiscales en las cuentas públicas, por incosteabilidad en el cobro o por insolvencia del deudor o de los responsables solidarios.
 (REFORMADO, P.O. 27 DE DICIEMBRE DE 2002)
