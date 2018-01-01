@@ -1,0 +1,5 @@
+P.O. 3 DE FEBRERO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 231. SE REFORMAN POR ADICIÓN DE UN PENÚLTIMO Y DE UN ÚLTIMO PÁRRAFOS AL ARTÍCULO 65 DE LA LEY DE EGRESOS DEL ESTADO DE NUEVO LEÓN, PARA EL EJERCICIO FISCAL 2017; Y POR ADICIÓN DE UN ÚLTIMO PÁRRAFO AL ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO NÚMERO 028 DE FECHA DE PUBLICACIÓN EN EL PERIÓDICO OFICIAL DEL ESTADO, 3 DE DICIEMBRE DE 2015 DE LA LEY DE HACIENDA PARA EL ESTADO DE NUEVO LEÓN".]
+Primero.- La Secretaría de Finanzas y Tesorería General del Estado, publicará las tablas de subsidio que deberán de otorgarse conforme a este Decreto, así como las bases de los mismos y las bases de las devoluciones de los impuestos que se hayan cobrado con anterioridad a la publicación de este Decreto, en un plazo máximo de 15 días y no podrán variarse en el transcurso del Ejercicio Fiscal 2017.
+Una vez publicada la tabla de subsidios y sus bases será obligatorio otorgar dichos subsidios a todos quienes encuadren en los supuestos de las bases sin necesidad de solicitud expresa del contribuyente.
+Segundo.- El presente Decreto entrará en vigor al siguiente día de su publicación en el Periódico Oficial del Estado.
