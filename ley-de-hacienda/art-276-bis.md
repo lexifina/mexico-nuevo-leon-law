@@ -52,6 +52,31 @@ Anual95 cuotas
 d) Evaluación de la factibilidad de
 aprovechamiento de recursos minerales
 no reservados a la Federación72 cuotas
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
+VI. Certificación estatal de cumplimiento ambiental 15 cuotas
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
+VII. Evaluación de Impacto Urbano Regional 375 cuotas
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
+VIII. Evaluación de Congruencia en planes o programas de desarrollo urbano 375 cuotas
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
+IX. Evaluación de Congruencia en planes o programas parciales de desarrollo urbano 187.50 cuotas
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
+X. Evaluación de Medidas de Mitigación en zonas de riesgo para
+desarrollos en predios con superficie de hasta 499 metros
+cuadrados 34 cuotas
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
+XI. Evaluación de Medidas de Mitigación en zonas de riesgo para
+desarrollos en predios con superficie mayor a 499 y hasta 999
+metros cuadrados 187.50 cuotas
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
+XII. Evaluación de Medidas de Mitigación en zonas de riesgo
+para multifamiliares u otros desarrollos con superficie mayor
+a 999 metros cuadrados 375 cuotas
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
+XIII. Asistencia Técnica del Centro de Colaboración
+Geoespacial 187.50 cuotas
+(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
+XIV. Asistencia Técnica para trámites urbanísticos 34 cuotas
 (REFORMADA SU DENOMINACIÓN, P.O. 31 DE DICIEMBRE DE 1993)
 CAPITULO SEPTIMO
 De los Derechos por Servicios Prestados por Diversas Dependencias y Entidades de los Poderes Legislativo, Ejecutivo y Judicial
