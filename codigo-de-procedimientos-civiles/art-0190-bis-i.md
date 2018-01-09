@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 12 DE JUNIO DE 2017)
-Artículo 190 Bis I.- Quien ejerza la patria potestad, la tutela o tenga la custodia de un menor, quien se considere con derechos sobre el menor, el progenitor o padre biológico del menor, el hijo mayor de edad e incluso el Ministerio Público, podrá solicitar al juez de lo familiar la práctica de la prueba biológica a que se hace referencia en el artículo precedente.
+(REFORMADO, P.O. 8 DE ENERO DE 2018)
+Artículo 190 Bis I.- Quien ejerza la patria potestad, la tutela o tenga la custodia de un menor, quien se considere con derechos sobre el menor, el progenitor o padre biológico del menor, la hija o hijo mayor de edad e incluso el Ministerio Público, podrá solicitar al juez de lo familiar la práctica de la prueba biológica a que se hace referencia en el artículo precedente.
