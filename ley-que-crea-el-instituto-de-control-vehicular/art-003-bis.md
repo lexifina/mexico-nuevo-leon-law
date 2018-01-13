@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 12 DE ENERO DE 2018)
+Artículo 3 Bis.- El Observatorio Ciudadano de Seguridad Vial, es un órgano de participación ciudadana que tiene por objeto coadyuvar con el Instituto de Control Vehicular en el análisis de los incidentes de tránsito ocurridos en el Estado, su naturaleza, frecuencia, distribución, causas y consecuencias, para diseñar y, en su caso, proponer a las autoridades competentes las estrategias, programas y políticas públicas encaminadas a la prevención de estos hechos.
+El Instituto de Control Vehicular, destinara recursos humanos, materiales y económicos suficientes al Observatorio Ciudadano de Seguridad Vial para el desempeño de sus funciones.

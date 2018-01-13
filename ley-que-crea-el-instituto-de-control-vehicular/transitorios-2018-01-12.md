@@ -1,0 +1,6 @@
+P.O. 12 DE ENERO DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 355. SE ADICIONA EL CAPÍTULO I BIS DENOMINADO "DEL OBSERVATORIO CIUDADANO DE SEGURIDAD VIAL CONSISTENTE DE LOS ARTÍCULOS 3 BIS, 3 BIS I, 3 BIS II, 3 BIS III, 3 BIS IV Y 3 BIS V DE LA LEY QUE CREA EL INSTITUTO DE CONTROL VEHICULAR DEL ESTADO DE NUEVO LEÓN".]
+Primero.- El presente Decreto entrará en vigor al día siguiente de su Publicación en el Periódico Oficial del Estado.
+Segundo.- Se establece un periodo de 120 días naturales a partir de la entrada en vigor del presente Decreto, para la instalación del Observatorio Ciudadano de Seguridad Vial, y la designación del Secretario Técnico del mismo.
+Tercero.- Las autoridades estatales y municipales, en el ámbito de sus respectivas competencias y de conformidad a su normativa interna, deberán en un término no mayor a 60 días hábiles después de ser notificados de la instalación del Observatorio Ciudadano de Seguridad Vial, designar a quien fungirá como enlace con el Observatorio Ciudadano de Seguridad Vial y notificar en ese plazo dicho nombramiento al Observatorio.
+Cuarto.- El Observatorio Ciudadano de Seguridad Vial, en un plazo no mayor a 120 días deberá emitir su Reglamento Interior, a partir de su instalación.
