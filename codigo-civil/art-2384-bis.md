@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE MARZO DE 2018)
+Art. 2384 BIS.- De existir controversia sobre la actualización de la cláusula resolutoria o pacto comisorio expreso, el interesado acudirá ante juez competente, quien verificará si convergen los elementos para conminar a quien haya incumplido con su obligación, e impondrá además las consecuencias legales o convencionales del caso, siempre y cuando lo pactado no altere el interés público o derechos de tercero.
