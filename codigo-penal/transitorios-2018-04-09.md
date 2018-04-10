@@ -1,0 +1,4 @@
+P.O. 9 DE ABRIL DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 360. SE REFORMAN LA FRACCIÓN I DEL ARTÍCULO 16 BIS; LA FRACCIÓN I DEL ARTÍCULO 140; SE DEROGAN LOS ARTÍCULOS 432, 433, 434, 435, 436, 437, 438, 439, 440, 441, 442 Y 443; CORRESPONDIENTES AL CAPÍTULO ÚNICO DENOMINADO "DESAPARICIÓN FORZADA" DEL TÍTULO VIGÉSIMO QUINTO DENOMINADO "DELITOS COMETIDOS PARA SUSTRAER PERSONAS DE LA PROTECCIÓN DE LA LEY", DEL CÓDIGO PENAL PARA EL ESTADO DE NUEVO LEÓN".]
+Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Segundo.- Los procesos penales iniciados con fundamento en dicha legislación, así como las sentencias emitidas con base en la misma, no serán afectados por la entrada en vigor de dichas leyes generales. Por lo tanto, deberán concluirse y ejecutarse, respectivamente, conforme las disposiciones vigentes antes de la entrada en vigor de estas últimas.
