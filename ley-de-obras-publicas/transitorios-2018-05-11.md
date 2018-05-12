@@ -1,0 +1,7 @@
+P.O. 11 DE MAYO DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 387. SE ADICIONA UN CAPÍTULO XIII QUE COMPRENDERÁ LOS ARTÍCULOS DEL 83 AL 87, DENOMINADO DEL FONDO, A LA LEY DEL PATRIMONIO CULTURAL DEL ESTADO DE NUEVO LEÓN; TAMBIÉN SE REFORMA POR MODIFICACIÓN EL ARTÍCULO 2°; SE REFORMAN LAS FRACCIONES XI Y XII DEL ARTÍCULO 3°; ASÍ MISMO SE ADICIONAN LAS FRACCIONES XIII Y XIV, DEL ARTÍCULO 3, TODOS DE LA LEY QUE CREA EL CONSEJO PARA LA CULTURA Y LAS ARTES DE NUEVO LEÓN, Y SE REFORMA EL PÁRRAFO SEGUNDO Y SE ADICIONAN LOS PÁRRAFOS TERCERO Y CUARTO AL ARTÍCULO 1° DE LA LEY DE OBRAS PÚBLICAS PARA EL ESTADO Y MUNICIPIOS DE NUEVO LEÓN".]
+Primero.- El presente Decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial del Estado.
+Segundo.- Se derogan las disposiciones contenidas en las Leyes, reglamentos y demás ordenamientos que se opongan a la presente Ley.
+Tercero.- Todos los procedimientos iniciados antes de la entrada en vigor del presente decreto serán concluidos conforme a la normatividad con la que se promovieron.
+Cuarto.- El Fideicomiso deberá constituirse en un plazo no mayor a sesenta días posteriores a la entrada en vigor del presente Decreto.
+Quinto.- El Ejecutivo del Estado a través de la Secretaría de Finanzas y Tesorería General del Estado, además de observar los criterios y bases a que refiere el artículo 85 de (sic) Ley del Patrimonio Cultural del Estado de Nuevo León del presente Decreto, fijará los lineamientos y las reglas de operación de Fideicomiso antes del lanzamiento de la convocatoria.
