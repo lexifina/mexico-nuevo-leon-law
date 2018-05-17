@@ -1,0 +1,5 @@
+LEY QUE CREA EL ORGANISMO PÚBLICO DESCENTRALIZADO DENOMINADO SISTEMA DE RADIO Y TELEVISIÓN DE NUEVO LEÓN
+Ley publicada en la Sección Sexta del Periódico Oficial del Estado de Nuevo León, el miércoles 16 de mayo de 2018.
+MANUEL FLORENTINO GONZÁLEZ FLORES, GOBERNADOR INTERINO DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN, A TODOS SUS HABITANTES HAGO SABER: Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
+DECRETO
+NÚM…… 385
