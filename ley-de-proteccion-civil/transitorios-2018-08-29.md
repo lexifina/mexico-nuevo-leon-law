@@ -1,0 +1,6 @@
+P.O. 29 DE AGOSTO DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 411. SE REFORMAN POR MODIFICACIÓN LAS FRACCIONES IV, XI, XII Y XIII Y POR ADICIÓN DE LA FRACCIÓN XIV AL ARTÍCULO 2, ASÍ COMO POR UN CAPÍTULO VIII BIS, AL TÍTULO PRIMERO, DENOMINADO DE LA IMPLEMENTACIÓN DEL CÓDIGO ADAM, EL CUAL CONSTA DE LOS ARTÍCULO (SIC) 50 BIS, 50 BIS 1, 50 BIS 2, 50 BIS 3, 50 BIS 4, 50 BIS 5, 50 BIS 6 Y 50 BIS 7, TODOS DE LA LEY DE PROTECCIÓN CIVIL PARA EL ESTADO DE NUEVO LEON, CONTENIDAS EN EL DECRETO NÚM. 402 Y QUE FUE OBJETO DE OBSERVACIONES POR PARTE DEL EJECUTIVO DEL ESTADO, EN EJERCICIO DE SU FACULTAD CONFERIDA EN EL ARTÍCULO 71 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN".]
+Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Nuevo León.
+Segundo.- Se derogan todas las disposiciones legales que se opongan al presente Decreto.
+Tercero.- El Titular del Poder Ejecutivo tendrá 120 días a partir de la entrada en vigor del presente Decreto, para realizar las adecuaciones en el Reglamento de Operación del Sistema Estatal de Protección Civil para el Estado de Nuevo León.
+Cuarto.- Los Ayuntamientos del Estado, tendrán 120 días a partir de la entrada en vigor del presente Decreto, para adecuar sus disposiciones reglamentarias.

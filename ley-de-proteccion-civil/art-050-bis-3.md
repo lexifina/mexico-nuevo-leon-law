@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 29 DE AGOSTO DE 2018)
+Artículo 50 BIS 3.- Es obligación de los administradores que tengan a su cargo edificios públicos o privados frecuentados por menores de edad:
+I. Tener personas capacitadas y responsables para la activación del Protocolo de Seguridad Código Adam, estas personas serán los Administradores;
+II. Vigilar que se cumpla con la implementación del Protocolo de Seguridad Código Adam en los edificios Públicos o Privados, designarán a las personas encargadas de capacitar a los Administradores que serán los responsables de implementar dicho Protocolo; y
+III. Mantener capacitadas a tantas personas como sean necesarias en el manejo e implementación del Protocolo de Seguridad Código Adam proporcional al número de menores que pudiesen acudir a estos establecimientos.
