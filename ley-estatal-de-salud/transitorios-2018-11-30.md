@@ -1,0 +1,3 @@
+P.O. 30 DE NOVIEMBRE DE 2018.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 403. SE REFORMAN LAS FRACCIONES VI Y VII Y SE ADICIONA UNA FRACCIÓN VIII AL ARTÍCULO 17 BIS 1; Y SE ADICIONA UN ARTÍCULO 34 BIS, TODOS DE LA LEY ESTATAL DE SALUD".]
+Único.- El presente Decreto entrará en vigor al siguiente día de su publicación en el Periódico Oficial del Estado.
