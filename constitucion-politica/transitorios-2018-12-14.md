@@ -1,0 +1,3 @@
+P.O. 14 DE DICIEMBRE DE 2018.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 029. SE REFORMAN POR MODIFICACIÓN LOS ARTÍCULOS 71 PRIMER PÁRRAFO Y 85 FRACCIÓN XI DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN".]
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
