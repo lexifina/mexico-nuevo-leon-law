@@ -1,0 +1,4 @@
+P.O. 19 DE DICIEMBRE DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 022. SE REFORMA POR MODIFICACIÓN DE LAS FRACCIONES IV Y V DEL ARTÍCULO 3, DE LAS FRACCIONES V Y VI DEL ARTÍCULO 4 Y AL ARTÍCULO 13 EL SEGUNDO PÁRRAFO; ASÍ COMO POR ADICIÓN DE UNA FRACCIÓN VI DEL ARTÍCULO 3 Y UNA FRACCIÓN VII DEL ARTÍCULO 4, Y UN TERCER PÁRRAFO DEL ARTÍCULO 13, TODAS DE LA LEY DE EDUCACIÓN DEL ESTADO".]
+Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+Segundo.- En caso de que el Municipio no cuente con la Defensoría Municipal para la Protección de Niñas, Niños y Adolescentes, la Alerta Temprana será remitida al Sistema para el Desarrollo Integral de la Familia del Municipio que corresponda, a fin de que pueda realizar las evaluaciones pertinentes y restituyan los derechos vulnerados de los menores de edad.
