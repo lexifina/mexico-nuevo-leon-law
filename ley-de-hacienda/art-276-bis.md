@@ -16,10 +16,10 @@ III.- En el rubro de residuos:
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
 a) Constancia de ingreso a la base de datos de
 generadores de residuos de manejo especial70 cuotas
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
-b) Evaluación de factibilidad para realizar,
-recolección, transporte, reciclaje, reuso y disposición
-final de residuos de manejo especial150 cuotas
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2018)
+b) Evaluación de factibilidad para realizar recolección
+y transporte, reciclaje, reúso y disposición final de residuos
+de manejo especial.150 cuotas
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
 c) Evaluación de factibilidad de operación y manejo
 integral de relleno sanitario1,500 cuotas
@@ -41,6 +41,17 @@ dedicadas a la compra y venta de materiales reciclables
 de residuos especiales75 cuotas
 h) Evaluación de factibilidad para la operación
 y manejo integral de los centros de composteo34 cuotas
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2018)
+i) Evaluación de factibilidad de instalación y viabilidad para
+el Almacenamiento y/o Acopio de residuos de Manejo Especial.150 cuotas
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2018)
+j) Evaluación de·factibilidad para realizar recolección,
+transporte, y disposición final de Aguas Residuales
+provenientes del desazolve de fosas sépticas y/o limpieza
+de baños portátiles90 cuotas
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2018)
+k) Validación al registro de los Planes de Manejo de
+Residuos de Manejo Especial75 cuotas
 IV.- En el rubro de aguas residuales:
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
 a) Constancia de ingreso a la base de datos
@@ -92,22 +103,11 @@ XIII.- Asistencia Técnica del Centro de Colaboración
 Geoespacial187.50 cuotas
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
 XIV.- Asistencia Técnica para trámites urbanísticos75 cuotas
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
-XV.- Evaluación de factibilidad de instalación y
-viabilidad para el Almacenamiento y/o Acopio de
-residuos de Manejo Especial150 cuotas
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
-XVI.- Evaluación de factibilidad para realizar, recolección,
-transporte, y disposición final de Aguas Residuales
-provenientes del desazolve de fosas sépticas y/o limpieza
-de baños portátiles90 cuotas
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
-XVII.- Validación al registro de los Planes de Manejo
-de Residuos de Manejo Especial75 cuotas
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
-XVIII.- Certificado de Bienestar Animal90 cuotas
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
-XIX.- Certificado de Sustentabilidad Animal150 cuotas
+XV.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
+XVI.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
+XVII.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
+XVIII.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
+XIX.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
 XX.- Evaluación y elaboración de la cedula de
 ingreso al registro estatal de asociaciones
@@ -137,6 +137,9 @@ cuidado y/o resguardo de animales136 cuotas
 XXV.- Evaluación, elaboración y análisis relativo al
 certificado de procedencia, respecto de animales
 destinados a la venta, por cada animal6 cuotas
+(ADICIONADA, P.O. 31 DE DICIEMBRE DE 2018)
+XXVI.- Evaluación de la factibilidad de aprovechamiento
+de recursos minerales no reservados a la Federación 150 cuotas
 (REFORMADA SU DENOMINACIÓN, P.O. 31 DE DICIEMBRE DE 1993)
 CAPITULO SEPTIMO
 De los Derechos por Servicios Prestados por Diversas Dependencias y Entidades de los Poderes Legislativo, Ejecutivo y Judicial

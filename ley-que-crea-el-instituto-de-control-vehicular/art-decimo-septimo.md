@@ -1,3 +1,2 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER TRANSITORIO UNICO DEL DECRETO QUE MODIFICA LA LEY.
 (ADICIONADO, P.O. 17 DE DICIEMBRE DE 2010)
 Artículo Décimo Séptimo. Para los efectos de lo dispuesto en el artículo 276, fracción XV, de la Ley de Hacienda del Estado, para tramitar el canje de las placas de circulación emitidas para los ejercicios 2008, 2009 y 2010, los propietarios de vehículos inscritos en el padrón vehicular, deberán realizar dicho tramite a más tardar el 31 de Marzo de 2011, fecha en que concluirá la vigencia de las placas expedidas para los mencionados ejercicios.
