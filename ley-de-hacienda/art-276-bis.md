@@ -61,21 +61,21 @@ descargas o de plantas de tratamiento de aguas residuales46 cuotas
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
 c) Evaluación de informes de descargas de
 aguas residuales25 cuotas
-V.- En el rubro de Saneamiento Ambiental:
+(REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 31 DE DICIEMBRE DE 2018) (F. DE E., P.O. 14 DE ENERO DE 2019)
+V.- En el rubro de Emisiones a la Atmósfera:
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
 a) Evaluación de factibilidad de actividad
 de quema a cielo abierto autorizada por la
 dependencia competente en materia ambiental
 o práctica de extinguidores25 cuotas
-b) Evaluación para actualización de datos
-e información95 cuotas
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2018) (F. DE E., P.O. 14 DE ENERO DE 2019)
+b) Evaluación de factibilidad de operaciones de
+fuentes fijas de emisión de competencia
+estatal134 cuotas
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
 c) Validación de Cédula de Operación
 anual95 cuotas
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
-d) Evaluación de la factibilidad de
-aprovechamiento de recursos minerales
-no reservados a la Federación150 cuotas
+d) (DEROGADO, P.O. 31 DE DICIEMBRE DE 2018) (F. DE E., P.O. 14 DE ENERO DE 2019)
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
 VI.- Certificación estatal de cumplimiento ambiental25 cuotas
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
@@ -139,7 +139,7 @@ certificado de procedencia, respecto de animales
 destinados a la venta, por cada animal6 cuotas
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 2018)
 XXVI.- Evaluación de la factibilidad de aprovechamiento
-de recursos minerales no reservados a la Federación 150 cuotas
+de recursos minerales no reservados a la Federación150 cuotas
 (REFORMADA SU DENOMINACIÓN, P.O. 31 DE DICIEMBRE DE 1993)
 CAPITULO SEPTIMO
 De los Derechos por Servicios Prestados por Diversas Dependencias y Entidades de los Poderes Legislativo, Ejecutivo y Judicial
