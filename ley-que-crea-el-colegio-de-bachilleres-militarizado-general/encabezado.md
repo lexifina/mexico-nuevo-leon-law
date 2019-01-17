@@ -1,0 +1,5 @@
+LEY QUE CREA EL COLEGIO DE BACHILLERES MILITARIZADO GENERAL MARIANO ESCOBEDO DEL ESTADO DE NUEVO LEÓN
+Ley publicada en la Sección Tercera al Número 7 del Periódico Oficial del Estado de Nuevo León, el miércoles 16 de enero de 2019.
+JAIME HELIODORO RODRÍGUEZ CALDERÓN, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN, A TODOS SUS HABITANTES HAGO SABER: Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
+DECRETO
+NÚM…… 076
