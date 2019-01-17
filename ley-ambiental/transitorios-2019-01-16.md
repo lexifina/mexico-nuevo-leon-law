@@ -1,0 +1,3 @@
+P.O. 16 DE ENERO DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 045. SE REFORMA POR MODIFICACIÓN EL ARTÍCULO 233, EL SEGUNDO PÁRRAFO DEL ARTÍCULO 258 Y EL TERCER PÁRRAFO DEL ARTÍCULO 264 DE LA LEY AMBIENTAL DEL ESTADO DE NUEVO LEÓN".]
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
