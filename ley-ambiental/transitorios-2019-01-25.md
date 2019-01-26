@@ -1,0 +1,5 @@
+P.O. 25 DE ENERO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 046. SE REFORMA POR MODIFICACIÓN DE LAS FRACCIONES LII Y LIII DEL ARTÍCULO 8; DEL ARTÍCULO 168 BIS I; POR ADICIÓN DE UNA FRACCIÓN LIV DEL ARTÍCULO 8; Y DE UN ARTÍCULO 168 BIS II DE LA LEY AMBIENTAL DEL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado, con excepción de lo estipulado en el Artículo 168 Bis II de la Ley Ambiental para el Estado de Nuevo León, el cual entrará en vigor trescientos sesenta y cinco días posteriores.
+SEGUNDO.- La Secretaría de Desarrollo Sustentable dispondrá de un lapso de trescientos sesenta y cinco días posteriores a la entrada en vigor de este Decreto, para promover mediante campañas de difusión, la no utilización de popotes en los términos que se proponen en el presente Decreto, así como impulsar el uso de reusables, biodegradables orgánicos, y compostables.
+TERCERO.- Se derogan todas las disposiciones que contravengan el presente Decreto.
