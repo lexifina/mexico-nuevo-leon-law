@@ -1,0 +1,3 @@
+P.O. 11 DE MARZO DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 107. SE ADICIONA UN SEGUNDO PÁRRAFO AL ARTÍCULO 1, RECORRIÉNDOSE LOS SUBSECUENTES PÁRRAFOS, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN".]
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
