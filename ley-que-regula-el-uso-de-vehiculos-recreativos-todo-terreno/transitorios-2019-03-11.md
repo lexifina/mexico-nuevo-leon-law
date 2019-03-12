@@ -1,0 +1,3 @@
+P.O. 11 DE MARZO DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 096. SE REFORMA POR MODIFICACIÓN LA FRACCIÓN I DEL ARTÍCULO 19 Y EL NUMERAL 27 DE LA LEY QUE REGULA EL USO DE VEHÍCULOS RECREATIVOS TODO TERRENO EN (SIC) ESTADO DE NUEVO LEÓN".]
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
