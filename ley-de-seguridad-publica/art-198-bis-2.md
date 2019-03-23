@@ -12,7 +12,7 @@ VI. Los méritos de los integrantes de las Instituciones Policiales serán evalu
 VII. Para la promoción de los integrantes de las Instituciones Policiales se deberán considerar, por lo menos, los resultados obtenidos en los programas de profesionalización, los méritos demostrados en el desempeño de sus funciones y sus aptitudes de mando y liderazgo;
 VIII. Se determinará un régimen de estímulos y previsión social que corresponda a las funciones de los integrantes de las Instituciones Policiales;
 IX. Los integrantes podrán ser cambiados de adscripción, con base en las necesidades del servicio;
-X. El cambio de un Integrante de un área operativa a otra de distinta especialidad, requerirá autorización de la instancia correspondiente; y
+X. El cambio de un integrante de un área operativa a otra de distinta especialidad, requerirá autorización de la instancia correspondiente; y
 XI. Para cada una de las etapas que comprende la Carrera Policial deberá establecerse su regulación correspondiente.
 La Carrera Policial es independiente de los nombramientos para desempeñar cargos administrativos o de dirección que el integrante llegue a desempeñar en las Instituciones Policiales. En ningún caso habrá inamovilidad en los cargos administrativos y de dirección.
 En términos de las disposiciones aplicables, los titulares de las Instituciones Policiales podrán designar a los integrantes en cargos administrativos o de dirección de la estructura orgánica de las instituciones a su cargo; asimismo, podrán relevarlos libremente, respetando su grado policial y derechos inherentes a la Carrera Policial.

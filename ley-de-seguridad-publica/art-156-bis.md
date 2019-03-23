@@ -3,7 +3,7 @@ SECCIÓN TERCERA
 DEL INFORME POLICIAL HOMOLOGADO
 (ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
 Artículo 156 Bis.- Las Instituciones Policiales deberán llenar un Informe Policial Homologado que contendrá, cuando menos, los siguientes datos:
-l. El área que lo emite;
+I. El área que lo emite;
 II. El usuario capturista;
 III. Los Datos Generales de registro;
 IV. Motivo, que se clasifica en;

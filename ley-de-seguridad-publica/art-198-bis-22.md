@@ -1,6 +1,6 @@
 (ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
 Artículo 198 Bis 22.- Las categorías previstas en el artículo anterior considerarán, al menos, las siguientes jerarquías:
-l. Comisarios:
+I. Comisarios:
 a) Comisario General;
 b) Comisario Jefe; y
 c) Comisario.

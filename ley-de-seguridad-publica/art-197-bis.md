@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 19 DE ENERO DE 2013)
-Artículo 197 Bis.- A efecto de instrumentar y evaluar las reglas y procesos en materia de desarrollo policial, descritas en el artículo anterior, se crea con carácter funcional, consultivo, de opinión y honorifico, el Consejo Consultivo de Desarrollo Policial, el cual estará integrado de la siguiente manera:
+Artículo 197 Bis.- A efecto de instrumentar y evaluar las reglas y procesos en materia de desarrollo policial, descritas en el artículo anterior, se crea con carácter funcional, consultivo, de opinión y honorífico, el Consejo Consultivo de Desarrollo Policial, el cual estará integrado de la siguiente manera:
 I. Un Presidente, que será el Secretario de Seguridad Pública del Estado;
 II. Un Secretario, que será el Titular de la Comisión de Honor y de Justicia;
 III. Cuatro vocales, que serán:

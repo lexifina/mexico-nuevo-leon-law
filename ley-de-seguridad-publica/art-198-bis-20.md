@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 28 DE OCTUBRE DE 2010)
 Artículo 198 Bis 20.- No se computará como tiempo de servicio:
-l. El de las licencias ordinarias y extraordinarias, cuando se concedieron para asuntos particulares;
+I. El de las licencias ordinarias y extraordinarias, cuando se concedieron para asuntos particulares;
 II. El de las comisiones fuera del servicio de la Policía; y
 III. El de las suspensiones, en los casos en que éstas sean obstáculos para la concesión del ascenso.
