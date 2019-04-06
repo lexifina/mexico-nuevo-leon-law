@@ -1,0 +1,3 @@
+P.O. 5 DE ABRIL DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 111. SE REFORMAN POR MODIFICACIÓN DE LAS FRACCIONES XXII Y XXIII Y SE ADICIONAN LAS FRACCIONES XXIV, XXV Y XXVI, TODAS DEL ARTÍCULO 7 DE LA LEY DEL INSTITUTO ESTATAL DE LAS MUJERES".]
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Nuevo León.
