@@ -1,0 +1,3 @@
+P.O. 24 DE ABRIL DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 120. SE MODIFICAN LAS FRACCIONES XIII Y XVI, Y SE ADICIONAN (SIC) LA FRACCIÓN XV AL ARTÍCULO 5 DE LA LEY PARA LA PROTECCIÓN DE LOS DERECHOS DE LAS PERSONAS CON DISCAPACIDAD".]
+Único.- El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Estado.
