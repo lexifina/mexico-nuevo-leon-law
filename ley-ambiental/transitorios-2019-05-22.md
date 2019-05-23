@@ -1,0 +1,5 @@
+P.O. 22 DE MAYO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 122. SE ADICIONA LA FRACCIÓN XXI BIS AL ARTÍCULO 9o DE LA LEY ESTATAL DE SALUD; Y SE REFORMA POR MODIFICACIÓN LAS FRACCIONES LIII Y LIV Y POR ADICIÓN LA FRACCIÓN LV DEL ARTÍCULO 8 DE LA LEY AMBIENTAL DEL ESTADO DE NUEVO LEÓN".]
+Primero.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Nuevo León.
+Segundo.- Las Secretarías tendrán un plazo de 90 días naturales para la adecuación de sus Reglamentos y demás disposiciones normativas en razón de lo reformado por el presente Decreto.
+Tercero.- Las acciones que realicen las dependencias de la Administración Pública del Estado para dar cumplimiento al presente Decreto, deberán ajustarse en todo momento a lo señalado en los artículos 10, 13 y 14 según corresponda, de la Ley de Disciplina Financiera de las Entidades Federativas y Municipios, en relación con las erogaciones en servicios personales y el uso de recursos excedentes.
