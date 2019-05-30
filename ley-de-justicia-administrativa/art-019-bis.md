@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 1 DE FEBRERO DE 2012)
 Artículo 19 Bis. Son atribuciones de los Magistrados de la Sala Superior:
 I. Tramitar los asuntos que le sean turnados por el Presidente;

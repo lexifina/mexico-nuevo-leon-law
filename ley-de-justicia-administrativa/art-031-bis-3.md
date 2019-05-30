@@ -2,7 +2,6 @@
 Artículo 31 Bis 3. Se entenderá por corrección disciplinaria:
 I.- El apercibimiento o prevención.
 II.- La multa que se duplicará en caso de reincidencia y cuyo monto se fijará de acuerdo con el artículo 31 Bis 1 de esta ley.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADA, P.O. 1 DE FEBRERO DE 2012)
 III.- La suspensión sin goce de sueldo por un término de hasta ocho días, tratándose de servidores públicos del Tribunal.
 IV.- Arresto hasta por un término de seis horas.
