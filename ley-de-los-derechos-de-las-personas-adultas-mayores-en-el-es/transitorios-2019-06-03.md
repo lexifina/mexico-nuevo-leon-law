@@ -1,0 +1,4 @@
+P.O. 3 DE JUNIO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 129. SE REFORMA POR MODIFICACIÓN EL PRIMER PÁRRAFO DE LA FRACCIÓN IV; Y SUS INCISOS A) AL F); Y POR ADICIÓN UN INCISO G) A LA FRACCIÓN IV, TODOS DEL ARTÍCULO 5° DE LA LEY DE LOS DERECHOS DE LAS PERSONAS ADULTAS MAYORES EN EL ESTADO DE NUEVO LEÓN".]
+Primero.- El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Estado.
+Segundo.- Las acciones que realicen las dependencias de la Administración Pública del Estado y de los Municipios, que correspondan para dar cumplimiento al presente Decreto, deberán ajustarse en todo momento a lo señalado en los artículos 10, 13 y 14 de la Ley de Disciplina Financiera de las Entidades Federativas y Municipios, en relación con las erogaciones en servicios personales y el uso de recursos excedentes.
