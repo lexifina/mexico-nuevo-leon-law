@@ -1,0 +1,3 @@
+P.O. 25 DE SEPTIEMBRE DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 154. SE REFORMAN POR MODIFICACIÓN LAS FRACCIONES XXI BIS, XXII, Y SE ADICIONA LA FRACCIÓN XXIII TODAS DE LA LETRA A DEL ARTÍCULO 4 DE LA LEY ESTATAL DE SALUD".]
+Único.- El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Estado.
