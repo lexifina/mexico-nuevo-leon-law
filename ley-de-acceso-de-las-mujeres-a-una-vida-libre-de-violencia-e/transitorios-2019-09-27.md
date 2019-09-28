@@ -1,0 +1,3 @@
+P.O. 27 DE SEPTIEMBRE DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 160. SE REFORMA POR MODIFICACIÓN LA FRACCIÓN VIII, Y POR ADICIÓN DE UNA FRACCIÓN IX, DEL ARTÍCULO 6 DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA DEL ESTADO DE NUEVO LEÓN".]
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Nuevo León.

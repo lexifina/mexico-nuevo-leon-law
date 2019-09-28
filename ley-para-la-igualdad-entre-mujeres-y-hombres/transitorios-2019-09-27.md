@@ -1,0 +1,3 @@
+P.O. 27 DE SEPTIEMBRE DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 159. SE REFORMAN EL PRIMER PÁRRAFO DEL ARTÍCULO 58 Y LA FRACCIÓN PRIMERA DEL ARTÍCULO 59 DE LA LEY PARA LA IGUALDAD ENTRE MUJERES Y HOMBRES DEL ESTADO DE NUEVO LEÓN".]
+Único.- El presente Decreto entrara en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
