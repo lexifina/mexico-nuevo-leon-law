@@ -1,0 +1,5 @@
+P.O. 21 DE OCTUBRE DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 165. SE REFORMA EL ARTÍCULO 24, EL PRIMER PÁRRAFO Y LAS FRACCIONES II, III, V, VI Y VII DEL ARTÍCULO 25, Y SE ADICIONA UNA FRACCIÓN VIII AL ARTÍCULO 25, TODOS DE LA LEY ESTATAL DE SALUD; Y SE REFORMA LA FRACCIÓN XI DEL ARTÍCULO 2, Y LA FRACCIÓN I DEL ARTÍCULO 15, AMBOS DE LA LEY PARA LA PROTECCIÓN DE LOS DERECHOS DE LAS PERSONAS CON DISCAPACIDAD".]
+Primero.- El presente Decreto entrará en vigor el día uno de enero de 2020.
+Segundo.- El presupuesto de Egresos del Estado de Nuevo León, para el ejercicio fiscal 2020, deberá contemplar las previsiones financieras necesarias para el cumplimiento del presente Decreto.
+Tercero.- El Estado y los Municipios de Nuevo León, deberán ajustarse en todo momento a lo señalado en los artículos 10, 13 y 14 según corresponda, de la Ley de Disciplina Financiera de las Entidades Federativas y Municipios, en relación con las erogaciones en servicios personales y el uso de recursos excedentes.
