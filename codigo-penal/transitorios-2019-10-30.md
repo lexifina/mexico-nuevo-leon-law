@@ -1,0 +1,3 @@
+P.O. 30 DE OCTUBRE DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 177. SE REFORMAN POR MODIFICACIÓN EL PÁRRAFO PRIMERO Y LA FRACCIÓN I DEL PÁRRAFO QUINTO Y SE DEROGA EL PÁRRAFO TERCERO, TODOS DEL ARTÍCULO 287 BIS DEL CÓDIGO PENAL PARA EL ESTADO DE NUEVO LEÓN".]
+Único.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado de Nuevo León.
