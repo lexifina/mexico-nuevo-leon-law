@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 20 DE NOVIEMBRE DE 2019)
+ARTÍCULO 12 BIS.- DE LAS PERSONAS MIGRANTES O EXTRANJERAS DESAPARECIDAS.
+Cuando el procedimiento de Declaratoria de Ausencia por Desaparición verse sobre una persona desaparecida que tenga la condición de migrante o sea extranjera el Mecanismo de Apoyo Exterior garantizará a los familiares de ésta el acceso a dicho procedimiento, en términos de su competencia. Al iniciar dicho procedimiento, el órgano jurisdiccional tendrá la obligación de informar sobre la solicitud presentada a la embajada, consulado o agregaduría del país de origen de la persona desaparecida, así como de dictar las medidas necesarias para la protección de la Persona Desaparecida y sus Familiares.
+Una vez concluido el procedimiento, el órgano jurisdiccional deberá de hacer llegar una copia certificada de la resolución de Declaratoria de Ausencia por Desaparición a la embajada, consulado o agregaduría del país de origen de la persona desaparecida.

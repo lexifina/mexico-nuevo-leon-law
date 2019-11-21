@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 20 DE NOVIEMBRE DE 2019)
+ARTÍCULO 19 BIS.- DE LA DECLARATORIA DE AUSENCIA POR DESAPARICIÓN.
+La resolución que dicte el órgano jurisdiccional otorgando la Declaratoria de Ausencia por Desaparición incluirá los efectos y las medidas definitivas para garantizar la máxima protección a la persona desaparecida y los familiares.
+En esta resolución se ordenará al Secretario del Órgano Jurisdiccional que emita la certificación correspondiente a fin de que se inscriba, en un plazo no mayor a tres días hábiles, en el Registro Civil en la Comisión Ejecutiva Estatal de Atención de Víctimas, así como en los Registros contemplados en la Ley General de Víctimas y en la Ley de Víctimas del Estado, a fin de que la primera institución expida el acta provisional de ausencia por desaparición. Asimismo, se ordenará que dicha resolución se publique en el Periódico Oficial del Estado.
