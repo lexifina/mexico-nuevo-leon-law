@@ -1,0 +1,1 @@
+Artículo Primero.- No ha lugar a las observaciones realizadas al Decreto número 145 de fecha 15 de mayo de 2019, por el que se expide la Ley de Protección al Parto Humanizado y a la Maternidad Digna del Estado de Nuevo León.
