@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE DICIEMBRE DE 2019)
+Art. 24 Bis 5.- Podrá otorgarse una Licencia por Enfermedad Infantil hasta de quince días hábiles al año con goce de sueldo, a los padres y madres trabajadoras a que se refiere esta Ley, que tengan decretada a su favor, por juez competente la guarda y custodia de hija(s) e hijo(s) menores de doce años, lo cual aplica también para casos de adopción, por causa de enfermedad debidamente acreditada mediante constancia médica, adjuntando la resolución judicial correspondiente. Dicha licencia será intransferible a la pareja.
