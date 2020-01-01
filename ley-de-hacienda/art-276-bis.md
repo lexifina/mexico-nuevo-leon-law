@@ -80,59 +80,56 @@ d) (DEROGADO, P.O. 31 DE DICIEMBRE DE 2018) (F. DE E., P.O. 14 DE ENERO DE 2019)
 VI.- Certificación estatal de cumplimiento ambiental25 cuotas
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
 VII.- Evaluación de Impacto Urbano Regional500 cuotas
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
-VIII.- Evaluación de Congruencia en planes
-o programas de desarrollo urbano500 cuotas
+(REFORMADA, P.O. 30 DE DICIEMBRE DE 2019)
+VIII.- Evaluación de Congruencia en planes o programas municipales de desarrollo urbano, de planes o programas de desarrollo urbano de centros de población o su modificación total o parcial:
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2019)
+a) De municipios con una población mayor a 500,000 habitantes conforme a información oficial más reciente que hubiera dado a conocer el Instituto Nacional de Estadística y Geografía500 cuotas
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2019)
+b) De municipios con una población mayor a 200,000 hasta 500,000 habitantes conforme a la información oficial más reciente que hubiera dado a conocer el Instituto Nacional de Estadística y Geografía300 cuotas
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2019)
+c) De municipios con una población hasta 200,000 habitantes conforme a la información oficial más reciente que hubiera dado a conocer el Instituto Nacional de Estadística y Geografía200 cuotas
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
 IX.- Evaluación de Congruencia en planes
 o programas parciales de desarrollo urbano375 cuotas
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
-X.- Evaluación de Medidas de Mitigación en
-zonas de riesgo para desarrollos en predios con
-superficie de hasta 499 metros cuadrados75 cuotas
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
-XI.- Evaluación de Medidas de Mitigación en zonas de riesgo para
-desarrollos en predios con superficie mayor a 499 y hasta 999
-metros cuadrados187.50 cuotas
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
-XII.- Evaluación de Medidas de Mitigación en zonas de
-riesgo para multifamiliares u otros desarrollos con
-superficie mayor a 999 metros cuadrados500 cuotas
+(REFORMADA, P.O. 30 DE DICIEMBRE DE 2019)
+X.- Evaluación de Medidas de Mitigación en zonas de riesgo:
+(ADICIONADO CON SUS NUMERALES, P.O. 30 DE DICIEMBRE DE 2019)
+a) Para fraccionamientos o conjuntos urbanos, edificaciones u obras en predios ubicados en área urbanizable:
+1. Inmuebles con superficie de hasta 499 metros cuadrados75 cuotas
+2. Inmuebles con superficie mayor a 499 y hasta 999 metros cuadrados187.50 cuotas
+3. Inmuebles con superficie mayor a 999 metros cuadrados500 cuotas
+(ADICIONADO CON SUS NUMERALES, P.O. 30 DE DICIEMBRE DE 2019)
+b) Para construcciones en inmuebles ubicados en áreas urbanizadas:
+1. Inmuebles con superficie de hasta 499 metros cuadrados30 cuotas
+2. Inmuebles con superficie mayor a 499 y hasta 999 metros cuadrados50 cuotas
+3. Inmuebles con superficie mayor a 999 metros cuadrados100 cuotas
+XI.- (DEROGADA, P.O. 30 DE DICIEMBRE DE 2019)
+XII.- (DEROGADA, P.O. 30 DE DICIEMBRE DE 2019)
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
 XIII.- Asistencia Técnica del Centro de Colaboración
 Geoespacial187.50 cuotas
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
-XIV.- Asistencia Técnica para trámites urbanísticos75 cuotas
+XIV.- (DEROGADA, P.O. 30 DE DICIEMBRE DE 2019)
 XV.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
 XVI.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
 XVII.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
 XVIII.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
 XIX.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
-XX.- Evaluación y elaboración de la cedula de
-ingreso al registro estatal de asociaciones
-protectoras de animales, individuos, organizaciones
-no gubernamentales y/o profesionales dedicados a
-la protección y bienestar animal65 cuotas
+(REFORMADA, P.O. 30 DE DICIEMBRE DE 2019)
+XX.- Evaluación y elaboración de la cédula de ingreso al registro estatal.
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2019)
+a) De asociaciones protectoras de animales y organizaciones no gubernamentales dedicadas a la protección y bienestar animal20 cuotas
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2019)
+b) De individuos y/o profesionales dedicados a la protección y bienestar animal15 cuotas
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
 XXI.- Evaluación y elaboración de la cedula de
 ingreso al registro estatal de establecimientos que se
 dediquen a la crianza y/o venta de animales150 cuotas
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
-XXII.- Análisis del registro de las personas físicas
-y morales que se dediquen o realicen actividades
-de exhibición, trabajo, deportivas, competencias
-y/o adestramiento (sic) de animales136 cuotas
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
-XXIII.- Evaluación y elaboración de la cedula de
-ingreso al registro estatal de las personas físicas
-y morales que se dediquen o realicen actividades de
-atención médica y/o centros de atención veterinaria40 cuotas
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
-XXIV.- Evaluación y elaboración de la cedula de
-ingreso al registro estatal de establecimientos físicos
-o móviles que proporcionen un servicio de limpieza,
-cuidado y/o resguardo de animales136 cuotas
+(REFORMADA, P.O. 30 DE DICIEMBRE DE 2019)
+XXII.- Análisis del registro de las personas físicas y morales que se dediquen o realicen actividades de exhibición, trabajo, deportivas, competencias y/o adiestramiento de animales40 cuotas
+(REFORMADA, P.O. 30 DE DICIEMBRE DE 2019)
+XXIII.- Evaluación y elaboración de la cédula de ingreso al registro estatal de las personas físicas y morales que se dediquen o realicen actividades de atención médica y/o centros de atención veterinaria35 cuotas
+(REFORMADA, P.O. 30 DE DICIEMBRE DE 2019)
+XXIV.- Evaluación y elaboración de la cédula de ingreso al registro estatal de establecimientos físicos o móviles que proporcionen un servicio de limpieza, cuidado y/o resguardo de animales40 cuotas
 (ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
 XXV.- Evaluación, elaboración y análisis relativo al
 certificado de procedencia, respecto de animales
@@ -140,6 +137,14 @@ destinados a la venta, por cada animal6 cuotas
 (ADICIONADA, P.O. 31 DE DICIEMBRE DE 2018)
 XXVI.- Evaluación de la factibilidad de aprovechamiento
 de recursos minerales no reservados a la Federación150 cuotas
+(ADICIONADA CON SUS INCISOS, P.O. 30 DE DICIEMBRE DE 2019)
+XXVII.- Procedimiento de análisis y evaluación para la emisión de Certificado de Laboratorios en materia de pavimentos
+a) Por primera vez87 cuotas
+b) Renovación de Certificado87 cuotas
+(ADICIONADA CON SUS INCISOS, P.O. 30 DE DICIEMBRE DE 2019)
+XXVIII.- Procedimiento de análisis y evaluación para la emisión de Certificado de Profesionales Responsables en materia de pavimentos:
+a) Por primera vez46 cuotas
+b) Renovación de Certificado31 cuotas
 (REFORMADA SU DENOMINACIÓN, P.O. 31 DE DICIEMBRE DE 1993)
 CAPITULO SEPTIMO
 De los Derechos por Servicios Prestados por Diversas Dependencias y Entidades de los Poderes Legislativo, Ejecutivo y Judicial

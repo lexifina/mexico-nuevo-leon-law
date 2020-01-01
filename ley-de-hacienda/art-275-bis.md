@@ -6,29 +6,30 @@ I.- Constancias de Estudios:
 (REFORMADA, P.O. 26 DE DICIEMBRE DE 2001)
 a) Constancias, Certificaciones o Revalidaciones de Estudios de Primaria y Secundaria, por cada una 0.50 cuotas
 2. Escuelas Técnicas y Comerciales:
-a) Certificación de escuelas técnicas y comerciales, así como de escuelas técnicas de capacitación para el trabajo, con estudios no mayores de dos años con diploma ….. 1 cuota
-b) Certificado terminal de escuelas técnicas comerciales con estudios de tres años ….. 2 cuotas
+a) Certificación de escuelas técnicas y comerciales, así como de escuelas técnicas de capacitación para el trabajo, con estudios no mayores de dos años con diploma ... 1 cuota
+b) Certificado terminal de escuelas técnicas comerciales con estudios de tres años ... 2 cuotas
 3. Nivel Medio Superior:
-a) Legalización de certificados de preparatoria, así como por Registro y legalización de certificaciones de nivel medio superior ….. 2 cuotas
-b) Equivalencias de estudios, por materia ….. 0.5 cuotas
-En ningún caso la cantidad a pagar será menor a …… 2.5 cuotas
-c) Revalidación de estudios ….. 2.5 cuotas
-d) Registro y legalización de actas de examen profesional ….. 5 cuotas
-e) Registro y legalización de títulos de técnicos medios y profesionales ….. 6.5 cuotas
-f) Certificación de estudios de escuelas desaparecidas, así como, por la legalización de certificaciones de escuelas desaparecidas ….. 2 cuotas
-g) Constancias sobre liberación de servicio social de escuelas desaparecidas ….. 1 cuota
+a) Legalización de certificados de preparatoria, así como por Registro y legalización de certificaciones de nivel medio superior ... 2 cuotas
+b) Equivalencias de estudios, por materia ... 0.5 cuotas
+En ningún caso la cantidad a pagar será menor a .. 2.5 cuotas
+c) Revalidación de estudios ... 2.5 cuotas
+d) Registro y legalización de actas de examen profesional ... 5 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2019)
+e) Registro y legalización de títulos de técnicos medios y profesionales ... 3.25 cuotas
+f) Certificación de estudios de escuelas desaparecidas, así como, por la legalización de certificaciones de escuelas desaparecidas ... 2 cuotas
+g) Constancias sobre liberación de servicio social de escuelas desaparecidas ... 1 cuota
 4. Educación Superior:
-a) Legalización de certificados, así como el registro y legalización de certificados y registro y legalización de actas de examen profesional, de nivel superior, por cada trámite ….. 10.5 cuotas
-b) Equivalencias de estudios, por materia ….. 0.5 cuotas
-En ningún caso la cantidad a pagar será menor a ….. 2.5 cuotas
-c) Revalidación de estudios, por materia ….. 0.5 cuotas
-En ningún caso la cantidad a pagar será menor a ….. 2.5 cuotas
-d) Registro y legalización de títulos profesionales y de técnico superior profesional ….. 13.5 cuotas
-e) Registro y legalización de actas de examen profesional, así como de certificados, de técnico superior profesional, por trámite ….. 10.5 cuotas
-f) Certificados de estudios, de actas de examen profesional y transcripciones de títulos profesionales, de escuelas desaparecidas, por cada trámite ….. 3 cuotas
-g) Constancias de Servicio Social de escuelas desaparecidas ….. 1.5 cuotas
-5. Ejercicio Profesional:
-a) Trámite de Cédula Profesional, así como Autorización para el ejercicio de especialidad, por cada trámite ….. 5 cuotas
+a) Legalización de certificados, así como el registro y legalización de certificados y registro y legalización de actas de examen profesional, de nivel superior, por cada trámite ... 10.5 cuotas
+b) Equivalencias de estudios, por materia ... 0.5 cuotas
+En ningún caso la cantidad a pagar será menor a ... 2.5 cuotas
+c) Revalidación de estudios, por materia ... 0.5 cuotas
+En ningún caso la cantidad a pagar será menor a ... 2.5 cuotas
+(REFORMADO, P.O. 30 DE DICIEMBRE DE 2019)
+d) Registro y legalización de títulos profesionales y de técnico superior Profesional ... 6.75 cuotas
+e) Registro y legalización de actas de examen profesional, así como de certificados, de técnico superior profesional, por trámite ... 10.5 cuotas
+f) Certificados de estudios, de actas de examen profesional y transcripciones de títulos profesionales, de escuelas desaparecidas, por cada trámite ... 3 cuotas
+g) Constancias de Servicio Social de escuelas desaparecidas ... 1.5 cuotas
+5. (DEROGADO, P.O. 30 DE DICIEMBRE DE 2019)
 N. DE E. EN RELACIÓN CON LA VIGENCIA DE LOS DERECHOS CONTENIDOS EN LA PRESENTE FRACCIÓN, VER ARTÍCULO CUARTO TRANSITORIO DE LA LEY DE INGRESOS DEL ESTADO DE NUEVO LEÓN, P.O. 13 DE ENERO DE 2007.
 II.- Instituciones Educativas:
 1.- Por el inicio de trámite de incorporación, entrega de folleto-instructivo, por nivel específico y de paquete de formularios para el trámite N$80.00

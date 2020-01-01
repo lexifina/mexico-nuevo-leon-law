@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 12 DE ENERO DE 2018)
-Articulo 3 Bis IV.- El Secretario Técnico del Observatorio Ciudadano de Seguridad Vial tendrá las siguientes facultades y atribuciones:
+Artículo 3 Bis IV.- El Secretario Técnico del Observatorio Ciudadano de Seguridad Vial tendrá las siguientes facultades y atribuciones:
 I. Elaborar el Proyecto del Reglamento Interior;
 II. Dar seguimiento a los acuerdos aprobados;
 III. Fungir como enlace directo de colaboración y estudio con los observatorios viales municipales;
