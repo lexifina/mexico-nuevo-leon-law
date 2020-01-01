@@ -1,0 +1,1 @@
+Artículo Primero.- Se tienen por recibidas en tiempo y forma, las observaciones realizadas por el Ejecutivo del Estado al Decreto No. 133 de fecha 14 de mayo de 2019, mediante el cual se emite la Ley de Cambio Climático del Estado de Nuevo León.

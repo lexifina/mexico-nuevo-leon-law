@@ -1,0 +1,1 @@
+Artículo Segundo.- Con fundamento en el artículo 71 de la Constitución Política del Estado Libre y Soberano de Nuevo León, se aceptan parcialmente las observaciones realizadas por el Ejecutivo del Estado al Decreto Núm. 133 de fecha 14 de mayo de 2019.
