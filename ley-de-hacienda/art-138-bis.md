@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2019)
+ARTICULO 138 BIS.- Es objeto de este impuesto el ingreso que se percibe por la tarifa efectivamente cobrada, por cada viaje iniciado en el Estado de Nuevo León por los conductores de las Empresas de Redes de Transporte, y su objetivo es contribuir en el fortalecimiento de las acciones para el financiamiento de políticas públicas destinadas a mejorar la movilidad sostenible y la accesibilidad en el Estado.

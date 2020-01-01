@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2019)
+ARTICULO 138 BIS-3.- El impuesto que resulte de aplicar la tasa indicada en el artículo precedente, será retenido por las Empresas de Redes de Transporte, quienes deberán enterarlo a la Secretaría de Finanzas y Tesorería General del Estado, de forma semestral dentro de los primeros 10 días del mes de enero y junio en que realicen la retención, anexando carta bajo protesta de decir verdad, que el impuesto enterado corresponde a las tarifas efectivamente cobradas a sus usuarios dentro del Estado de Nuevo León.
