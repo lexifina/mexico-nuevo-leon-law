@@ -1,0 +1,7 @@
+P.O. 20 DE ENERO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 219. SE REFORMAN DIVERSOS ARTÍCULOS DE LA LEY ORGÁNICA DEL PODER LEGISLATIVO DEL ESTADO DE NUEVO LEÓN; Y DEL REGLAMENTO PARA EL GOBIERNO INTERIOR DEL CONGRESO DEL ESTADO DE NUEVO LEÓN ".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Lo asuntos pendientes que se encuentren en estudio en las Comisiones de Dictamen Legislativo de Medio Ambiente y Desarrollo Sustentable a partir de la entrada en vigor del presente Decreto se entenderá que su dictaminación corresponde a la Comisión aprobada mediante el presente Decreto.
+TERCERO.- Dentro de los 6 meses siguientes a la entrada en vigor del presente Decreto, el H. Congreso del Estado deberá emitir el Código de Ética previsto en el artículo 10 del numeral primero de este Decreto.
+CUARTO.- El Sistema de Información Legislativa previsto en el artículo 159 BIS 2 y la Plataforma Digital Legislativa contemplada en el artículo 65 ambos del Reglamento para el Gobierno Interior del Congreso del Estado, entrarán en funciones durante los 180 días posteriores a la entrada en vigor al presente Decreto y el Sistema de Información Legislativa contendrá cuando menos toda la información relativa a la LXXV Legislatura, pudiendo de manera posterior adicionar información respecto a Legislaturas anteriores.
+QUINTO.- La Gaceta Legislativa empezará a publicarse en un plazo no mayor a 90 días naturales contados a partir de la entrada en vigor del presente Decreto.
