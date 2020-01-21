@@ -1,0 +1,3 @@
+P.O. 20 DE ENERO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 209. SE REFORMA EL PÁRRAFO PRIMERO DEL ARTÍCULO 265, EL PÁRRAFO PRIMERO DEL ARTÍCULO 266 Y SE ADICIONA UN SEGUNDO PÁRRAFO AL ARTÍCULO 265, TODOS DEL CÓDIGO PENAL PARA EL ESTADO DE NUEVO LEÓN".]
+Único.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Nuevo León.
