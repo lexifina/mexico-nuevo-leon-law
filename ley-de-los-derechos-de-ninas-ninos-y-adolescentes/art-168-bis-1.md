@@ -4,5 +4,6 @@ I. Un abogado;
 II. Un psicólogo;
 III. Un trabajador social;
 IV. Un médico, que podrá ser de otra área del municipio; y
-V. Personal técnico y operativo necesario para el cumplimiento de las atribuciones que le confiere esta ley. Dicho personal puede ser integrante de la misma Defensoría o de otras áreas de atención del Municipio.
+(REFORMADA, P.O. 27 DE ENERO DE 2020)
+V. Personal técnico y operativo necesario para el cumplimiento de las atribuciones que le confiere esta ley. El equipo técnico de la defensoría municipal no podrá ser personal de otras áreas de atención del Municipio, con excepción del médico.
 En la inteligencia de que deberán contar con título y cédula profesional para el ejercicio de su profesión debidamente registrado y experiencia en la materia, así como no encontrarse inhabilitado como servidor público o no haber sido sentenciado por delito doloso.
