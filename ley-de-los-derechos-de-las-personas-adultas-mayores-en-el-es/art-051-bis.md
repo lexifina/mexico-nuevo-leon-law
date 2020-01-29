@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE ENERO DE 2020)
+Artículo 51 Bis.- La Procuraduría de la Defensa del Adulto Mayor actuará como supervisor de convivencia familiar cuando la persona adulta mayor por razones de aislamiento social involuntario se encuentre limitado de convivir con su familia o círculo de amistades.
+Para atender lo ordenado en el párrafo anterior, bastará con la acreditación por parte de un familiar directo de que la persona adulta mayor se encuentra aislada de manera involuntaria. La convivencia deberá llevarse a cabo en el lugar donde la persona adulta mayor le resulte seguro y práctico para su desenvolvimiento personal y familiar.

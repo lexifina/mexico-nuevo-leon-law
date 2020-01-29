@@ -1,0 +1,13 @@
+(ADICIONADO, P.O. 29 DE ENERO DE 2020)
+Artículo 86 Bis. En el Centro de Control Canino y Felino deberán de considerarse las siguientes medidas de buen trato y seguridad para los animales:
+I. Contar con un buen sistema de asideros, que los aseguren y no los maltraten en la piel o sujetándolos fuertemente;
+II. Hacer la separación entre madres gestantes, madres con cachorros, animales de diferentes especies, de diferentes tamaños, animales agresivos, animales en agonía, entre otras separaciones que deban hacerse para garantizar la integridad física de los animales durante sus días de estancia;
+III. Asegurarse que jaulas y drenajes cuenten con las puertas y rejillas y registros de drenaje en buen estado, de tal forma que no vayan a caerse o a salirse los animales pequeños de su lugar de confinamiento o que no vayan a lastimarse los animales en general;
+IV. Se debe tener iluminación y ventilación suficiente, así como sistemas de limpieza y desinfección diaria y fumigación periódica;
+V. Las camionetas de recolección deben estar en buen estado y deben tener las separaciones correspondientes para que los animales viajen en forma segura y ninguno corra peligro;
+VI. Todos los animales deberán recibir agua y comida diariamente en comederos a su alcance, y sin que la diferencia de tamaños deje a animales pequeños, débiles o de mayor edad sin acceso al alimento;
+VII. El sacrificio deberá realizarse respetando los días de estancia para que sus dueños vayan a recogerlos, y cumpliendo con la normativa correspondiente del uso de sedantes para la insensibilización previa, y barbitúricos, siempre dejando el tiempo necesario para que haga efecto el sedante, y asegurando su muerte con estetoscopio o con algún método que garantice su muerte antes de proceder con el envío de cadáveres.
+Está prohibido todo sacrificio que no sea sacrificio humanitario, en los términos de la fracción XLV del artículo 3 de esta Ley;
+VIII. Los animales que lleguen en dolor o en agonía y estén en sufrimiento, deberán ser sujetos a valoración médico veterinaria y en su caso realizar el sacrificio humanitario lo antes posible, siempre que éste tenga por fin salvaguardar el bienestar animal;
+IX. Las placas y medidas de identificación, tales como tatuajes, chips de identificación u otros métodos, deberán ser revisados de todos los animales que ingresen para la notificación a sus propietarios, y que cumplan con la responsabilidad respectiva que haya decidido el Municipio; y
+X. Se debe privilegiar la adopción de los animales, para lo cual se trabajará en colaboración con las organizaciones civiles y la ciudadanía.

@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE ENERO DE 2020)
+Artículo 55 Bis. Es obligación del propietario o poseedor del animal de carga, tiro o monta inscribirlo en el Registro Animal conforme a lo dispuesto en artículo 15 de esta Ley, con el fin de que la Secretaría expida carnet de registro y para que cada semestre sea acreditado su buen estado de salud y capacidad de trabajo, estado nutricional, desparasitación semestral, condición de aplomos y control de vacunación por un Médico Veterinario Zootecnista.
+Durante las jornadas de trabajo será obligatorio para el propietario, poseedor o encargado del animal, llevar siempre consigo dicho carnet de registro, así como mostrarlo a los inspectores de los Municipios o de la Secretaría en caso de ser requerido.

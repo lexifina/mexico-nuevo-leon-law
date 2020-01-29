@@ -1,0 +1,5 @@
+P.O. 29 DE ENERO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 258. SE REFORMAN LAS FRACCIONES DE LA III A LA XI EL ARTÍCULO 3°; LAS FRACCIONES XII Y XIII DEL ARTÍCULO 24; Y POR ADICIÓN LA FRACCIÓN XI DEL ARTÍCULO 3°; LA FRACCIÓN XIV DEL ARTÍCULO 24 Y EL ARTÍCULO 51 BIS, DE LA LEY DE LOS DERECHOS DE LAS PERSONAS ADULTAS MAYORES EN EL ESTADO DE NUEVO LEÓN".]
+Primero.- El presente Decreto entrara en vigor el día 1° de enero de 2020.
+Segundo.- El Instituto Estatal de las Personas Adultas Mayores, tendrá 90 días a partir de haber entrado en vigor el presente Decreto para analizar, planear, diseñar e implementar las políticas públicas orientadas al uso de nuevas tecnologías para las personas adultas mayores.
+Tercero.- Las acciones que realicen las dependencias de la Administración Pública del Estado que correspondan para dar cumplimiento al presente Decreto, se ajustarán en todo momento a lo señalado en los artículos 10 y 13 según corresponda, de la Ley de Disciplina Financiera de las Entidades Federativas y Municipios, en relación con las erogaciones en servicios personales y el uso de recursos excedentes.

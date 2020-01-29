@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE ENERO DE 2020)
+Artículo 55 Bis 2. La Secretaría, los Municipios y el Consejo Ciudadano de Protección y Bienestar Animal diseñarán y llevarán a cabo un programa de sustitución o reemplazo progresivo de animales de carga y tiro por vehículos automotores, de tracción humana u otras alternativas disponibles, considerando programas que incluyan en la medida de posibilidad de cada municipio el beneficio social de las personas y sus familias que utilizan a estos animales como parte de su trabajo y sustento.
