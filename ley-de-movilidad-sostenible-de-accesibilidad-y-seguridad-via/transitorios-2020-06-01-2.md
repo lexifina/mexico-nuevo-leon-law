@@ -1,0 +1,3 @@
+P.O. 1 DE JUNIO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 305. SE REFORMAN POR ADICIÓN Y MODIFICACIÓN DIVERSOS ARTÍCULOS DE LA LEY DE MOVILIDAD SOSTENIBLE Y ACCESIBILIDAD PARA EL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
