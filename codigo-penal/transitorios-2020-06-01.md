@@ -1,0 +1,3 @@
+P.O. 1 DE JUNIO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 296. SE ADICIONA UN PÁRRAFO CUARTO AL ARTÍCULO 392; Y SE REFORMA EL PRIMER PÁRRAFO Y SE DEROGA EL ÚLTIMO PÁRRAFO DEL ARTÍCULO 408 DEL CÓDIGO PENAL PARA EL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
