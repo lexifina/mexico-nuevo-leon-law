@@ -1,0 +1,3 @@
+P.O. 5 DE JUNIO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 297. SE REFORMA LA FRACCIÓN X Y SE ADICIONA LA FRACCIÓN X BIS AL PÁRRAFO PRIMERO DEL ARTÍCULO 7 DE LA LEY DE FOMENTO A LA MICRO, PEQUEÑA Y MEDIANA EMPRESA PARA EL ESTADO DE NUEVO LEÓN".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado de Nuevo León.
