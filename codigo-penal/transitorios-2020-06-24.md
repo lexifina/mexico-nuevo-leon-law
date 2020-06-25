@@ -1,0 +1,3 @@
+P.O. 24 DE JUNIO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 318. SE REFORMAN LOS PÁRRAFOS PRIMERO Y TERCERO DEL ARTÍCULO 287 BIS I Y EL PÁRRAFO PRIMERO DEL ARTICULO 287 BIS 2, DEL CÓDIGO PENAL PARA EL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
