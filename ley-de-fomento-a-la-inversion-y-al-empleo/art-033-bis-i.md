@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 29 DE JUNIO DE 2020)
+Artículo 33 Bis I. Los patrones que contraten a un Trabajador de Primer Empleo para ocupar puestos de nueva creación y lo inscriban ante el Instituto Mexicano del Seguro Social, y ante el padrón del Instituto Estatal de la Juventud, al que hace referencia el artículo 33 Bis II, gozarán de un estímulo que consiste en una reducción del cien por ciento sobre el pago del Impuesto Sobre Nóminas del Trabajador de Primer Empleo, por un periodo de veinticuatro meses a partir del registro.
+Dicha reducción, se aplicará directamente a la tasa del impuesto que se cause únicamente por los Trabajadores de Primer Empleo que ocupen un puesto de nueva creación, en el mismo periodo a declarar.
+Transcurrido el plazo señalado, las empresas dejarán de gozar el beneficio fiscal al que hace referencia este artículo, sobre los puestos de nueva creación.

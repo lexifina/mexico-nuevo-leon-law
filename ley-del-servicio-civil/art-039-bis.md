@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 29 DE JUNIO DE 2020)
+Artículo 39 Bis. En el caso de trabajadoras al servicio del Estado o cualquiera de sus municipios, para evitar prácticas discriminatorias por razón de género, se estará a lo siguiente, cuando dichas servidoras públicas se encuentren en estado de embarazo:
+I. No podrá darse por terminada su relación laboral, salvo que se compruebe mediante elementos suficientes que su terminación se debió a motivos distintos a su gestación; y
+II. Se tendrá por no aceptada su renuncia, a menos que se acredite que la misma fue libre y espontánea y haya elementos de prueba que permitan tener como verosímil que la trabajadora ha optado por prescindir de su empleo, sin afectación de los gastos que implica el alumbramiento y la necesidad de acceder a la atención médica, además de no haberse ejercido en ella actos de coacción con motivo del embarazo.
+Se procederá en términos similares en beneficio de la trabajadora o bien, del trabajador por el nacimiento de un hijo, dentro de los 90 días posteriores al nacimiento o adopción del menor.
