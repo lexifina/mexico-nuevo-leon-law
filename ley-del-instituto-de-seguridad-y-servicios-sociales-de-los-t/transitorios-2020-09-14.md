@@ -1,0 +1,3 @@
+P.O. 14 DE SEPTIEMBRE DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 345. SE REFORMA LA FRACCIÓN XXXIII DEL ARTÍCULO 3 DE LA LEY DE SEGURIDAD Y SERVICIOS SOCIALES DE LOS TRABAJADORES DEL ESTADO DE NUEVO LEÓN".]
+ARTÍCULO ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
