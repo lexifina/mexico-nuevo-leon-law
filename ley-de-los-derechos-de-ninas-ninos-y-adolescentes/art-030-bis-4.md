@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 26 DE OCTUBRE DE 2020)
+Artículo 30 Bis 4. Pueden ser adoptados niñas, niños y adolescentes que:
+I. No tengan quien ejerza sobre ellas o ellos la patria potestad;
+II. Sean expósitos o abandonados;
+III. Se encuentren en alguno de los supuestos anteriores y acogidos en Centros de Asistencia Social o bajo la tutela del Sistema Nacional DIF, de los Sistemas de las Entidades o de las Procuradurías de Protección, y
+IV. En todo caso se deberá contar con el informe de adoptabilidad.
+Cuando estén bajo patria potestad o tutela, quien la ejerce manifieste por escrito su consentimiento ante la Procuraduría de Protección, en los casos de proceso de adopción promovidos por ésta.

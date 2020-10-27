@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE OCTUBRE DE 2020)
+Artículo 30 Bis 1. Toda persona que encontrare una niña, niño o adolescente en situación de desamparo familiar, deberá presentarlo ante la Procuraduría de Protección, ante el Sistema Nacional DIF o ante el Sistema Estatal DIF, con las prendas, valores o cualesquiera otros objetos encontrados en su persona, y declarará el día, lugar y circunstancias en que lo hubiere hallado.
