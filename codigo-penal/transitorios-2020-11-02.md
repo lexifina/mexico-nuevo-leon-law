@@ -1,0 +1,3 @@
+P.O. 2 DE NOVIEMBRE DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 367. SE REFORMA LA FRACCIÓN XXIX; EL ÚLTIMO PÁRRAFO Y SE ADICIONAN LAS FRACCIONES XXX, XXXI Y XXXII, AL ARTÍCULO 224 DEL CÓDIGO PENAL PARA EL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
