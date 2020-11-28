@@ -1,0 +1,3 @@
+P.O. 27 DE NOVIEMBRE DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 383. SE REFORMAN LOS ARTÍCULOS 10, 34 FRACCIÓN III, 85 FRACCIÓN XIII Y 86 FRACCIÓN V, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN".]
+ÚNICO. El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
