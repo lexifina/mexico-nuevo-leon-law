@@ -1,0 +1,7 @@
+(NOTA: EL 27 DE FEBRERO DE 2023, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL APARTADO VII, ASÍ COMO EN EL RESOLUTIVO TERCERO DE LA SENTENCIA DICTADA AL RESOLVER LA CONTROVERSIA CONSTITUCIONAL 13/2021, DECLARÓ LA INVALIDEZ DE ESTE ARTÍCULO, LA CUAL SURTIÓ EFECTOS EL 1 DE MARZO DE 2023, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
+(ADICIONADO, P.O. 21 DE DICIEMBRE DE 2020)
+ARTICULO 24o BIS 1.- El Comité Científico de Grabados Inusuales será de carácter honorifico y estará integrado por cinco ciudadanos nombrados por el Consejo para la Cultura y las Artes de Nuevo León, previa convocatoria pública, nombrando a un presidente, un secretario, y tres vocales, de los cuales uno de ellos deberá ser nombrado a propuesta del Instituto Nacional de Antropología e Historia, y quienes deberán reunir los siguientes requisitos:
+I. Ser ciudadano mexicano en pleno goce y ejercicio de sus derechos;
+II. Contar con título y cedula profesional en ciencias de la tierra, biología, paleontología, o materias afines;
+III. Contar con publicaciones en revistas científicas sobre ciencias de la tierra, biología, paleontología, o materias afines; y
+IV. Ser avalado mediante una carta de recomendación por una institución académica o científica especializada en ciencias de la tierra, biología, paleontología, o materias afines, señalando el conocimiento con el que cuenta el ciudadano.
