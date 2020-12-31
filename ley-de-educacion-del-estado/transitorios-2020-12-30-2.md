@@ -1,0 +1,5 @@
+P.O. 30 DE DICIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 363. SE REFORMA EL INCISO E) DE LA FRACCIÓN III DEL ARTÍCULO 4, LAS FRACCIONES XIII, XVI, XIX Y XX DEL ARTÍCULO 16 Y LOS ARTÍCULOS 49, 50, 51, EL PRIMER PÁRRAFO DEL ARTÍCULO 87 Y LAS FRACCIONES VII Y VIII DEL ARTÍCULO 93; SE ADICIONAN LAS FRACCIONES XXI, XXII Y XXIII DEL ARTÍCULO 16 Y LA FRACCIÓN IX DEL ARTÍCULO 93, TODOS DE LA LEY DE EDUCACIÓN DEL ESTADO".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- La Secretaría de Educación del Estado, previo al inicio del ciclo escolar 2021-2022, deberá de contar con el programa integral educativo, señalado en la fracción XXI del artículo 16 del presente Decreto.
+TERCERO.- La Secretaría de Educación del Estado dispondrá de un plazo de hasta 180 días hábiles contados a partir de la entrada en vigor del presente Decreto, para realizar el protocolo de detección y atención temprana de educación especial que establece la fracción XXII del artículo 16 del presente Decreto.
