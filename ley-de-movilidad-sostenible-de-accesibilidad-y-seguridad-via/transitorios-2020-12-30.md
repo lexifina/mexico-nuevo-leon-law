@@ -1,0 +1,3 @@
+P.O. 30 DE DICIEMBRE DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 439. SE REFORMA LA LEY DE MOVILIDAD SOSTENIBLE Y ACCESIBILIDAD PARA EL ESTADO DE NUEVO LEÓN POR ADICIÓN DE UN ARTÍCULO TRANSITORIO DÉCIMO NOVENO".]
+UNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Nuevo León.
