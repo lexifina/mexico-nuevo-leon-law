@@ -1,0 +1,5 @@
+P.O. 30 DE DICIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 393. SE REFORMA LA FRACCIÓN IX DEL ARTÍCULO 10, EL ENCABEZADO Y LOS INCISOS D) Y E) DE LA FRACCIÓN III DEL ARTÍCULO 16, Y SE ADICIONA LA FRACCIÓN X RECORRIÉNDOSE LA ACTUAL FRACCIÓN X PARA SER LA NUEVA FRACCIÓN XI DEL ARTÍCULO 10; EL INCISO F) A LA FRACCIÓN III Y EL PÁRRAFO CUARTO AL ARTÍCULO 16, DE LA LEY DEL INSTITUTO ESTATAL DE LA JUVENTUD".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Las Dependencias del Poder Ejecutivo sujetas al presente Decreto contarán con un plazo no mayor a 90 días naturales contados a partir del día de la vigencia del presente Decreto para la modificación de sus respectivos Reglamentos.
+TERCERO.- Los Municipios en un plazo no mayor a 90 días naturales contados a partir del día de la vigencia del presente Decreto, adecuarán sus reglamentos respectivos para el cumplimiento de las disposiciones correspondientes al presente Decreto.
