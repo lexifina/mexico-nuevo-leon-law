@@ -1,0 +1,4 @@
+P.O. 1 DE FEBRERO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 437. SE ADICIONA LA FRACCIÓN ILL (SIC), RECORRIÉNDOSE LA ACTUAL FRACCIÓN III PARA SER LA NUEVA FRACCIÓN LV (SIC) DEL ARTÍCULO 11 Y SE REFORMAN LOS ARTÍCULOS 83 Y 85, TODOS DE LA LEY DE PROTECCIÓN Y BIENESTAR ANIMAL PARA LA SUSTENTABILIDAD DEL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado de Nuevo León.
+SEGUNDO.- En un plazo no mayor a 90- noventa días hábiles, contados a partir de la entrada en vigor del presente Decreto, la Secretaría de Desarrollo Sustentable del Estado de Nuevo León procederá a realizar los ajustes o adecuaciones necesarias para la expedición de la constancia de no existencia de sanción por ejercer algún tipo de maltrato o crueldad animal.
