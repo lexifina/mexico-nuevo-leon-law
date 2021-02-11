@@ -1,0 +1,4 @@
+P.O. 10 DE FEBRERO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 443. SE REFORMAN LA FRACCIÓN X DEL ARTÍCULO 119 Y EL ARTÍCULO 132 Y SE ADICIONAN LA FRACCIÓN XI RECORRIÉNDOSE LA ACTUAL FRACCIÓN XI PARA SER LA NUEVA FRACCIÓN XLL (SIC) DEL ARTÍCULO 119; Y EL ARTÍCULO 129 BIS DE LA LEY ESTATAL DE SALUD".]
+PRIMERO: El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO: Los Ayuntamientos tendrán un plazo de 10 días naturales contados a partir del día siguiente de la entrada en vigor del presente Decreto, para que establezcan en sus Reglamentos de Policía y Buen Gobierno o de Justicia Cívica, según el caso, el uso obligatorio del cubreboca por parte de la población cuando así lo determine la autoridad sanitaria estatal, como la correspondiente sanción por la respectiva infracción a dicho precepto, en términos de lo establecido en el mismo.
