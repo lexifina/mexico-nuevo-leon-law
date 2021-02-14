@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2020)
+Artículo 172 Bis 2.- Las dependencias y entidades de la Administración Pública Estatal, los Municipios, así como los poderes Legislativo y Judicial procurarán contar en sus instalaciones con al menos un contenedor de depósito de pilas.
+En todos los locales en donde se vendan o distribuyan al público en general pilas, baterías eléctricas o acumuladores, deberán contar en sus instalaciones con al menos un contenedor para el depósito de este tipo de residuos.
+Tanto las dependencias de gobierno, así como los distribuidores o vendedores, en coordinación con la Secretaría llevarán a cabo el plan de manejo para la disposición final de los residuos señalados en los párrafos anteriores, de conformidad con la Ley General para la Prevención y Gestión Integral de los Residuos.
+La Secretaría podrá llevar a cabo campañas informativas para dar a conocer a la ciudadanía los lugares de depósito a donde puede llevar las pilas, baterías eléctricas o acumuladores para su disposición final.
