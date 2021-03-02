@@ -1,0 +1,3 @@
+P.O. 1 DE MARZO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 446. SE REFORMA LA FRACCIÓN I DEL ARTÍCULO 2 Y LA FRACCIÓN V DEL ARTÍCULO 3 DE LA LEY DE PROTECCIÓN Y BIENESTAR ANIMAL PARA LA SUSTENTABILIDAD DEL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
