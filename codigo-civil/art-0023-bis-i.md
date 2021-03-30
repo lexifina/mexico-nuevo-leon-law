@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 13 DE OCTUBRE DE 2000)
-Art. 23 Bis I.- La minoría de edad, el estado de interdicción y las demás incapacidades establecidas por la ley, son restricciones a la personalidad jurídica; pero los incapaces pueden ejercitar sus derechos o contraer obligaciones por medio de sus representantes.
+(REFORMADO, P.O. 29 DE MARZO DE 2021)
+Art. 23 Bis I.- La minoría de edad, el estado de interdicción y las demás incapacidades establecidas por la ley, son restricciones a la personalidad jurídica; pero los incapaces pueden ejercitar (sic) sus derechos o contraer obligaciones por sí mismos o por medio de sus representantes, atendiendo a las características y circunstancias particulares de cada caso.

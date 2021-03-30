@@ -1,0 +1,3 @@
+P.O. 29 DE MARZO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 324. SE REFORMA LA FRACCIÓN XI DEL ARTÍCULO 121, Y SE ADICIONA EL ARTÍCULO 119 BIS, AMBOS DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES PARA EL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
