@@ -1,0 +1,3 @@
+P.O. 31 DE MARZO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 470. SE REFORMAN LAS FRACCIONES VII Y VIII, Y SE ADICIONA LA FRACCIÓN IX AL ARTÍCULO 15 DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Estado.
