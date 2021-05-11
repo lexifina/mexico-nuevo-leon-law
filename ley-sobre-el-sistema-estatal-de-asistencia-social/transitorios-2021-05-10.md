@@ -1,0 +1,4 @@
+P.O. 10 DE MAYO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 476. SE REFORMAN LAS FRACCIONES XXVII Y XXVIII; Y POR ADICIÓN LA FRACCIÓN XXIX AL ARTÍCULO 13, DE LA LEY SOBRE EL SISTEMA ESTATAL DE ASISTENCIA SOCIAL DEL ESTADO DE NUEVO LEÓN Y SE REFORMA LA FRACCIÓN VI DEL ARTÍCULO 60, LA FRACCIÓN XXXIV, XXXV Y XXXVI DEL ARTÍCULO 145 Y LA FRACCIÓN VI DEL ARTÍCULO 167; Y POR ADICIÓN DE LA FRACCIÓN XXXVII AL ARTÍCULO 145, TODOS DE LA LEY DE LOS DERECHOS DE LAS NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Para dar cumplimiento a las obligaciones emanadas del presente Decreto, estas se realizarán acorde a las capacidades financieras del Gobierno del Estado y se tomarán en cuenta en el Presupuesto de Egresos del ejercicio fiscal correspondiente.

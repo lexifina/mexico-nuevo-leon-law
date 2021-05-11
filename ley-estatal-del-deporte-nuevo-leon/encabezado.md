@@ -1,4 +1,4 @@
-LEY ESTATAL DEL DEPORTE
+LEY ESTATAL DEL DEPORTE DEL ESTADO DE NUEVO LEÓN
 Ley publicada en el Periódico Oficial del Estado de Nuevo León, el miércoles 17 de noviembre de 1993.
 EL CIUDADANO SOCRATES CUAUHTEMOC RIZZO GARCIA, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON, A TODOS SUS HABITANTES HAGO SABER.
 Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
