@@ -1,0 +1,3 @@
+P.O. 17 DE MAYO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 490. SE REFORMA (SIC) LAS FRACCIONES VI Y VII, Y SE ADICIONA UNA FRACCIÓN VIII AMBOS DEL ARTÍCULO 29 DE LA LEY QUE CREA LA UNIVERSIDAD DE CIENCIAS DE LA SEGURIDAD DEL ESTADO DE NUEVO LEÓN".]
+Único.- El presente decreto entrará en vigor el día siguiente al de su publicación en el periódico oficial del Estado.
