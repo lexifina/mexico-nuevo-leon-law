@@ -1,0 +1,3 @@
+P.O. 23 DE JULIO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 510. SE ADICIONA EL PÁRRAFO CUARTO, RECORRIÉNDOSE LOS SUBSECUENTES, AL ARTÍCULO 124 DE LA LEY DE LOS DERECHOS DE LAS NIÑAS, NIÑOS Y ADOLESCENTES PARA EL ESTADO DE NUEVO LEÓN".]
+Único.- El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Estado.
