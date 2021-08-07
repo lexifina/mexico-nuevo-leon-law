@@ -1,0 +1,5 @@
+P.O. 6 DE AGOSTO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 520. SE REFORMA LA DENOMINACIÓN DEL CAPÍTULO VI DEL TÍTULO DÉCIMO NOVENO QUE ACTUALMENTE SE DENOMINA "CHANTAJE" PARA PASAR A SER "EXTORSIÓN" Y LOS PÁRRAFOS PRIMERO, SEGUNDO, CUARTO Y QUINTO, ASÍ COMO LAS FRACCIONES I, II, III, IV, V, VI, VIII, IX Y X DEL MISMO PÁRRAFO QUINTO, TODO DEL ARTÍCULO 395 DEL CÓDIGO PENAL PARA EL ESTADO DE NUEVO LEÓN".]
+PRIMERO: El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO: Los procesos penales iniciados antes de la entrada en vigor del presente decreto, seguirán tramitándose hasta su conclusión conforme a las disposiciones vigentes al momento de la comisión de los hechos que dieron lugar a dicho proceso, excepto en los casos en que la reforma resulte más benéfica para el imputado, en atención al principio Pro-persona.
+TERCERO: Cualquier referencia al delito de chantaje contenida en el cuerpo del presente ordenamiento, se entenderá referido al delito de extorsión.
