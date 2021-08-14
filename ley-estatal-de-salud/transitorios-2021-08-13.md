@@ -1,0 +1,3 @@
+P.O. 13 DE AGOSTO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 512. SE REFORMAN LA FRACCIÓN I DE ARTÍCULO 3o; LA FRACCIÓN XII DEL ARTÍCULO 4o; LAS FRACCIONES II Y III DEL ARTÍCULO 39; Y LOS ARTÍCULOS 47 Y 124, TODOS DE LA LEY ESTATAL DE SALUD".]
+ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
