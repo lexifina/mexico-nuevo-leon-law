@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE AGOSTO DE 2021)
+Art. 6o Bis 1.- Los tres poderes del Gobierno del Estado y los ayuntamientos, deberán publicar y difundir por medio de sus Portales Oficiales de Internet un informe anual sobre el cumplimiento de lo dispuesto en esta Ley, incluyendo un listado de las personas responsables de cumplir con las obligaciones que establece la presente Ley, el porcentaje de personas capacitadas, desagregadas según su jerarquía. También deberán publicarse indicadores de evaluación sobre el impacto de la capacitación realizada.
