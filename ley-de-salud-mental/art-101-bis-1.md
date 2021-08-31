@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 30 DE AGOSTO DE 2021)
+Artículo 101 Bis 1.- En cuanto a la detección, prevención y atención del suicidio y sus conductas relacionadas, se entenderá por:
+I.- Conducta suicida: el conjunto de comportamientos relacionados con la intencionalidad de comunicar, actuar o ejecutar un acto autodestructivo que podría acabar con la propia vida;
+II.- Intento suicida: la acción autodestructiva a la que sobrevive la persona con ideación o conducta suicida.
+III. Posvención: Acciones e intervenciones posteriores a un intento suicida o a un suicidio destinadas a trabajar con las personas sobrevivientes y sus familias; y
+IV. Suicidio: Acto deliberado e intencional realizado por una persona para quitarse la vida.

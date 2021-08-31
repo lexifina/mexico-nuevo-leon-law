@@ -1,0 +1,5 @@
+P.O. 30 DE AGOSTO DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 536. SE REFORMA LA FRACCIÓN XVII DEL ARTÍCULO 4; Y SE ADICIONA UN CAPÍTULO XI BIS DENOMINADO "DE LA DETECCIÓN, PREVENCIÓN Y ATENCIÓN AL SUICIDIO" QUE CONSTA DE LOS ARTÍCULOS 101 BIS, 101 BIS 1, 101 BIS 2, 101 BIS 3 Y 101 BIS 4, TODOS DE LEY DE SALUD MENTAL PARA EL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- La Secretaría Estatal de Salud, tendrá un lapso de 90 días naturales contados a partir del día de la entrada en vigor del presente Decreto, para adecuar sus reglamentos correspondientes a fin de dar cumplimiento al contenido del mismo.
+TERCERO.- Las disposiciones contenidas en el presente Decreto estarán sujetas al presupuesto del año en curso. El Titular del Poder Ejecutivo del Estado de ser el caso, incluirá en el proyecto de Egresos del Estado para el Ejercicio 2022, los recursos necesarios para la aplicación del presente Decreto.

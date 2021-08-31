@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 30 DE AGOSTO DE 2021)
+Artículo 101 Bis 3.- Le corresponde al Instituto elaborar conforme a las políticas dictadas por la Secretaría de Salud, y dentro del marco de los sistemas nacional y estatal de salud, un programa anual de trabajo, en el que se refleje como mínimo, las bases para la atención del paciente con riesgo suicida o intento de suicidio, y sus familiares, el apoyo de un equipo interdisciplinario que asegure el acompañamiento durante su tratamiento y recuperación.
+Como parte del acompañamiento médico podrán participar miembros de la comunidad, círculo y familiares del paciente, siempre y cuando estos coadyuven efectivamente en su rehabilitación.
