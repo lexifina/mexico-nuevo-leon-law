@@ -1,0 +1,5 @@
+P.O. 30 DE NOVIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 017. SE REFORMAN LAS FRACCIONES XV Y XVI DEL ARTÍCULO 12, LA FRACCIÓN VIII DEL ARTÍCULO 70 Y FRACCIONES X Y XI DE ARTÍCULO 127; Y POR ADICIÓN DE LA FRACCIÓN XVII AL ARTÍCULO 12, LA FRACCIÓN X AL ARTÍCULO 70 Y LA FRACCIÓN XII AL ARTÍCULO 127, TODOS DE LA LEY DE MOVILIDAD SOSTENIBLE Y ACCESIBILIDAD PARA EL ESTADO DE NUEVO LEÓN".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Se le concede a la Secretaria de Movilidad y Planeación Urbana un término de 90 días hábiles a partir de la entrada en vigor del presente decreto, para que realice las adecuaciones al marco jurídico que resulten necesarias para la aplicación del presente decreto.
+TERCERO. Se le concede al Instituto de Movilidad y Accesibilidad un término de 90 días hábiles a partir de la publicación del presente decreto, para que realice las adecuaciones al marco jurídico que resulten necesarias para la aplicación del presente decreto.
