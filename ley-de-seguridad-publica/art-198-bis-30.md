@@ -11,3 +11,7 @@ d) La muerte.
 II. Extraordinaria, que comprende:
 a) La remoción del puesto, cargo o comisión por el incumplimiento de los requisitos de permanencia en la institución; y
 b) La terminación del ejercicio del cargo, debidamente emitida conforme a las disposiciones correspondientes.
+(ADICIONADO, P.O. 24 DE DICIEMBRE DE 2021)
+Si la autoridad jurisdiccional resolviere que la separación, baja, remoción, cese o cualquier otra forma de terminación del servicio fue injustificada, las Instituciones Policiales sólo estarán obligadas a pagar al servidor público la indemnización y las partes proporcionales de las prestaciones que le correspondan al momento de la terminación del servicio, sin que en ningún caso proceda su reincorporación al servicio, cualquiera que sea el resultado del juicio o medio de defensa que se hubiere promovido.
+(ADICIONADO, P.O. 24 DE DICIEMBRE DE 2021)
+En todo caso, la indemnización consistirá en tres meses de sueldo base. Las demás prestaciones comprenderán el sueldo base, así como los beneficios, recompensas, estipendios, asignaciones, gratificaciones, premios, retribuciones, subvenciones, haberes, dietas, compensaciones o cualquier otro concepto que percibía el interesado por la prestación de sus servicios, los cuales se computarán desde la fecha de su separación, baja, cese o remoción, hasta por un periodo máximo de doce meses.
