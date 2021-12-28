@@ -1,0 +1,6 @@
+P.O. 27 DE DICIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 024. SE REFORMAN LAS FRACCIONES II Y IV DEL ARTÍCULO 11, LAS FRACCIONES III Y IV DEL ARTÍCULO 14; Y POR ADICIÓN LA FRACCIÓN V AL ARTÍCULO 11 Y LA FRACCIÓN V AL ARTÍCULO 14, TODOS DE LA LEY DE PROTECCIÓN Y BIENESTAR ANIMAL PARA LA SUSTENTABILIDAD DEL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- El Estado deberá coordinarse con los 51 Municipios, en un término que no exceda de 2-dos años, contados a partir de la entrada en vigor del presente Decreto para dar cumplimiento a lo establecido en el mismo.
+TERCERO.- Los Municipios, darán cumplimiento a lo ordenado en el presente Decreto, en un plazo no mayor a 2-dos años, contados a partir de la entrada en vigor del presente Decreto. Lo cual se realizará de acuerdo a su partida presupuestal destinada para esta materia.
+CUARTO.- Los Municipios tendrán un plazo no mayor a 1-un año, contado a partir de la entrada en vigor del presente Decreto, para realizar las reformas necesarias y ajustar sus reglamentos a las disposiciones modificadas de esta Ley, o bien, emitir el reglamento municipal respectivo.

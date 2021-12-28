@@ -1,0 +1,5 @@
+P.O. 27 DE DICIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 084. SE REFORMA EL PRIMER PÁRRAFO DEL ARTÍCULO 30, LA FRACCIÓN V Y ÚLTIMO PÁRRAFO DEL ARTÍCULO 36, LOS PÁRRAFOS PRIMERO Y SEGUNDO DEL ARTÍCULO 43; SE ADICIONAN LAS FRACCIONES VI Y VII AL ARTÍCULO 36, TODOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado. Las reformas en materia de revocación de mandato a las que hace referencia el presente Decreto, así como las modificaciones que se realicen a las leyes correspondientes para regular dicha figura de conformidad a lo establecido en el transitorio SEGUNDO, entrarán en vigor a partir del 5 de octubre de 2025.
+SEGUNDO.- El H. Congreso del Estado de Nuevo León, dentro de los 90 días naturales posteriores a la entrada en vigor del presente Decreto, deberá realizar las modificaciones a las leyes correspondientes para regular la revocación de mandato y la consulta popular, en los términos del presente Decreto.
+TERCERO.-Se derogan todas las disposiciones que se opongan a lo dispuesto en el presente Decreto.
