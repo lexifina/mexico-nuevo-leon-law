@@ -1,10 +1,12 @@
-(ADICIONADO, P.O. 17 DE DICIEMBRE DE 2010)
-ARTICULO 276 Bis.- Por los servicios prestados por la Secretaría de Desarrollo Sustentable, se causarán los siguientes derechos:
+(REFORMADO PRIMER PÁRRAFO, P.O. 23 DE DICIEMBRE DE 2021)
+ARTICULO 276 Bis.- Por los servicios prestados por la Secretaría de Medio Ambiente, se causarán los siguientes derechos:
 ConceptoTARIFA
+(ADICIONADA, P.O. 17 DE DICIEMBRE DE 2010)
 I.- En el rubro de prestadores de servicios ambientales
 a) Constancia de ingreso a la base de datos
 de prestadores de servicio en materia ambiental
 y su renovación anual68.5 cuotas
+(ADICIONADA, P.O. 17 DE DICIEMBRE DE 2010)
 II.- En el rubro de impacto ambiental:
 a) Evaluación de informe preventivo187.5 cuotas
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
@@ -12,6 +14,7 @@ b) Evaluación de manifestaciones de impacto
 ambiental, en la modalidad general e industrial500 cuotas
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
 c) Evaluación de estudio de riesgo500 cuotas
+(ADICIONADA, P.O. 17 DE DICIEMBRE DE 2010)
 III.- En el rubro de residuos:
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
 a) Constancia de ingreso a la base de datos de
@@ -52,6 +55,7 @@ de baños portátiles90 cuotas
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 2018)
 k) Validación al registro de los Planes de Manejo de
 Residuos de Manejo Especial75 cuotas
+(ADICIONADA, P.O. 17 DE DICIEMBRE DE 2010)
 IV.- En el rubro de aguas residuales:
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
 a) Constancia de ingreso a la base de datos
@@ -78,73 +82,54 @@ anual95 cuotas
 d) (DEROGADO, P.O. 31 DE DICIEMBRE DE 2018) (F. DE E., P.O. 14 DE ENERO DE 2019)
 (REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
 VI.- Certificación estatal de cumplimiento ambiental25 cuotas
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
-VII.- Evaluación de Impacto Urbano Regional500 cuotas
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2019)
-VIII.- Evaluación de Congruencia en planes o programas municipales de desarrollo urbano, de planes o programas de desarrollo urbano de centros de población o su modificación total o parcial:
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2019)
-a) De municipios con una población mayor a 500,000 habitantes conforme a información oficial más reciente que hubiera dado a conocer el Instituto Nacional de Estadística y Geografía500 cuotas
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2019)
-b) De municipios con una población mayor a 200,000 hasta 500,000 habitantes conforme a la información oficial más reciente que hubiera dado a conocer el Instituto Nacional de Estadística y Geografía300 cuotas
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2019)
-c) De municipios con una población hasta 200,000 habitantes conforme a la información oficial más reciente que hubiera dado a conocer el Instituto Nacional de Estadística y Geografía200 cuotas
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2016)
-IX.- Evaluación de Congruencia en planes
-o programas parciales de desarrollo urbano375 cuotas
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2019)
-X.- Evaluación de Medidas de Mitigación en zonas de riesgo:
-(ADICIONADO CON SUS NUMERALES, P.O. 30 DE DICIEMBRE DE 2019)
-a) Para fraccionamientos o conjuntos urbanos, edificaciones u obras en predios ubicados en área urbanizable:
-1. Inmuebles con superficie de hasta 499 metros cuadrados75 cuotas
-2. Inmuebles con superficie mayor a 499 y hasta 999 metros cuadrados187.50 cuotas
-3. Inmuebles con superficie mayor a 999 metros cuadrados500 cuotas
-(ADICIONADO CON SUS NUMERALES, P.O. 30 DE DICIEMBRE DE 2019)
-b) Para construcciones en inmuebles ubicados en áreas urbanizadas:
-1. Inmuebles con superficie de hasta 499 metros cuadrados30 cuotas
-2. Inmuebles con superficie mayor a 499 y hasta 999 metros cuadrados50 cuotas
-3. Inmuebles con superficie mayor a 999 metros cuadrados100 cuotas
-XI.- (DEROGADA, P.O. 30 DE DICIEMBRE DE 2019)
-XII.- (DEROGADA, P.O. 30 DE DICIEMBRE DE 2019)
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2015)
-XIII.- Asistencia Técnica del Centro de Colaboración
-Geoespacial187.50 cuotas
-XIV.- (DEROGADA, P.O. 30 DE DICIEMBRE DE 2019)
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2021)
+VII.- Evaluación y elaboración de la cédula de ingreso al registro estatal:
+a) De asociaciones protectoras de animales y organizaciones no
+gubernamentales dedicadas a la protección y bienestar
+animal20 cuotas
+b) De individuos y/o profesionales dedicados a la protección y bienestar
+animal15 cuotas
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2021)
+VIII.- Evaluación y elaboración de la cédula de ingreso al
+registro estatal de establecimientos que se dediquen a la
+crianza y/o venta de animales150 cuotas
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2021)
+IX.- Análisis del registro de las personas físicas y morales que
+se dediquen o realicen actividades de exhibición, trabajo,
+deportivas, competencias y/o adiestramiento de animales40 cuotas
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2021)
+X.- Evaluación y elaboración de la cédula de ingreso al
+registro estatal de las personas físicas y morales que se
+dediquen o realicen actividades de atención médica y/o
+centros de atención veterinaria35 cuotas
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2021)
+XI.- Evaluación y elaboración de la cédula de ingreso al
+registro estatal de establecimientos físicos o móviles que
+proporcionen un servicio de limpieza, cuidado y/o
+resguardo de animales40 cuotas
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2021)
+XII.- Evaluación, elaboración y análisis relativo al certificado
+de procedencia, respecto de animales destinados a la
+venta, por cada animal6 cuotas
+(REFORMADA, P.O. 23 DE DICIEMBRE DE 2021)
+XIII.- Evaluación de la factibilidad de aprovechamiento de
+recursos minerales no reservados a la Federación150 cuotas
+(ADICIONADA, P.O. 23 DE DICIEMBRE DE 2021)
+XIV.- Verificación Vehicular0 cuotas
 XV.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
 XVI.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
 XVII.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
 XVIII.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
 XIX.- (DEROGADA, P.O. 31 DE DICIEMBRE DE 2018)
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2019)
-XX.- Evaluación y elaboración de la cédula de ingreso al registro estatal.
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2019)
-a) De asociaciones protectoras de animales y organizaciones no gubernamentales dedicadas a la protección y bienestar animal20 cuotas
-(ADICIONADO, P.O. 30 DE DICIEMBRE DE 2019)
-b) De individuos y/o profesionales dedicados a la protección y bienestar animal15 cuotas
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
-XXI.- Evaluación y elaboración de la cedula de
-ingreso al registro estatal de establecimientos que se
-dediquen a la crianza y/o venta de animales150 cuotas
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2019)
-XXII.- Análisis del registro de las personas físicas y morales que se dediquen o realicen actividades de exhibición, trabajo, deportivas, competencias y/o adiestramiento de animales40 cuotas
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2019)
-XXIII.- Evaluación y elaboración de la cédula de ingreso al registro estatal de las personas físicas y morales que se dediquen o realicen actividades de atención médica y/o centros de atención veterinaria35 cuotas
-(REFORMADA, P.O. 30 DE DICIEMBRE DE 2019)
-XXIV.- Evaluación y elaboración de la cédula de ingreso al registro estatal de establecimientos físicos o móviles que proporcionen un servicio de limpieza, cuidado y/o resguardo de animales40 cuotas
-(ADICIONADA, P.O. 30 DE DICIEMBRE DE 2016)
-XXV.- Evaluación, elaboración y análisis relativo al
-certificado de procedencia, respecto de animales
-destinados a la venta, por cada animal6 cuotas
-(ADICIONADA, P.O. 31 DE DICIEMBRE DE 2018)
-XXVI.- Evaluación de la factibilidad de aprovechamiento
-de recursos minerales no reservados a la Federación150 cuotas
-(ADICIONADA CON SUS INCISOS, P.O. 30 DE DICIEMBRE DE 2019)
-XXVII.- Procedimiento de análisis y evaluación para la emisión de Certificado de Laboratorios en materia de pavimentos
-a) Por primera vez87 cuotas
-b) Renovación de Certificado87 cuotas
-(ADICIONADA CON SUS INCISOS, P.O. 30 DE DICIEMBRE DE 2019)
-XXVIII.- Procedimiento de análisis y evaluación para la emisión de Certificado de Profesionales Responsables en materia de pavimentos:
-a) Por primera vez46 cuotas
-b) Renovación de Certificado31 cuotas
-(REFORMADA SU DENOMINACIÓN, P.O. 31 DE DICIEMBRE DE 1993)
+XX.- (DEROGADA, P.O. 23 DE DICIEMBRE DE 2021)
+XXI.- (DEROGADA, P.O. 23 DE DICIEMBRE DE 2021)
+XXII.- (DEROGADA, P.O. 23 DE DICIEMBRE DE 2021)
+XXIII.- (DEROGADA, P.O. 23 DE DICIEMBRE DE 2021)
+XXIV.- (DEROGADA, P.O. 23 DE DICIEMBRE DE 2021)
+XXV.- (DEROGADA, P.O. 23 DE DICIEMBRE DE 2021)
+XXVI.- (DEROGADA, P.O. 23 DE DICIEMBRE DE 2021)
+XXVII.- (DEROGADA, P.O. 23 DE DICIEMBRE DE 2021)
+XXVIII.- (DEROGADA, P.O. 23 DE DICIEMBRE DE 2021)
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 23 DE DICIEMBRE DE 2021)
 CAPITULO SEPTIMO
-De los Derechos por Servicios Prestados por Diversas Dependencias y Entidades de los Poderes Legislativo, Ejecutivo y Judicial
+De los Derechos por Servicios Prestados por la Secretaría de Movilidad y Planeación Urbana

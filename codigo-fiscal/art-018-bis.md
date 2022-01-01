@@ -5,6 +5,3 @@ En los casos en que el Índice Nacional de Precios al Consumidor del mes anterio
 Los valores de bienes u operaciones se actualizarán conforme a lo dispuesto por este artículo, cuando las leyes fiscales así lo determinen. Las disposiciones legales señalarán en cada caso el período de actualización de que se trate.
 Las cantidades actualizadas conservan la naturaleza jurídica que poseían antes de la actualización. El monto de ésta, determinado en las declaraciones mensuales, no será deducible ni tampoco acreditable en relación con las contribuciones estatales y municipales.
 Para los efectos de este artículo se aplicará el Índice Nacional de Precios al Consumidor, calculado por el Instituto Nacional de Estadística y Geografía, que se publica en el Diario Oficial de la Federación.
-TITULO II
-CAPITULO UNICO
-De los Derechos y Obligaciones de los Contribuyentes

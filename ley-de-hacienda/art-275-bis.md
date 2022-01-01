@@ -69,6 +69,6 @@ d) Cambio de representante legal N$400.00
 e) Cambio de personal docente N$400.00
 f) Cambio de persona física a personal moral N$1,000.00
 Los derechos de refrendo anual a que se refiere este artículo deberán cubrirse durante el mes de Marzo de cada año.
-(REUBICADO [N. DE E. ANTES CAPÍTULO CUARTO] Y REFORMADA SU DENOMINACIÓN, P.O. 31 DE DICIEMBRE DE 1993)
+(REFORMADA SU DENOMINACIÓN, P.O. 23 DE DICIEMBRE DE 2021)
 CAPITULO QUINTO
-De los Derechos por Servicios Prestados por la Secretaría de Finanzas y Tesorería General
+De los Derechos por Servicios Prestados por la Secretaría de Finanzas y Tesorería General del Estado y Otros Organismos

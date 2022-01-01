@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2021)
+ARTICULO 80 Bis-1.- A quien cometa la infracción relacionada con la no habilitación del buzón tributario, el no registro o actualización de los medios de contacto conforme a lo previsto en el artículo 80 Bis, se impondrá una multa de 34 a 103 cuotas.

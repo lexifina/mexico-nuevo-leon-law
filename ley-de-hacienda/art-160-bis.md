@@ -4,6 +4,7 @@ I.- Cuando no presenten sus declaraciones, no lleven los libros o registros que 
 II.- Cuando por los informes que se obtengan se ponga de manifiesto que se han efectuado erogaciones gravadas que exceden del 3% de las declaradas por el causante.
 Para practicar las estimaciones a que se refiere este Artículo, se tendrán en cuenta:
 a) Las erogaciones realizadas, declaradas en los últimos doce meses.
-b) Las manifestaciones presentadas por concepto de Impuesto sobre la Renta, Sobre Productos del Trabajo en los últimos doce meses.
+(REFORMADO, P.O. 23 DE DICIEMBRE DE 2021)
+b) Las manifestaciones presentadas por concepto de Impuesto sobre la Renta, en el rubro de Sueldos y Salarios en la Declaración Anual.
 (REFORMADO, P.O. DE 26 DE DICIEMBRE DE 2001)
 c) Las actividades realizadas por el causante y otros datos que puedan utilizarse, obtenidos a través de las facultades de comprobación de la autoridad fiscal.

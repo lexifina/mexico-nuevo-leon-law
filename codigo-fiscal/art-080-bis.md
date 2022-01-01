@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2021)
+ARTICULO 80 Bis.- Se considera infracción en la que pueden incurrir los contribuyentes conforme lo previsto en el artículo 18 Bis-1 de este Código, el no habilitar el buzón tributario, no registrar o no mantener actualizados los medios de contacto conforme lo previsto en el mismo.

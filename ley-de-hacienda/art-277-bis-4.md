@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2021)
+ARTICULO 277 Bis-4.- Los sujetos obligados al pago del derecho previsto en este Capítulo deberán obtener de la Secretaría de Finanzas y Tesorería General del Estado un holograma que reúna las características que mediante reglas de carácter general fije la misma Secretaría. Este holograma deberá adherirse a la máquina de juegos en un lugar visible y permanecer en él hasta que se adhiera un nuevo holograma y servirá como constancia de ingreso a la base de datos y actualización del mismo.

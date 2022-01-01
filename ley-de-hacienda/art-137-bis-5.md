@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2021)
+ARTICULO 137 Bis-5.- Para efectos del presente Capítulo, para determinar la base gravable las autoridades fiscales podrán considerar:
+I. Los libros y registros sean cual fuera su denominación, que los sujetos obligados al pago de los impuestos establecidos en este Capítulo deban llevar conforme a las disposiciones legales sean de carácter fiscal, mercantil o para dar cumplimiento a las Normas Oficiales Mexicanas en materia de ecología y medio ambiente; y
+II. Cuando no sea posible determinar la base gravable en los términos de la fracción anterior, las autoridades fiscales podrán estimar los impuestos establecidos en este Capítulo, a partir de las Manifestaciones de Impacto Ambiental, Cédulas de Operación Anual y demás documentos de carácter ambiental que los contribuyentes se encuentren obligados a generar.

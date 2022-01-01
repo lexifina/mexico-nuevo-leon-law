@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2021)
+ARTICULO 277 Bis-1.- Las personas físicas y morales que operen bajo cualquier título (sic) establecimientos mercantiles en el Estado de Nuevo León, en los que se encuentren instalados o se instalen máquinas o equipos que permitan al público que accede a dichos locales el participar en juegos de apuestas de cualquier clase que otorguen premios en dinero o en especie o en juegos en los que el premio se obtenga por la destreza del participante o el azar, pagarán el derecho establecido en este Capítulo, por cada máquina o equipo que se encuentre en los citados establecimientos mercantiles.
+Las máquinas a que se refiere esta disposición son aquellas definidas en el artículo 10 párrafos segundo y tercero de esta Ley.
