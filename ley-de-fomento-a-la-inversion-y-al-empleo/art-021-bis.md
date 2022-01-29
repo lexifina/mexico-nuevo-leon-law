@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 15 DE SEPTIEMBRE DE 2021)
-Artículo 21 Bis. Para el otorgamiento de los incentivos contemplados en el Artículo 27, fracción I, inciso a) de la presente Ley, el Consejo deberá dar preferencia a aquellas empresas de nueva creación denominadas empresa emergente o "Startups", y a aquellas empresas que dentro de su plantilla laboral tengan a trabajadores de primer empleo y a personas adultas mayores.
+(REFORMADO, P.O. 28 DE ENERO DE 2022)
+Artículo 21 Bis. Para el otorgamiento de los incentivos contemplados en el artículo 27, fracción I, inciso a) de la presente Ley, el Consejo deberá dar preferencia a aquellas empresas de nueva creación denominadas empresa emergente o "Startups", y a aquellas empresas que dentro de su plantilla laboral tengan trabajadores de primer empleo, a personas adultas mayores, mujeres en situación de vulnerabilidad y a aquellas que tengan instaladas guarderías en sus empresas.
