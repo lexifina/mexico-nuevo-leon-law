@@ -1,0 +1,5 @@
+LEY DE PRESTACIÓN DE SERVICIOS PARA LA ATENCIÓN, CUIDADO Y DESARROLLO INTEGRAL INFANTIL DEL ESTADO DE NUEVO LEÓN
+Ley publicada en la Sección Cuarta del Número 16 del Periódico Oficial del Estado de Nuevo León, el viernes 28 de enero de 2022.
+DR. SAMUEL ALEJANDRO GARCÍA SEPÚLVEDA, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN, A TODOS SUS HABITANTES HAGO SABER: Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
+DECRETO
+NÚMERO 030
