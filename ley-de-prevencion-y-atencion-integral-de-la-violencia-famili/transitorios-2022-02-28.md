@@ -1,0 +1,5 @@
+P.O. 28 DE FEBRERO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 092. SE TIENEN POR RECIBIDAS EN TIEMPO Y FORMA LAS OBSERVACIONES AL DECRETO NO. 445 DE FECHA 16 DE FEBRERO (SIC) 2021 DE LA LXXV LEGISLATURA, POR EL QUE SE REFORMA LA LEY DE PREVENCIÓN Y ATENCIÓN INTEGRAL DE LA VIOLENCIA FAMILIAR EN EL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- El Ejecutivo del Estado, de acuerdo a su capacidad financiera destinará en el ejercicio fiscal siguiente al que entre en vigor el presente Decreto una partida presupuestal que permita al Sistema para el Desarrollo Integral de la Familia del Estado, contar con los recursos suficientes para la coordinación de la ejecución del Programa Estatal para la Prevención y Atención Integral de la Violencia Familiar.
+Para el caso del ejercicio fiscal del año en que entre en vigor el presente Decreto el Sistema para el Desarrollo Integral de la Familia del Estado, realizara las funciones de coordinación de la ejecución del programa con los recursos humanos y materiales con los que cuente.
