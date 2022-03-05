@@ -1,5 +1,4 @@
-(NOTA: EL 26 DE OCTUBRE DE 2017, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO QUINTO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 83/2017 Y SUS ACUMULADAS 88/2017, 89/2017, 91/2017, 92/2017, 96/2017 Y 98/2017, DECLARÓ LA INVALIDEZ DE ESTE ARTÍCULO, LA CUAL SURTIÓ EFECTOS EL 27 DE OCTUBRE DE 2017 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/).
-(ADICIONADO, P.O. 10 DE JULIO DE 2017)
-Artículo 81 Bis 4. Al convenio de candidatura común se acompañará lo siguiente:
-I. El compromiso por escrito de que los partidos políticos postulantes del candidato común entregaran en tiempo y forma al Consejo General su plataforma electoral por cada uno de ellos; y
+(REFORMADO, P.O. 4 DE MARZO DE 2022)
+Artículo 81 bis 4. Al convenio de candidatura común se acompañará lo siguiente:
+I. El compromiso por escrito de que los partidos políticos postulantes de la candidatura común entregarán en tiempo y forma al Consejo General su plataforma electoral por cada una de ellas; y
 II. Las actas que acrediten que los partidos aprobaron de conformidad con sus estatutos, la firma del convenio de candidatura común para la elección que corresponda.

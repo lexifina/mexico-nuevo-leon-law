@@ -1,4 +1,4 @@
-(NOTA: EL 26 DE OCTUBRE DE 2017, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO QUINTO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 83/2017 Y SUS ACUMULADAS 88/2017, 89/2017, 91/2017, 92/2017, 96/2017 Y 98/2017, DECLARÓ LA INVALIDEZ DE ESTE ARTÍCULO, LA CUAL SURTIÓ EFECTOS EL 27 DE OCTUBRE DE 2017 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/).
-(ADICIONADO, P.O. 10 DE JULIO DE 2017)
-Artículo 81 Bis 6. Los partidos políticos que postulen candidatos comunes no podrán postular candidatos propios ni de otros partidos políticos para la elección que convinieron la candidatura común.
+(REFORMADO, P.O. 4 DE MARZO DE 2022)
+Artículo 81 bis 6. Los partidos políticos que postulen candidaturas comunesno (sic) podrán postular candidatos propios ni de otros partidos políticos para la elección que convinieron la candidatura común.
 Los partidos políticos que postulen candidaturas comunes deberán sujetarse en materia de prerrogativas, obligaciones, financiamiento, gastos de campaña, representación, y asignación de tiempo en radio y televisión a las reglas generales de coaliciones establecidas en esta ley y en las leyes generales en materia electoral.
+R(REFORMADO, P.O. 4 DE MARZO DE 2022)

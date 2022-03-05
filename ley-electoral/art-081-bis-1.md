@@ -1,3 +1,2 @@
-(NOTA: EL 26 DE OCTUBRE DE 2017, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO QUINTO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 83/2017 Y SUS ACUMULADAS 88/2017, 89/2017, 91/2017, 92/2017, 96/2017 Y 98/2017, DECLARÓ LA INVALIDEZ DE ESTE ARTÍCULO, LA CUAL SURTIÓ EFECTOS EL 27 DE OCTUBRE DE 2017 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/).
-(ADICIONADO, P.O. 10 DE JULIO DE 2017)
-Artículo 81 Bis 1. La candidatura común es la unión de dos o más partidos políticos, sin mediar coalición, para postular al mismo candidato a Gobernador, o planillas para Ayuntamiento, cumpliendo los requisitos de esta Ley.
+(REFORMADO [N. DE E. REPUBLICADO], P.O. 4 DE MARZO DE 2022)
+Artículo 81 bis 1. La candidatura común es la unión de dos o más partidos políticos, sin mediar coalición, para postular al mismo candidato a Gobernador, o planillas para (sic) Ayuntamiento, cumpliendo los requisitos de esta Ley.

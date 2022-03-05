@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 4 DE MARZO DE 2022)
+Artículo 144 bis 2. Los partidos políticos y coaliciones deberán postular cuando menos el veinte por ciento del total de sus candidaturas para las elecciones de Diputaciones Locales y Ayuntamientos a personas que tengan entre veintiuno a treinta y cinco años.
+Las candidaturas independientes deberán garantizar la postulación de por lo menos el veinte por ciento del total de sus candidaturas a los Ayuntamientos, a personas que tengan entre veintiuno a treinta y cinco años.
+Estas candidaturas podrán realizarse en fórmula o individualmente un integrante de una fórmula en la cual la otra persona no sea considerada joven.
+En todo caso, en el conjunto de postulaciones realizadas por un partido político o coalición, tanto en candidaturas propietarias y suplentes, en cada una de ellas se debe postular al menos veinte por ciento de personas que tengan entre veintiuno a treinta y cinco años cumplidos a más tardar el día de la elección.
+Para el caso de los partidos políticos que participan en coalición podrán ser acumulables las postulaciones de candidaturas que realicen a través de la coalición y las que realicen en lo individual.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE MARZO DE 2022)
+Artículo 146 bis 1. La paridad horizontal en la postulación de candidaturas para los ayuntamientos del estado consiste en que los partidos políticos deberán registrar un cincuenta por ciento de la totalidad de postulaciones que realicen de candidaturas a las presidencias municipales con géneros distintos; con la salvedad de que cuando sea un número impar, la candidatura excedente será para el género femenino.
