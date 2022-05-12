@@ -1,0 +1,3 @@
+P.O. 11 DE MAYO DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 123. SE REFORMA EL ÚLTIMO PÁRRAFO DEL ARTÍCULO 126 BIS 13, PRIMER PÁRRAFO DEL ARTÍCULO 191 Y EL ARTÍCULO 193 TODOS DE LA LEY AMBIENTAL DEL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial del Estado.
