@@ -1,0 +1,3 @@
+P.O. 18 DE MAYO DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 126. SE REFORMAN LAS FRACCIONES LIV Y LV Y SE ADICIONA LA FRACCIÓN LVI AL ARTÍCULO 14 DE LA LEY ORGÁNICA DE LA FISCALÍA GENERAL DE JUSTICIA DEL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
