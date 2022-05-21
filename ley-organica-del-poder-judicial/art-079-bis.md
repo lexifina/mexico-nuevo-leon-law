@@ -1,5 +1,8 @@
+(REFORMADO PRIMER PÁRRAFO, P.O. 20 DE MAYO DE 2022)
+ARTÍCULO 79 BIS.- El Centro Estatal de Convivencia Familiar será un órgano del Consejo de la Judicatura del Estado, con autonomía técnica y operativa, que tiene por objetivo facilitar la convivencia paterno-filial en los casos que a juicio de los titulares de los Juzgados y Salas de lo Familiar, así como del Sistema para el Desarrollo Integral de la Familia, ésta no pueda cumplirse de manera libre y se considere necesario velar por el interés superior del menor.
+(REFORMADO, P.O. 20 DE MAYO DE 2022)
+Los servicios que este Centro brinde serán prestados de forma gratuita y se proporcionarán en los términos establecidos en su reglamento interno, en esta Ley y en las demás disposiciones legales aplicables.
+(REFORMADO, P.O. 20 DE MAYO DE 2022)
+El Centro Estatal de Convivencia Familiar estará integrado por su titular, así como por el personal necesario para el cumplimiento de sus funciones.
 (ADICIONADO, P.O. 19 DE MAYO DE 2008)
-ARTÍCULO 79 BIS.- El Centro Estatal de Convivencia Familiar será un órgano del Consejo de la Judicatura del Estado, con autonomía técnica y operativa, que tiene por objetivo facilitar la convivencia paterno-filial en los casos que a juicio de los titulares de los Juzgados y Salas de lo Familiar, así como del Sistema para el Desarrollo Integral de la Familia, ésta no pueda cumplirse de manera libre y se considere necesario el interés superior del menor.
-Los servicios que este Centro brinde serán prestados de forma gratuita y se proporcionaran en sus propios espacios e instalaciones.
-El Centro Estatal de Convivencia Familiar estará integrado además de su Titular, así como del personal necesario para el cumplimiento de sus funciones.
 Para ser Director del Centro Estatal de Convivencia Familiar se deberán reunir los requisitos señalados por las fracciones I, II, IV y V del artículo 98 de la Constitución Política del Estado de Nuevo León, además deberá poseer título con antigüedad de cinco años a nivel licenciatura con especialidad en menores y/o relaciones familiares, preferentemente en cualesquiera de las siguientes ramas: Derecho, Psicología o Trabajo Social; y acreditar la experiencia y capacidad indispensable para el desempeño del cargo.

@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 20 DE MAYO DE 2022)
+ARTÍCULO 48 BIS 6.- Cuando los Juzgados se constituyan para actuar en forma colaborativa se integrará con el número de jueces que determine el Consejo de la Judicatura, quienes podrán intervenir individual e indistintamente en todos los actos de los procesos judiciales a cargo del órgano jurisdiccional y sus decisiones serán unitarias.
+El Consejo de la Judicatura establecerá sus reglas de operación y funcionamiento.
