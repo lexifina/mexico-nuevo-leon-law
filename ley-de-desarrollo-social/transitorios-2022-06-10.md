@@ -1,0 +1,4 @@
+P.O. 10 DE JUNIO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 143. SE REFORMAN LAS FRACCIONES X Y XI DEL ARTÍCULO 7°, Y LA DENOMINACIÓN DEL TÍTULO IV "DE LA PLANEACIÓN, DIFUSIÓN, PARTICIPACIÓN CIUDADANA Y BENEFICIARIOS", LA DENOMINACIÓN DEL CAPÍTULO I DEL TÍTULO IV "PLANEACIÓN Y DIFUSIÓN DEL DESARROLLO SOCIAL"; SE ADICIONA UNA FRACCIÓN XII AL ARTÍCULO 7° Y UN ARTÍCULO 19 BIS, TODOS DE LA LEY DE DESARROLLO SOCIAL PARA EL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Para dar cumplimiento a las acciones emanadas del presente Decreto, estas se programarán acorde a las capacidades financieras del Gobierno del Estado tomando en cuenta el Presupuesto de Egresos del ejercicio fiscal correspondiente.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE JUNIO DE 2022)
+Artículo 32 Bis 3.- Las autoridades correspondientes, contarán con protocolos de acción, reacción y contingencia, articulado entre los cuerpos de auxilio, los cuerpos de seguridad pública del Estado y los Municipios en cuestión, y los cuerpos de seguridad privada que estén al interior y exterior del inmueble donde se lleve (sic) cabo el evento para la debida atención y cuidado de los asistentes.

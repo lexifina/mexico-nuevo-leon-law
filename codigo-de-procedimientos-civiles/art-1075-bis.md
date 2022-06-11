@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE JUNIO DE 2022)
+Artículo 1075 Bis.- Si el obligado mediante resolución judicial al pago de la pensión alimenticia, provisional o definitiva, dejara de cubrirla sin causa justificada por un período mayor de sesenta días, la Autoridad competente de inmediato, deberá dar aviso a las autoridades migratorias y demás competentes de conformidad con el artículo 48, fracción VI de la Ley de Migración, a fin de restringir la salida del país del deudor alimentista, siempre que ésta sea una medida idónea para el cumplimiento de la obligación alimentaria.
