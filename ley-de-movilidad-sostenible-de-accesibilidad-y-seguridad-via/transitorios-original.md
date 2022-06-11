@@ -14,7 +14,10 @@ Décimo Segundo.- El Consejo Consultivo de Movilidad y Accesibilidad deberá con
 Décimo Tercero.- La Agencia para Racionalización y Modernización expedirá permisos provisionales hasta la entrada plena en vigor de ésta Ley a los conductores de Empresas de Redes de Transporte con fundamento en éste artículo y los demás relativos de ésta Ley.
 Décimo Cuarto.- Se concede un término de tres meses a partir de la entrada en vigor de ésta Ley para que los conductores del SETIAP entreguen los requisitos establecidos en el artículo 99 de esta Ley a las Empresas de Redes de Transporte.
 Décimo Quinto.- Se concede un término de seis meses a partir de la entrada en vigor de ésta Ley para que las Empresas de Redes de Transporte se pongan al corriente con la entrega de información ante el Instituto con fundamento en éste artículo y los demás relativos de ésta Ley.
-Décimo Sexto.- Se concede un término de cinco años a partir de la entrada en vigor de ésta Ley para que todos los vehículos del SETRA, SETME, SETIAP y Transporte de Carga sean cambiados por vehículos que utilicen energías limpias y adaptadas para personas con discapacidad.
+(REFORMADO, P.O. 10 DE JUNIO DE 2022)
+Décimo Sexto.- Se concede un término de cinco años a partir de la entrada en vigor de esta Ley para que todos los vehículos del SETRA, SETME, SETIAP y Transporte de Carga de jurisdicción estatal sean cambiados por vehículos que utilicen energías limpias.
+Al término del plazo de cinco años, sólo se otorgarán permisos y concesiones para el SETRA, SETME y SETIAP a vehículos que utilicen energías limpias.
+En el mismo plazo todos los vehículos del SETRA y SETME deberán ser adaptados para personas con discapacidad.
 Décimo Séptimo.- La gradualidad para la instalación del Sistema de Localización Vía Satelital, Sistema de Video Vigilancia, deberá preverse en el Reglamento de la presente Ley y comprenderá las disposiciones jurídicas que especifiquen detalladamente su objeto, funcionamiento y operación.
 Décimo Octavo.- Las estrategias de movilidad en bicicleta, señaladas en el artículo 119 se deberán de implementar máximo en un año contado a partir de la entrada en vigor del presente decreto.
 (ADICIONADO, P.O. 30 DE DICIEMBRE DE 2020)
@@ -25,7 +28,7 @@ Para aquellos vehículos de los prestadores de servicio de transporte público y
 En un plazo que no exceda de 30 días naturales posteriores a la entrada en vigor del presente decreto, el Instituto de Movilidad y Accesibilidad de Nuevo León emitirá las reglas a que se sujetará la expedición del visto bueno, así como las inspecciones documentales y las revisiones físico mecánicas señaladas en el párrafo anterior.
 Por lo tanto, envíese al Ejecutivo del Estado, para su promulgación y publicación en el Periódico Oficial del Estado.
 Dado en el Salón de Sesiones del H. Congreso del Estado Libre y Soberano de Nuevo León, en Monterrey, su Capital a los dieciocho días del mes de diciembre de dos mil diecinueve.
-PRESIDENTE: DIP. JUAN CARLOS RUÍZ GARCÍA; PRIMERA SECRETARIA: DIP. ALEJANDRA LARA MAIZ; SEGUNDA SECRETARIA: DIP. LETICIA MARLENE BENVENUTTI VILLARREAL.- Rúbricas.
+PRESIDENTE: DIP. JUAN CARLOS RUÍZ GARCÍA; PRIMERA SECRETARIA: DIP. ALEJANDRA LARA MAIZ; SEGUNDA SECRETARIA: DIP. LETICIA MARLENE BENVENUTII VILLARREAL.- Rúbricas.
 Por tanto mando se imprima, publique, circule y se le dé el debido cumplimiento. Dado en el Despacho del Poder Ejecutivo del Estado de Nuevo León, en Monterrey, su Capital, al día 20 de diciembre de 2019.
 EL C. GOBERNADOR CONSTITUCIONAL DEL ESTADO DE NUEVO LEÓN
 JAIME HELIODORO RODRÍGUEZ CALDERÓN
