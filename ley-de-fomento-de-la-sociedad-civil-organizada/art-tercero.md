@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- En razón de lo determinado en el artículo anterior, se modifican el Decreto No. 534 de fecha 21 de julio 2021 emitido por la LXXV Legislatura por el que se expide la Ley de Fomento de la Sociedad Civil Organizada para el Estado de Nuevo León, para quedar como sigue:

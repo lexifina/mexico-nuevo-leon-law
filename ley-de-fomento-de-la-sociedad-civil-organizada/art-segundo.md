@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- La LXXVI Legislatura al Congreso del Estado de Nuevo León, con fundamento en el artículo 71 de la Constitución Política del Estado Libre y Soberano de Nuevo León, determina atender parcialmente las observaciones al Decreto No. 534 de fecha 21 de julio 2021 emitido por la LXXV Legislatura.
