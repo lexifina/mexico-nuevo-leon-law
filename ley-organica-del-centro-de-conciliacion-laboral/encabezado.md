@@ -1,0 +1,7 @@
+LEY ORGÁNICA DEL CENTRO DE CONCILIACIÓN LABORAL DEL ESTADO DE NUEVO LEÓN
+Ley publicada en el número 128 del Periódico Oficial del Estado de Nuevo León, el viernes 9 de septiembre de 2022.
+DR. SAMUEL ALEJANDRO GARCÍA SEPÚLVEDA, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN, A TODOS SUS HABITANTES HAGO SABER: Que el H. Congreso del Estado ha tenido a bien decretar lo que sigue:
+DECRETO
+NÚMERO 224
+ÚNICO.- Se expide la Ley Orgánica del Centro de Conciliación Laboral del Estado de Nuevo León, para quedar como sigue:
+LEY ORGÁNICA DEL CENTRO DE CONCILIACIÓN LABORAL DEL ESTADO DE NUEVO LEÓN
