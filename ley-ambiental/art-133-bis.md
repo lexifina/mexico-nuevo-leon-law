@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 3 DE OCTUBRE DE 2022)
+Artículo 133 Bis.- Con el fin de reducir las emisiones contaminantes a la atmósfera, el Estado y los Municipios evitarán el uso de artificios pirotécnicos en los eventos públicos que estos lleven o cabo, cuando exista una contingencia ambiental.
+Los municipios deberán establecer como condicionante, al otorgar las autorizaciones o permisos para la realización de espectáculos, o en su caso, uso de uso de (sic) suelo para salones de eventos sociales o similares, la no utilización de artificios pirotécnicos, si existe al día del evento la declaración de contingencia ambiental.
