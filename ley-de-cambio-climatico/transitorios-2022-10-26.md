@@ -1,0 +1,3 @@
+P.O. 26 DE OCTUBRE DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 171. SE REFORMAN LAS FRACCIONES IV Y V, Y SE ADICIONA LA FRACCIÓN VI, TODAS DEL ARTÍCULO 31, DE LA LEY DE CAMBIO CLIMÁTICO DEL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial del Estado.
