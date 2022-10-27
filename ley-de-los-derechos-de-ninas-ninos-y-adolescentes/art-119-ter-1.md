@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE OCTUBRE DE 2022)
+Artículo 119 Ter 1. Para efectos de este Capítulo, las autoridades estatales y municipales, en el ámbito de sus respectivas competencias, deberán diseñar e implementar políticas públicas que contengan, al menos los elementos correspondientes al desarrollo prenatal, una alimentación adecuada, saludable, equilibrada para su nutrición, lactancia materna, y una salud preventiva materno infantil, para el debido desarrollo físico y psicológico de las niñas y niños en primera infancia.

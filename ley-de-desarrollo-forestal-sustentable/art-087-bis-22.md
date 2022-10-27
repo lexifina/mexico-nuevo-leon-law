@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE OCTUBRE DE 2022)
+Artículo 87 Bis 22.- Los Centros Municipales y/o Intermunicipales estarán encabezados por la persona que designe el Grupo Directivo, tomando en consideración las propuestas y opiniones de los presidentes municipales de los municipios en cuestión, así como las de los poseedores o propietarios de las tierras susceptibles de afectación por incendios forestales.

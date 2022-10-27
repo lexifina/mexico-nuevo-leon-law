@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 26 DE OCTUBRE DE 2022)
+Artículo 119 Ter 2. Las autoridades estatales y municipales, en el ámbito de sus respectivas competencias, están obligadas a realizar lo necesario para el desarrollo psicológico, a través de capacitación, asesoría continua y especializada al padre, madre o quienes ejerzan la tutela, guarda o custodia.
+Lo anterior, a fin de hacer posible una adecuada y oportuna estimulación temprana de niñas y niños durante la primera infancia, para un desarrollo integral, encaminada a optimizar sus capacidades cognitivas, físicas, emocionales, sociales, afectivas y lingüísticas.

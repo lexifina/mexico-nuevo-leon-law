@@ -1,0 +1,7 @@
+P.O. 26 DE OCTUBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 132. SE REFORMAN DIVERSOS ARTÍCULOS DE LA LEY ESTATAL DE DESARROLLO FORESTAL SUSTENTABLE".]
+PRIMERO.- El presente Decreto entrara en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- A partir de la publicación de la presente iniciativa de ley en el Periódico Oficial del Estado, el Ejecutivo Estatal en un plazo de 180 días hábiles siguientes a la entrada en vigor del presente Decreto, deberá adecuar el Reglamento de la Ley de conformidad con el presente Decreto.
+TERCERO.- El Ejecutivo Estatal, como presidente del Consejo Estatal Forestal, deberá convocar a dicho órgano dentro un plazo de 90 días hábiles siguientes a la entrada en vigor del presente Decreto, para efecto de constituir formalmente el Comité Estatal de Manejo del Fuego.
+CUARTO.- Una vez establecido formalmente el Comité Estatal de Manejo del Fuego, este deberá de llevar a cabo las acciones conducentes para la elaboración y validación del Primer Programa Estatal de Manejo del Fuego en un plazo de 180 días hábiles siguientes a la entrada en vigor del presente Decreto, el cual deberá de publicarse en el Periódico Oficial del Estado.
+QUINTO.- El Congreso del Estado contemplará en el Presupuesto de Egresos para el ejercicio fiscal 2023, la asignación y garantía de la suficiencia presupuestal para cumplir con las disposiciones previstas en el presente Decreto.

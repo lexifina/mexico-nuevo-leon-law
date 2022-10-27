@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE OCTUBRE DE 2022)
+Artículo 87 Bis 29.- El Grupo Directivo, asignará a los elementos que habrán de integrar el Grupo Técnico Operativo, que tiene como funciones principales la toma de decisiones técnicas para la planeación estratégica, la coordinación de recursos asignados por el Comité Estatal de Manejo del Fuego y el Grupo Directivo para la prevención, detección, el combate de Incendios Forestales, el manejo de combustibles en zonas prioritarias y la Protección Civil.

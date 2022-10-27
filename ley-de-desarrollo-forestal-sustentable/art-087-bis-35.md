@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE OCTUBRE DE 2022)
+Artículo 87 Bis 35.- Como primeros respondientes ante la ocurrencia de un Incendio Forestal, los propietarios y poseedores de predios forestales, podrán solicitar que se les brinde capacitación en los Centros de Manejo del Fuego en materia de prevención, combate y control de Incendios Forestales, así como del Mando Unificado y del Sistema de Comando de Incidentes.
