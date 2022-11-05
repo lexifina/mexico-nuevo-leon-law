@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE NOVIEMBRE DE 2022)
+Artículo 22 Bis 8. El Comité Municipal para el Desarrollo del Pueblo Mágico deberá establecer un calendario en donde se establecerá la periodicidad de las reuniones, debiendo programarse al menos cuatro al año. En dichas reuniones se discutirán los avances del Plan de Trabajo del Comité y el avance de los proyectos que se realicen en la localidad como parte del apoyo al desarrollo del Programa Pueblos Mágicos.

@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 4 DE NOVIEMBRE DE 2022)
+Artículo 22 Bis 1. El Municipio que sea catalogado como Pueblo Mágico promoverá y convocará la participación de la ciudadanía para coadyuvar en los fines y funciones de la actividad turística, mediante los Comités Municipales para el desarrollo de los Pueblos Mágicos.
+Se considera Comité Municipal para el desarrollo del Pueblo Mágico al grupo de representantes de los sectores público, privado y social que tiene el objetivo de representar la voz de la comunidad ante autoridades e instancias gubernamentales. Su función es fungir como instancia de consulta y análisis de los proyectos turísticos que pretendan llevarse a cabo en el Pueblo Mágico y coadyuvar en el en desarrollo de dichos proyectos.

@@ -1,0 +1,5 @@
+P.O. 4 DE NOVIEMBRE DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 258. LEY QUE CREA EL COLEGIO MILITARIZADO "GENERAL MARIANO ESCOBEDO" DEL ESTADO DE NUEVO LEÓN".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
+SEGUNDO. Todas (sic) los actos celebrados y obligaciones conferidas al Organismo Público Descentralizado denominado Colegio de Bachilleres Militarizado "General Mariano Escobedo" del Estado de Nuevo León, se entenderán conferidos al Colegio Militarizado "General Mariano Escobedo" del Estado de Nuevo León, cuya denominación se modifica mediante el presente Decreto, atendiendo a la modificación del objeto del Organismo.
+TERCERO. Todas las referencias al Organismo Público Descentralizado denominado Colegio de Bachilleres Militarizado "General Mariano Escobedo" del Estado de Nuevo León insertas en instrumentos jurídicos se entenderá que corresponden al Organismo Público descentralizado denominado Colegio Militarizado "General Mariano Escobedo" del Estado de Nuevo León.
