@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 25 DE NOVIEMBRE DE 2022)
+Artículo 15 BIS.- El Gobierno Estatal en coordinación con los Gobiernos Municipales en función de las facultades exclusivas y concurrentes previstas en la Ley General para Prevenir, Sancionar y Erradicar los Delitos en Materia de Trata de Personas y para la Protección y Asistencia de las Victimas de estos Delitos, así como en la presente Ley, adoptará y ejecutará las medidas necesarias para:
+I. Proteger a los integrantes o emigrantes, en particular a las mujeres, niñas, niños y adolescentes, en el lugar de partida, durante el viaje y en el lugar de destino;
+II. Garantizar la vigilancia en estaciones de ferrocarril, aeropuertos, puntos fronterizos y otros lugares públicos, a fin de impedir la comisión de los delitos materia de esta Ley;
+III. Supervisar centros de vicio, de lenocinio o establecimientos que puedan ser propicios para la comisión de los delitos materia de esta Ley, así como realizar inspecciones periódicas a fin de impedir que las personas, en especial mujeres, niñas, niños y adolescentes, se expongan al peligro de trata de personas;
+IV. Vigilar los establecimientos que presten servicios de internet, las autoridades facultadas para autorizar su operación les exigirán contar con filtros parentales y defensa contra intromisiones no deseadas;
+V. Generar medidas, esquemas y programas necesarios con el objeto de prevenir que sean utilizados, mediante publicidad o inserciones pagadas, para cometer alguno de los delitos materia de esta Ley.
+VI. Además, diseñarán y aplicarán campañas y actividades de prevención de la Trata de personas.

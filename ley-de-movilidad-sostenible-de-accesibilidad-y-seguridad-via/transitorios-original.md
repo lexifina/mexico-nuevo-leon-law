@@ -28,7 +28,7 @@ Para aquellos vehículos de los prestadores de servicio de transporte público y
 En un plazo que no exceda de 30 días naturales posteriores a la entrada en vigor del presente decreto, el Instituto de Movilidad y Accesibilidad de Nuevo León emitirá las reglas a que se sujetará la expedición del visto bueno, así como las inspecciones documentales y las revisiones físico mecánicas señaladas en el párrafo anterior.
 Por lo tanto, envíese al Ejecutivo del Estado, para su promulgación y publicación en el Periódico Oficial del Estado.
 Dado en el Salón de Sesiones del H. Congreso del Estado Libre y Soberano de Nuevo León, en Monterrey, su Capital a los dieciocho días del mes de diciembre de dos mil diecinueve.
-PRESIDENTE: DIP. JUAN CARLOS RUÍZ GARCÍA; PRIMERA SECRETARIA: DIP. ALEJANDRA LARA MAIZ; SEGUNDA SECRETARIA: DIP. LETICIA MARLENE BENVENUTII VILLARREAL.- Rúbricas.
+PRESIDENTE: DIP. JUAN CARLOS RUÍZ GARCÍA; PRIMERA SECRETARIA: DIP. ALEJANDRA LARA MAIZ; SEGUNDA SECRETARIA: DIP. LETICIA MARLENE BENVENUTTI VILLARREAL.- Rúbricas.
 Por tanto mando se imprima, publique, circule y se le dé el debido cumplimiento. Dado en el Despacho del Poder Ejecutivo del Estado de Nuevo León, en Monterrey, su Capital, al día 20 de diciembre de 2019.
 EL C. GOBERNADOR CONSTITUCIONAL DEL ESTADO DE NUEVO LEÓN
 JAIME HELIODORO RODRÍGUEZ CALDERÓN
