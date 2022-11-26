@@ -1,0 +1,3 @@
+P.O. 25 DE NOVIEMBRE DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 185. SE ADICIONA UN SEGUNDO PÁRRAFO A LA FRACCIÓN VII DEL ARTÍCULO 60 DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES PARA EL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
