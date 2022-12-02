@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE OCTUBRE DE 2022)
+Artículo 187 bis 1.- Para el caso de zonas habitacionales conformadas por viviendas unifamiliares y/o multifamiliares, los Municipios establecerán en sus reglamentos en la materia los límites máximos de emisiones sonoras, los cuales serán de 55 decibeles para el horario comprendido de las 6:00 a las 22:00 horas y de 50 decibeles para el de las 22:00 a las 6:00 horas.
