@@ -1,0 +1,3 @@
+P.O. 9 DE DICIEMBRE DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 272. SE REFORMAN LAS FRACCIONES VII Y VIII Y SE ADICIONAN LAS FRACCIONES IX, X, XI Y XII AL ARTÍCULO 5º, DE LA LEY DE DESARROLLO SOCIAL PARA EL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrara en vigor al día siguiente de su publicación en el Periodo (sic) Oficial del Estado.
