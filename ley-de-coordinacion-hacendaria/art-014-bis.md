@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE ENERO DE 2023)
+Artículo 14 Bis.- La autoridad que incumpla en la entrega de las participaciones y aportaciones federales que les corresponden a los Municipios, se actualizará la falta establecida en el artículo 57 de la Ley de Responsabilidades Administrativas del Estado de Nuevo León, misma que deberá ser investigada y sancionada por la Auditoría Superior del Estado; lo anterior con independencia de que se generen a favor de los Municipios los intereses a que haya lugar.
