@@ -1,0 +1,1 @@
+Artículo 14.- El Comité Técnico será presidido por uno de sus integrantes, quien será elegido por mayoría simple. El encargo del Presidente tendrá una duración de 2 años, con derecho a ser reelegido por dos períodos adicionales. El Presidente será elegido entre los miembros del sector empresarial.

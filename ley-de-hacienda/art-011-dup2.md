@@ -1,0 +1,1 @@
+Artículo 11.- En el supuesto de que se aumentará la cantidad de integrantes del Comité Técnico, se deberá respetar la proporción de dos terceras partes del sector empresarial y una tercera parte integrada entre el Gobierno estatal y el Congreso del Estado, de conformidad con el artículo 9.

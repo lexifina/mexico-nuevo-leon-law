@@ -1,0 +1,2 @@
+Artículo 5.- Los fideicomisarios serán la asociación civil o las asociaciones civiles que operarán los recursos fideicomitidos. Serán también fideicomisarios las personas, asociaciones, grupos y colectivos a las que el Comité Técnico designe para recibir apoyos. La designación de fideicomisarios por parte del Comité Técnico respetará el proceso descrito en el contrato de fideicomiso.
+La fiduciaria será la institución que más convenga para la realización de los objetos descritos en el artículo 1 de los presentes lineamientos.

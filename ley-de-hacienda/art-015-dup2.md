@@ -1,0 +1,1 @@
+Artículo 15.- El Comité Técnico tendrá un Secretario Técnico, quien será elegido por mayoría simple. Tendrá derecho de voz pero no de voto. El encargo tendrá una duración de 2 años, con derecho a ser reelegido por dos períodos adicionales.

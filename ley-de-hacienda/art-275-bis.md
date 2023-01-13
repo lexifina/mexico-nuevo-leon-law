@@ -18,6 +18,16 @@ d) Registro y legalización de actas de examen profesional ... 5 cuotas
 e) Registro y legalización de títulos de técnicos medios y profesionales ... 3.25 cuotas
 f) Certificación de estudios de escuelas desaparecidas, así como, por la legalización de certificaciones de escuelas desaparecidas ... 2 cuotas
 g) Constancias sobre liberación de servicio social de escuelas desaparecidas ... 1 cuota
+(ADICIONADO, P.O. 13 DE ENERO DE 2023)
+h) Validación de certificados de estudios ... 1.5 cuotas
+(ADICIONADO, P.O. 13 DE ENERO DE 2023)
+i) Constancia de ingreso a la base de datos del Sistema de Preparatoria Abierta ... 1.5 cuotas
+(ADICIONADO, P.O. 13 DE ENERO DE 2023)
+j) Historial académico del alumno de Preparatoria Abierta ... 1 cuota
+(ADICIONADO, P.O. 13 DE ENERO DE 2023)
+k) Constancia de estudios ... 1.5 cuotas
+(ADICIONADO, P.O. 13 DE ENERO DE 2023)
+l) Validación de exámenes para expedición de certificado de estudios ... 5 cuotas
 4. Educación Superior:
 a) Legalización de certificados, así como el registro y legalización de certificados y registro y legalización de actas de examen profesional, de nivel superior, por cada trámite ... 10.5 cuotas
 b) Equivalencias de estudios, por materia ... 0.5 cuotas
@@ -29,6 +39,8 @@ d) Registro y legalización de títulos profesionales y de técnico superior Pro
 e) Registro y legalización de actas de examen profesional, así como de certificados, de técnico superior profesional, por trámite ... 10.5 cuotas
 f) Certificados de estudios, de actas de examen profesional y transcripciones de títulos profesionales, de escuelas desaparecidas, por cada trámite ... 3 cuotas
 g) Constancias de Servicio Social de escuelas desaparecidas ... 1.5 cuotas
+(ADICIONADO, P.O. 13 DE ENERO DE 2023)
+h) Validación de certificados de estudios ... 1.5 cuotas
 5. (DEROGADO, P.O. 30 DE DICIEMBRE DE 2019)
 N. DE E. EN RELACIÓN CON LA VIGENCIA DE LOS DERECHOS CONTENIDOS EN LA PRESENTE FRACCIÓN, VER ARTÍCULO CUARTO TRANSITORIO DE LA LEY DE INGRESOS DEL ESTADO DE NUEVO LEÓN, P.O. 13 DE ENERO DE 2007.
 II.- Instituciones Educativas:

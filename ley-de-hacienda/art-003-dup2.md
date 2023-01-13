@@ -1,0 +1,1 @@
+Artículo 3.- Queda estrictamente prohibido otorgar apoyos a proyectos que de manera directa o indirecta beneficien a personas e instituciones con fines políticos, electorales o religiosos, cualquiera que sea su índole. Así mismo, se prohíbe otorgar apoyos a proyectos que no hayan pasado por los procesos descritos en el contrato de fideicomiso.

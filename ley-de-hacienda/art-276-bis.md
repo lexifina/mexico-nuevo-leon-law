@@ -16,13 +16,13 @@ ambiental, en la modalidad general e industrial500 cuotas
 c) Evaluación de estudio de riesgo500 cuotas
 (ADICIONADA, P.O. 17 DE DICIEMBRE DE 2010)
 III.- En el rubro de residuos:
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
-a) Constancia de ingreso a la base de datos de
-generadores de residuos de manejo especial70 cuotas
-(REFORMADO, P.O. 31 DE DICIEMBRE DE 2018)
-b) Evaluación de factibilidad para realizar recolección
-y transporte, reciclaje, reúso y disposición final de residuos
-de manejo especial.150 cuotas
+(REFORMADO, P.O. 13 DE ENERO DE 2023)
+a) Evaluación de la factibilidad de ingreso al registro
+como generador de residuos de manejo especial90 cuotas
+(REFORMADO, P.O. 13 DE ENERO DE 2023)
+b) Evaluación de la factibilidad para realizar la
+recolección y transporte, reciclaje y reúso de
+residuos de manejo especial150 cuotas
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
 c) Evaluación de factibilidad de operación y manejo
 integral de relleno sanitario1,500 cuotas
@@ -47,24 +47,34 @@ y manejo integral de los centros de composteo34 cuotas
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 2018)
 i) Evaluación de factibilidad de instalación y viabilidad para
 el Almacenamiento y/o Acopio de residuos de Manejo Especial.150 cuotas
-(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2018)
-j) Evaluación de·factibilidad para realizar recolección,
+(REFORMADO, P.O. 13 DE ENERO DE 2023)
+j) Evaluación de factibilidad para realizar recolección,
 transporte, y disposición final de Aguas Residuales
-provenientes del desazolve de fosas sépticas y/o limpieza
-de baños portátiles90 cuotas
+provenientes del desazolve de fosas impermeables
+y/o limpieza de baños portátiles90 cuotas
 (ADICIONADO, P.O. 31 DE DICIEMBRE DE 2018)
 k) Validación al registro de los Planes de Manejo de
 Residuos de Manejo Especial75 cuotas
 (ADICIONADA, P.O. 17 DE DICIEMBRE DE 2010)
 IV.- En el rubro de aguas residuales:
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
-a) Constancia de ingreso a la base de datos
-de usuarios de fosas sépticas35 cuotas
-b) Constancia de ingreso a la base de datos de
-descargas o de plantas de tratamiento de aguas residuales46 cuotas
-(REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)
-c) Evaluación de informes de descargas de
-aguas residuales25 cuotas
+(REFORMADO, P.O. 13 DE ENERO DE 2023)
+a) Evaluación de la factibilidad de descargas de aguas
+residuales al (sic) fosas impermeables y su respectiva constancia
+de ingreso a la base de datos de generadores de
+descargas a fosas impermeables46 cuotas
+(REFORMADO, P.O. 13 DE ENERO DE 2023)
+b) Evaluación de la factibilidad de descargas de aguas
+residuales al sistema de drenaje y alcantarillado sanitario
+y su respectiva constancia de ingreso a la base de datos
+de generadores de descargas de aguas residuales46 cuotas
+(REFORMADO [N. DE E. ADICIONADO], P.O. 13 DE ENERO DE 2023)
+c) Evaluación de la factibilidad del establecimiento de
+sistema de tratamiento de aguas residuales y su respectiva
+constancia de ingreso a la base de datos de usuarios con
+sistemas de tratamiento de aguas residuales46 cuotas
+(ADICIONADO [N. DE E. REFORMADO], P.O. 13 DE ENERO DE 2023)
+d) Evaluación de informes semestrales de descargas
+de aguas residuales25 cuotas
 (REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 31 DE DICIEMBRE DE 2018) (F. DE E., P.O. 14 DE ENERO DE 2019)
 V.- En el rubro de Emisiones a la Atmósfera:
 (REFORMADO, P.O. 30 DE DICIEMBRE DE 2016)

@@ -1,0 +1,1 @@
+Artículo 16.- El Comité Técnico podrá invitar a sus sesiones a las personas que considere pertinente para la consecución de los objetos y fines del fideicomiso; dichos invitados solo tendrán derecho a voz.
