@@ -5,5 +5,9 @@ II. Asistir a las sesiones del Consejo de Administración con voz, pero sin voto
 III. Formular los proyectos relacionados con la prestación de los servicios, encomendando la realización de los estudios necesarios para el sustento técnico y financiero de su ejecución;
 IV. Conocer y resolver de los asuntos de carácter administrativo y laboral relacionados con los recursos humanos de la Institución, otorgando los nombramientos correspondientes a los funcionarios de las áreas administrativas, técnicas y operativas de la misma, debiendo observar lo dispuesto por el artículo 156 de la Ley de Administración Financiera del Estado de Nuevo León;
 V. Presentar al Consejo de Administración de la Institución, a más tardar en el mes de octubre de cada año, los presupuestos de ingresos y egresos para el año siguiente, así como el programa de trabajo y financiamientos requeridos para el mismo periodo;
-VI. Presentar al Consejo de Administración los estados financieros y el informe de actividades del ejercicio anterior, dentro de los dos primeros meses del año; y,
-VII. Las demás que le confieran el Consejo de Administración, ésta y las demás leyes y reglamentos vigentes en el Estado.
+(REFORMADA, P.O. 24 DE ENERO DE 2023)
+VI. Presentar al Consejo de Administración los estados financieros y el informe de actividades del ejercicio anterior, dentro de los dos primeros meses del año;
+(REFORMADA [N. DE E. ADICIONADA], P.O. 24 DE ENERO DE 2023)
+VII. En caso de que se emita una declaratoria de emergencia por sequía, proponer al Consejo de Administración la realización de acciones complementarias para hacer frente a la misma; y
+(ADICIONADA [N. DE E. REUBICADA], P.O. 24 DE ENERO DE 2023)
+VIII. Las demás que le confieran el Consejo de Administración, ésta y las demás leyes y reglamentos vigentes en el Estado.
