@@ -16,6 +16,8 @@ VI. Copias certificadas de planos3 cuotas
 VII. Copias certificadas de planos a color5 cuotas
 (REFORMADO, P.O. 25 DE ENERO DE 2006)
 En caso de reproducción en fotografías, cintas de video, dispositivos de archivos electrónicos o magnéticos, registros digitales, sonoros, visuales, holográficos y, en general, todos aquellos medios o soportes derivados de los avances de la ciencia y la tecnología en que obre la información que se requiera, serán proporcionados por el interesado.
+(REFORMADO [N. DE E. ADICIONADO], P.O. 25 DE ENERO DE 2023)
+Las copias certificadas en formato digital, expedidas por el Poder Judicial del Estado, quedarán exentas del pago de derechos.
 (REFORMADO, P.O. 19 DE DICIEMBRE DE 2008)
 En todos los casos, con excepción del Poder Judicial del Estado y de las solicitudes tramitadas en los términos que establece la Ley de Transparencia y Acceso a la Información del Estado de Nuevo León, por búsqueda y localización de documentos, archivos, y expedientes y demás información solicitada, generará 1 cuota, sin perjuicio del derecho que corresponda por las copias expedidas.
 (ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 23 DE DICIEMBRE DE 2021)
