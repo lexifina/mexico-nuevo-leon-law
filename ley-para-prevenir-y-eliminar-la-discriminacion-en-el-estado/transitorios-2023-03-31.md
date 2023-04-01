@@ -1,0 +1,3 @@
+P.O. 31 DE MARZO DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 357. SE REFORMAN LAS FRACCIONES IV Y V Y SE ADICIONA LA FRACCIÓN VI AL ARTÍCULO 20, DE LA LEY PARA PREVENIR Y ELIMINAR LA DISCRIMINACIÓN EN EL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
