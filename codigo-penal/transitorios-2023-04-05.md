@@ -1,0 +1,3 @@
+P.O. 5 DE ABRIL DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 354. SE MODIFICA EL PRIMER PÁRRAFO DEL ARTÍCULO 385 Y SE ADICIONA UN CUARTO PÁRRAFO AL ARTÍCULO 385 DEL CÓDIGO PENAL PARA EL ESTADO DE NUEVO LEÓN".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.

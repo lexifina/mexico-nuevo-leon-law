@@ -1,3 +1,9 @@
 (ADICIONADO, P.O. 21 DE JUNIO DE 2017)
 Artículo 32 Bis.- La Secretaría de Seguridad Pública del Estado y los municipios en conjunto con la federación llevarán un padrón de aficionados violentos o que hayan participado en riñas dentro de los espectáculos deportivos, mismos que se incorporarán a la base de datos del Sistema Nacional de Seguridad, cuya confidencialidad se realizará de conformidad a la Ley de la materia.
 Además dicha Secretaría emitirá un código rojo que permitirá identificar a los aficionados que hayan cometido el delito de violencia en espectáculos deportivos para su registro, mismos que les permitirán a los administradores negarles el acceso a las instalaciones.
+(ADICIONADO, P.O. 5 DE ABRIL DE 2023)
+Los organizadores de espectáculos deportivos o eventos con aforo de más de 800 personas, donde se venda o consuma alcohol, deberán instalar un sistema de video vigilancia con circuito cerrado al interior del recinto que grabará el acceso e identificará conductas incipientes violentas, inclusive en la zona aledaña en que puedan producirse aglomeraciones de público, y adoptarán las medidas necesarias para garantizar su buen estado de conservación y correcto funcionamiento. Dichas grabaciones serán entregadas a la Fiscalía General de Justicia del Estado, previa solicitud de ésta. Lo anterior, en caso de que se generen actos de violencia o se cometa algún delito o cuando así lo requiera la autoridad.
+(ADICIONADO, P.O. 5 DE ABRIL DE 2023)
+El organizador o los organizadores del evento serán responsables del tratamiento y protección de los datos personales de conformidad con las leyes de la materia.
+(ADICIONADO, P.O. 5 DE ABRIL DE 2023)
+Los datos personales, imágenes y las videograbaciones únicamente se conservarán en cuanto sea preciso para la investigación de los incidentes que hubieran podido producirse como consecuencia de la celebración del espectáculo deportivo.
