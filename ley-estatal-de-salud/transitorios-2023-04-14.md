@@ -1,0 +1,3 @@
+P.O. 14 DE ABRIL DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 355. SE REFORMAN LAS FRACCIONES XXII Y XXIII DEL ARTÍCULO 9; SE ADICIONA UNA FRACCIÓN III BIS AL ARTÍCULO 4; Y UNA FRACCIÓN XXIV AL ARTÍCULO 9 DE LA LEY ESTATAL DE SALUD".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
