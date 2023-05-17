@@ -1,0 +1,4 @@
+P.O. 16 DE MAYO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 365. SE REFORMAN LA FRACCIÓN XXIV DEL ARTÍCULO 4, LAS FRACCIONES I Y II DEL ARTÍCULO 11, EL ARTÍCULO 21 BIS; Y SE ADICIONAN LA FRACCIÓN XXV AL ARTÍCULO 4, UN CAPÍTULO OCTAVO DENOMINADO "LA POLÍTICA ESTATAL PARA EL DESARROLLO ECONÓMICO Y LA COMPETITIVIDAD" CON EL ARTÍCULO 51, TODOS DE LA LEY DE FOMENTO A LA INVERSIÓN Y AL EMPLEO PARA EL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- La persona Titular del Poder Ejecutivo y el Consejo de Desarrollo Económico contarán con un plazo de 90 días hábiles, a partir de la entrada en vigor del presente Decreto, para expedir o modificar las disposiciones reglamentarias y administrativas que se requieran para el cumplimiento de las atribuciones que se le otorgan por medio del mismo.
