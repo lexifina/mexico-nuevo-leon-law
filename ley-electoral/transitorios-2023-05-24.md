@@ -1,0 +1,4 @@
+P.O. 24 DE MAYO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 398. SE ADICIONA UN ARTÍCULO 144 BIS1 A LA LEY ELECTORAL PARA EL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación.
+SEGUNDO.- Envíese a la Suprema Corte de Justicia de la Nación para dar cumplimiento con el resolutivo Sexto de la Acción de Inconstitucionalidad 55/2022, en donde se vincula al Congreso del Estado de Nuevo León, para que antes de que se verifique el plazo exigido constitucionalmente para emitir las reglas en materia electoral aplicables para el proceso electoral 2023-2024 en la entidad, previo desarrollo de las respectivas consultas indígena y afromexicana, legisle respecto de sus derechos políticos, en particular, a las candidaturas a diputaciones y Ayuntamientos.
