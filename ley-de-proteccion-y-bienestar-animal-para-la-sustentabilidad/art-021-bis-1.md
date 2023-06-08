@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 7 DE JUNIO DE 2023)
+Artículo 21 Bis 1. Los parques zoológicos quedan obligados, sin menoscabo de las señaladas en la Ley General de Vida Silvestre y la Ley General del Equilibrio Ecológico y la Protección al Ambiente, al cumplimiento de las medidas de bienestar de los animales en cautividad, profilácticas y ambientales indicadas a continuación:
+I. Alojar a los animales en condiciones que permitan la satisfacción de sus necesidades biológicas y de conservación;
+II. Proporcionar a cada una de las especies un enriquecimiento ambiental de sus instalaciones y recintos, al objeto de diversificar las pautas de comportamiento que utilizan los animales para interactuar con su entorno, mejorar su bienestar y, con ello, su capacidad de supervivencia y reproducción;
+III. Prevenir la transmisión de plagas y parásitos de procedencia exterior a los animales del parque zoológico, y de éstos a las especies existentes fuera del parque, y
+IV. Tomar las medidas necesarias para evitar la huida de los animales del parque zoológico; en particular de especies potencialmente invasoras, con el fin de prevenir posibles amenazas ambientales y alteraciones genéticas a las especies, subespecies y poblaciones autóctonas, así como a los hábitats y los ecosistemas.

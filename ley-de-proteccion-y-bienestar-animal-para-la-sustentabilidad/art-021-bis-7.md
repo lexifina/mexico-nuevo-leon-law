@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE JUNIO DE 2023)
+Artículo 21 Bis 7. En el caso de sobrepoblación de una o más especies o subespecies de animales, el parque zoológico, en el marco de lo señalado en Ley General de Vida Silvestre y la Ley General del Equilibrio Ecológico y la Protección al Ambiente, podrán establecer mecanismos de intercambio de ejemplares con otros parques, públicos o privados, o podrán reintroducirlos a su hábitat natural, si previamente se les preparó para vivir en la naturaleza.

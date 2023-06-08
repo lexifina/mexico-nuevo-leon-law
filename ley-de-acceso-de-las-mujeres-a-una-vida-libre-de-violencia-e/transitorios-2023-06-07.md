@@ -1,0 +1,4 @@
+P.O. 7 DE JUNIO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 390. SE REFORMAN LA FRACCIÓN IX DEL ARTÍCULO 6, LAS FRACCIONES II, IV Y V DEL ARTÍCULO 15, LA FRACCIÓN XIII DEL ARTÍCULO 24 BIS 3, EL PÁRRAFO PRIMERO DE LOS ARTÍCULO (SIC) 26, 32, 39 Y 42, Y LA FRACCIÓN VIII DEL ARTÍCULO 42; SE ADICIONA LA FRACCIÓN X RECORRIÉNDOSE LA SUBSECUENTE SU NUMERACIÓN AL ARTÍCULO 6, LA FRACCIÓN XXI BIS AL ARTÍCULO 24 BIS 2, LAS FRACCIONES XIV Y XV RECORRIÉNDOSE LA SUBSECUENTE EN SU NUMERACIÓN AL ARTÍCULO 24 BIS 3, TODOS DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente al de su publicación.
+SEGUNDO.- Las Autoridades Estatales y Municipales sujetas al cumplimiento del presente Decreto, armonizaran sus reglamentos y normativa correspondiente en un plazo no mayor a 90 días naturales a la entrada en vigor del presente Decreto.
