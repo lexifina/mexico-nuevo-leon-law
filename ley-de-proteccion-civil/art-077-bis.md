@@ -1,0 +1,7 @@
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 15 DE JUNIO DE 2023)
+CAPÍTULO XII BIS
+DEL CONTROL, INSPECCIÓN Y VIGILANCIA DEL CABLEADO AEREO
+(ADICIONADO, P.O. 15 DE JUNIO DE 2023)
+Artículo 77 Bis.- Los concesionarios, que presten servicios de telecomunicaciones deben de tener debidamente identificado para las autoridades competentes el cable aéreo instalado, de conformidad con las disposiciones generales emitidas por la autoridad federal competente en la materia.
+Los concesionarios que presten servicio de telecomunicaciones y utilicen o requieran de cableado aéreo tales como líneas, anclajes, cables, cajas de control o cualquiera que por sus características requieran de cableado aéreo, tienen la obligación, en términos de las disposiciones legales y administrativas federales aplicables, de retirarlos cuando estos se encuentren en desuso o cuando la autoridad competente del ámbito federal se lo requiera para evitar riesgos a la ciudadanía.
+Las autoridades estatales y municipales podrán coadyuvar en las acciones pertinentes a que se refiere el presente artículo.

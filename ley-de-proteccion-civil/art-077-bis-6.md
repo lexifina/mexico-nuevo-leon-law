@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE JUNIO DE 2023)
+Artículo 77 Bis 6.- Cuando exista riesgo inminente para la ciudadanía, determinado mediante el desahogo del procedimiento administrativo aplicable, los concesionarios tendrán que realizar el retiro de su infraestructura en el plazo determinado en la resolución aplicable, mismo que deberá considerar los términos y condiciones necesarios para no afectar la continuidad y calidad del servicio público de telecomunicaciones, así como con la finalidad de salvaguardar la integridad de la ciudadanía y evitar accidentes.

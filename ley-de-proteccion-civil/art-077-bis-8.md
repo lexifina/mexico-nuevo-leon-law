@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE JUNIO DE 2023)
+Artículo 77 Bis 8.- Cualquier retiro y traslado de la infraestructura de cableado aéreo que se realice conforme a los procedimientos señalados en el presente capitulo, deberá ser tratado conforme a la Ley en la materia de residuos sólidos, procurando en todo momento la protección al medio ambiente.

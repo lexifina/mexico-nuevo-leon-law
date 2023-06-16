@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE JUNIO DE 2023)
+Artículo 252 Bis 4. En los planes de ordenamiento para la infraestructura y equipamiento de telecomunicaciones, podrán modificarse las estrategias de acción o intervención establecidas en el plan de desarrollo urbano correspondiente, siempre y cuando los análisis y estudios de cargas y beneficios urbanísticos sustenten la viabilidad del cambio, incluido la valoración relativa a los beneficios que proporciona la conectividad a la población.

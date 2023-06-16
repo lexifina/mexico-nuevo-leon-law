@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 15 DE JUNIO DE 2023)
+Artículo 252 Bis 1. Se considera ordenamiento para la infraestructura de telecomunicaciones, a las disposiciones, procedimientos, trámites y requisitos necesarios para la construcción, instalación, mantenimiento o reparación, desmantelamiento, demolición o retiro, de infraestructura para la prestación de servicios de telecomunicaciones.
+Las regulaciones a que se refiere el párrafo anterior corresponden únicamente a infraestructura de torres, postes, duetos subterráneos y sus instalaciones eléctricas.
