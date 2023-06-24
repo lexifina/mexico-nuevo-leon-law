@@ -1,0 +1,6 @@
+P.O. 23 DE JUNIO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 401. SE REFORMA EL INCISO E) DE LA FRACCIÓN III DEL ARTÍCULO 4, LAS FRACCIONES XIII, XVI, XIX, XX, XXI, XXII Y XXIII DEL ARTÍCULO 16 Y LOS ARTÍCULOS 49, 50, 51, EL PRIMER PÁRRAFO DEL ARTÍCULO 87 Y LAS FRACCIONES VII Y VIII DEL ARTÍCULO 93; SE ADICIONAN LA FRACCIÓN IX DEL ARTÍCULO 93, TODOS DE LA LEY DE EDUCACIÓN DEL ESTADO".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación.
+SEGUNDO.- La Secretaría de Educación del Estado, previó al inicio del ciclo escolar 2023-2024, deberá de contar con el programa integral educativo, señalado en la fracción XXI del artículo 16 del presente Decreto.
+TERCERO.- La Secretaría de Educación del Estado dispondrá de un plazo de hasta 180 días hábiles contados a partir de la entrada en vigor del presente Decreto, para realizar el protocolo de detección y atención temprana de educación especial que establece la fracción XXII del artículo 16 del presente Decreto.
+CUARTO.- Envíese el presente dictamen con los documentos que sirvieron de sustento para la elaboración del presente documento a la Suprema Corte de Justicia de la Nación para dar cumplimiento al resolutivo Tercero de la Acción de Inconstitucionalidad 29/2021.
