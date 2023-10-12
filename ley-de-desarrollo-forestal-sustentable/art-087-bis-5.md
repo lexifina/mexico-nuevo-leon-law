@@ -13,3 +13,13 @@ X. Implementación de mecanismos para el fortalecimiento de plataformas o sistem
 XI. Contendrá un directorio de las dependencias, entidades y dirección encargadas de la aplicación de las disposiciones de la ley.
 XII. Las demás que establezcan la normatividad aplicable en materia de Manejo del Fuego.
 XIII. Los mecanismos y fuentes de financiamiento requeridos para su implementación y actualización.
+(ADICIONADA, P.O. 11 DE OCTUBRE DE 2023)
+XIV. La salud y seguridad humana como máxima prioridad en las acciones de prevención, detección y combate de incendios forestales;
+(ADICIONADA, P.O. 11 DE OCTUBRE DE 2023)
+XV. La protección de la vida, bienes y propiedades de la comunidad;
+(ADICIONADA, P.O. 11 DE OCTUBRE DE 2023)
+XVI. La interacción entre el cambio climático, la cubierta vegetal y los regímenes de incendios;
+(ADICIONADA, P.O. 11 DE OCTUBRE DE 2023)
+XVII. El manejo del fuego de forma ambientalmente responsable para asegurar la sostenibilidad de los ecosistemas;
+(ADICIONADA, P.O. 11 DE OCTUBRE DE 2023)
+XVIII. Instituir acciones de rescate con participación ciudadana en zonas siniestradas por incendios forestales.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE OCTUBRE DE 2023)
+Artículo 121 Bis 9.- El uso del agua en fuentes y ornamentaciones públicas o privadas, será por medio de un sistema de recirculación y tratamiento del agua, debiendo instalar el propietario o poseedor del predio, en un lugar visible, la información de la procedencia de las aguas, en su caso, la leyenda "no apta para consumo humano", y señalará también los periodos de cambio del líquido y su servicio.

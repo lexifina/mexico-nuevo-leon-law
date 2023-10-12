@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE OCTUBRE DE 2023)
+ARTICULO 61 BIS 5.- En los sistemas de tratamiento de aguas residuales particulares, invariablemente se deberán considerar y realizar los proyectos para el manejo y disposición final de lodos, en los términos de las disposiciones respectivas. Asimismo, se deberán construir las trampas de sólidos y las desnatadoras de grasas que se requieran para cumplir con las condiciones especiales de descarga que determine el Organismo prestador del servicio.

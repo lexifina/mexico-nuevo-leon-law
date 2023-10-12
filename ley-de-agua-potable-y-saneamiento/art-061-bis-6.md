@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE OCTUBRE DE 2023)
+ARTICULO 61 BIS 6.- La Secretaría de Medio Ambiente del Estado, conjunta o separadamente con el Organismo Operador del servicio público de agua potable y saneamiento, promoverán la difusión entre la población, de programas y acciones de control y prevención para evitar la contaminación, el ahorro y el uso eficiente del agua potable, así como el reúso de las aguas residuales procedentes de las plantas de tratamiento si su calidad así lo permite de acuerdo con la normatividad aplicable.

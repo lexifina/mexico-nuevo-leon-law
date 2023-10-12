@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE OCTUBRE DE 2023)
+ARTICULO 61 BIS 1.- Corresponde a los Organismos encargados del servicio público de agua potable y saneamiento realizar el tratamiento de aguas residuales, así como a los particulares en los términos previstos en la presente Ley. El tratamiento de aguas residuales deberá cumplir con las disposiciones contenidas en las Normas Oficiales Mexicanas y las normas ambientales del Estado.

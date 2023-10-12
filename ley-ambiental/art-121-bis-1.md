@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE OCTUBRE DE 2023)
+Artículo 121 Bis 1.- El Gobierno del Estado en conjunto con los Municipios y en cumplimiento de los criterios ambientales establecidos en la presente Ley y las leyes generales en la materia, promoverán el reúso de las aguas residuales que se descarguen en el sistema de drenaje o las que resulten de los procesos de tratamiento, los cuales se ajustarán a los términos establecidos en las Normas Oficiales Mexicanas.
