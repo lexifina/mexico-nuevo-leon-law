@@ -1,0 +1,10 @@
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 25 DE OCTUBRE DE 2023)
+CAPÍTULO III BIS
+ACCIONES PARA CONTRARRESTAR LA DESERCIÓN ESCOLAR DE LOS JÓVENES EN SITUACIÓN DE VULNERABILIDAD
+(ADICIONADO, P.O. 25 DE OCTUBRE DE 2023)
+Artículo 34 Bis.- Para contrarrestar la deserción escolar de los jóvenes en situación de vulnerabilidad, el Estado establecerá acciones específicas en coordinación con el Instituto de la Juventud, la Secretaría de Educación y la Secretaría de Igualdad e Inclusión, así como con los municipios y las instancias correspondientes, en las que se deberán observar los siguientes aspectos:
+I. Se buscará la implementación de programas que garanticen el acceso, el reingreso y la permanencia en el sistema educativo en el Estado, enfocados a contrarrestar el analfabetismo y erradicar la deserción escolar;
+II. Canalizar la situación de cada joven, para que se otorguen los apoyos a los requerimientos específicos de aquellos que desertaron del sistema educativo y que se encuentren en desventaja social, para establecer una política de reingreso y que se garantice su permanencia;
+III. Acciones tendientes a contrarrestar desventaja social, como pobreza, indigencia, marginación, situación de calle, analfabetismo, discapacidad, exclusión social y étnica de los jóvenes que desertaron del sistema educativo;
+IV. Para las familias de los jóvenes que por cuestión económica hayan desertado de sus estudios, y que se encuentren en aquellas localidades aisladas y zonas urbanas, identificadas con alta vulnerabilidad, el Estado llevará a cabo las acciones de atención y asistencia personalizada, en relación a asistencia jurídica, económica, social, médica, psicológica, educativa, laboral y cualquier otro aspecto que mejore su calidad de vida y puedan permanecer activos en el sistema educativo; y
+V. Las demás actividades que permitan ampliar la calidad y la cobertura de las acciones y programas que ayuden a contrarrestar la deserción escolar en los jóvenes en situación de vulnerabilidad.
