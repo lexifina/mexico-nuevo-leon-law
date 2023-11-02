@@ -1,0 +1,3 @@
+P.O. 1 DE NOVIEMBRE DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 442. SE REFORMA EL PÁRRAFO PRIMERO, SEGUNDO Y TERCERO DEL ARTÍCULO 129 BIS DE LA LEY ESTATAL DE SALUD".]
+ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación.
