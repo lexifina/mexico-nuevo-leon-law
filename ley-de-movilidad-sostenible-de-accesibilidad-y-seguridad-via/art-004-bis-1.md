@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 4 Bis 1. Las autoridades competentes, en el ámbito de sus atribuciones, deberán garantizar que la movilidad esté al alcance de todas las personas en igualdad de condiciones, sin discriminación de género, edad, discapacidad o condición, a costos accesibles y con información clara y oportuna, priorizando a los grupos en situación de vulnerabilidad, tanto en zonas urbanas como rurales.

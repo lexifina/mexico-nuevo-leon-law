@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 124 Bis 5. El Instituto de Innovación y Transferencia de Tecnología de Nuevo León, deberá impulsar la innovación, investigación científica, la capacitación, la formación y la adaptación de planes tecnológicos para el desarrollo de profesionales y el apoyo de empresas relacionadas con el sistema de transporte, estaciones de carga de vehículos eléctricos, cargadores, motores, baterías y componentes asociados a la movilidad eléctrica.

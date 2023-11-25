@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 59 Bis 2. La Estrategia Estatal de Movilidad y Seguridad Vial establecerá las bases para el desarrollo de la movilidad y la seguridad vial del Estado, en el corto, mediano y largo plazo, en congruencia con el Plan Estatal de Desarrollo, los programas sectoriales, regionales, y municipales en materia de movilidad, seguridad vial y ordenamiento territorial, y demás aplicables, así como aquellas especificas a los grupos en situación de vulnerabilidad.
+La Estrategia Estatal de Movilidad y Seguridad Vial será formulada y aprobada por el Sistema Estatal y publicada en el Periódico Oficial del Estado.

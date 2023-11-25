@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 141 Bis. Los servicios de transporte público y privado, tanto de pasajeros como de carga, podrán desarrollarse en sistemas integrados, los cuates permitirán la incorporación gradual de la articulación física, operacional, informativa, de imagen y del medio de pago de los diversos modos.
+Los sistemas integrados de transporte podrán considerarse dentro de la planeación e implementación de políticas y programas de movilidad y seguridad vial, y podrán operar a través de los diferentes servicios de transporte y, en su caso, bajo esquemas metropolitanos.
+Las autoridades estatales y municipales tomarán en cuenta las medidas necesarias para articular, dentro de los sistemas integrados de transporte, los servicios para vehículos no motorizados y de tracción humana.

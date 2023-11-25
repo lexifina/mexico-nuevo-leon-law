@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 8 Bis 3. La formación en materia de movilidad y seguridad vial implica que el personal técnico y/o profesional cuente con capacitación en dichas materias, así como en perspectiva de género y necesidades de los grupos en situación de vulnerabilidad.
+El Estado y los Municipios, en el ámbito de sus respectivas atribuciones, promoverán acciones y mecanismos en coordinación con las dependencias y entidades competentes, las concesionarias, las permisionarias, los sectores privado y social, para que el personal técnico y/o profesional en materia de movilidad y seguridad vial acredite su capacidad técnica y operativa.

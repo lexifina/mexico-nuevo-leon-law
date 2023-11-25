@@ -13,4 +13,5 @@ X. Solicitar la realización de las investigaciones necesarias para el cumplimie
 XI. Integrar comisiones o comités especializados para la atención de asuntos específicos o focalizados en los problemas de violencia vial;
 XII. Celebrar convenios para intercambios de información con las instituciones académicas o de prestigio expertas en el tema de hechos de tránsito; y
 XIII. Emitir y publicar en sus portales electrónicos reportes trimestrales acerca de las estadísticas viales que resultan.
-El Observatorio Ciudadano de Seguridad Vial emitirá su Reglamento Interior, estableciendo los aspectos relacionados con la organización y funcionamiento del mismo, el procedimiento para la realización de las sesiones, sus procedimientos internos y demás para el cumplimiento de sus fines.
+(REFORMADO, P.O. 24 DE NOVIEMBRE DE 2023)
+El Observatorio Ciudadano de Movilidad y Seguridad Vial emitirá su Reglamento Interior, estableciendo los aspectos relacionados con la organización y funcionamiento del mismo, el procedimiento para la realización de las sesiones, sus procedimientos internos y demás para el cumplimiento de sus fines.

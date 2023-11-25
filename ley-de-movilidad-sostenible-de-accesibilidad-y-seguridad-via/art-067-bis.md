@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 67 Bis. El Estado y los Municipios de conformidad con lo establecido en las leyes en la materia y en el ámbito de sus facultades, podrán considerar la implementación de los instrumentos económicos y financieros, públicos y privados, de carácter nacional o internacional necesarios para mejorar la eficiencia y equidad en el acceso de los sistemas de movilidad, la renovación vehicular, la gestión de la seguridad vial y la sostenibilidad.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 4 Bis 9. El sistema de movilidad debe ser igualitario, equitativo e inclusivo, por lo que las autoridades competentes deberán garantizar la equiparación de las oportunidades de la población para alcanzar un efectivo ejercicio de su derecho a la movilidad, independientemente del modo que utilice para trasladarse, poniendo especial énfasis en los grupos en situación de vulnerabilidad por condición física, social, económica, de género, edad u otra.

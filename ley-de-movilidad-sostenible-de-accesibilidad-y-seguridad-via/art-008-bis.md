@@ -1,0 +1,6 @@
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 24 DE NOVIEMBRE DE 2023)
+CAPÍTULO SEGUNDO (SIC)
+DE LA SENSIBILIZACIÓN, EDUCACIÓN Y FORMACIÓN EN MATERIA DE MOVILIDAD Y SEGURIDAD VIAL
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 8 Bis. El Estado y sus Municipios, en el ámbito de sus respectivas competencias, diseñarán, implementarán, ejecutarán, evaluarán y darán seguimiento a los planes, programas, campañas y acciones para sensibilizar, educar y formar a la población en materia de movilidad y seguridad vial, con el objetivo de generar la adopción de hábitos de prevención de siniestros de tránsito, el uso racional del automóvil particular; la promoción de los desplazamientos inteligentes y todas aquellas acciones que permitan lograr una sana convivencia en las vías.
+Para el cumplimiento de lo anterior, se promoverá la participación de personas especialistas y la academia en el diseño e implementación de programas, campañas y acciones en materia de educación vial, movilidad, y perspectiva de género que generen el desarrollo de políticas sostenibles e incluyentes con especial atención a los grupos en situación de vulnerabilidad, orientadas al peatón, la bicicleta, al transporte público y al uso racional del automóvil particular.

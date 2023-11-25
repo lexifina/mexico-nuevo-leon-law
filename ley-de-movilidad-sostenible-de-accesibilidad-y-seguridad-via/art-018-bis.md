@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 18 Bis. En el caso de la zona metropolitana del Estado, su planeación y regulación en materia de movilidad y seguridad vial se podrá realizar de manera conjunta y coordinada entre Municipios, a través de sus instancias de gobernanza establecidas por la Ley General de Asentamientos Humanos, Ordenamiento Territorial y Desarrollo Urbano, mediante convenios de coordinación que para tal efecto se elaboren, con apego a la dispuesto en este (sic) Ley y demás disposiciones jurídicas aplicables.

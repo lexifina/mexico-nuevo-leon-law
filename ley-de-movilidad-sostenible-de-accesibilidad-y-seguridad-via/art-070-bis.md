@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 70 Bis. Las autoridades competentes del Estado y los Municipios, establecerán unidades de información y quejas para que las personas usuarias denuncien cualquier irregularidad en la prestación del servicio de transporte público. Para ello, se observarán los principios de accesibilidad, prontitud, imparcialidad, integridad y gratuidad, otorgando de forma expedita atención a la persona quejosa y se le deberá informar sobre las resoluciones adoptadas.

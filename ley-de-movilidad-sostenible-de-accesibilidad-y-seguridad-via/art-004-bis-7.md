@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 4 Bis 7. Toda persona tiene derecho a buscar y acceder a información sobre el estado del sistema de movilidad, a fin de que puedan planear sus trayectos; calcular los tiempos de recorrido; conocer los horarios de operación del transporte público, las medidas de accesibilidad disponibles, la frecuencia de paso, los puntos de abordaje y descenso, evitar la congestión vial, y conocer el estado de funcionamiento del sistema de movilidad, así como la disponibilidad de los servicios auxiliares al transporte.

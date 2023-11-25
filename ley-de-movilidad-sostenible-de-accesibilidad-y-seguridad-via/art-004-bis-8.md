@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 4 Bis 8. El sistema de movilidad deberá ofrecer múltiples opciones de servicios y modos de transporte debidamente integrados, que proporcionen disponibilidad, calidad y accesibilidad; que satisfagan las necesidades de desplazamiento y que logren un sistema de integración física, operativa, informativa, de imagen y de modo de pago.
+Las autoridades procurarán proporcionar, de manera progresiva, servicios de transporte específico para personas con discapacidad.

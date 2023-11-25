@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 149 Bis 1. Para el seguimiento, evaluación y control de la política, planes, programas y proyectos en materia de movilidad y seguridad vial, el Estado, mediante los convenios de coordinación respectivos, remitirán, a través de los organismos y dependencias que correspondan en el ámbito de sus competencias, la información generada en materia de movilidad y seguridad vial.
+La información del Estado deberá ser remitida en datos georreferenciados y estadísticos, indicadores de movilidad, seguridad vial y gestión administrativa, así como indicadores incluidos en los instrumentos de planeación e información sobre el avance de los proyectos y programas locales.

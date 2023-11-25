@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 4 Bis. El Sistema de Movilidad debe contar con las condiciones necesarias que protejan al máximo posible la vida, salud e integridad física de las personas en sus desplazamientos por las vías públicas. Para ello, las autoridades competentes en el ámbito de sus atribuciones deberán privilegiar las acciones de prevención que disminuyan los factores de riesgo, a través de la generación de sistemas de movilidad con enfoque de sistemas seguros.
+Las leyes y reglamentos en la materia deberán contener criterios científicos y técnicos de protección y prevención, así como mecanismos apropiados para vigilar, regular y sancionar aquellos hechos que constituyan factores de riesgo.

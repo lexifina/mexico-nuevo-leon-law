@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
+Artículo 68 Bis 3. A efecto de mejorar la calidad ambiental y disminuir los riesgos de siniestros de tránsito, las autoridades competentes podrán promover mecanismos y programas para la renovación del parque vehicular de prestadores del servicio de transporte público de pasajeros y de carga.
+Las autoridades competentes podrán establecer los acuerdos necesarios para la conservación, mantenimiento, renovación y cumplimiento de las especificaciones técnicas del parque vehicular destinado a la prestación de los sistemas de transporte, además de implementar las medidas necesarias para fomentar la renovación.
