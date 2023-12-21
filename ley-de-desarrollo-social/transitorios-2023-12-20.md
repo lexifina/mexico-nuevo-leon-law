@@ -1,0 +1,3 @@
+P.O. 20 DE DICIEMBRE DE 2023.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 465. SE REFORMA EL ARTÍCULO 9 DE LA LEY DE DESARROLLO SOCIAL PARA EL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente de su publicación.
