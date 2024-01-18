@@ -1,0 +1,3 @@
+P.O. 17 DE ENERO DE 2024.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 475. SE ADICIONA UNA FRACCIÓN VI BIS, AL ARTÍCULO 7 DE LA LEY DE DESARROLLO SOCIAL PARA EL ESTADO DE NUEVO LEÓN".]
+ÚNICO: El presente Decreto entrará en vigor al día siguiente de su publicación.
