@@ -1,0 +1,3 @@
+P.O. 23 DE JULIO DE 1980
+ARTICULO PRIMERO.- Continúa en vigor el Decreto número 220 publicado en el Periódico Oficial del Estado número 106, del veintinueve de diciembre de mil novecientos setenta y seis; al igual que el Decreto número 201, publicado en el Periódico Oficial del Estado número 75, del diecinueve de septiembre del año pasado; así como los demás que hayan adicionado y reformado al primero de los citados, en cuanto no se opongan a lo estatuído por este Decreto.
+ARTICULO SEGUNDO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

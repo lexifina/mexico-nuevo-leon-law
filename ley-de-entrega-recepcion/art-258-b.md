@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 18 DE DICIEMBRE DE 1993)(F. DE E. P.O. 1 DE ENERO DE 1994)
+ARTICULO 258 B.- Cuando en este Título II o en los Decretos que lo reformen se haga referencia a salarios mínimos como sistema para determinar las contribuciones que correspondan, deberá entenderse el salario mínimo diario vigente en la capital del Estado. Así mismo las modificaciones a los salarios mínimos generales que afecten las cantidades o la fijación de las contribuciones, se aplicarán en el mes en que entren en vigor.

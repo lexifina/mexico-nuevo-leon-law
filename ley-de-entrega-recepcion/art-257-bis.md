@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 1979)
+ARTICULO 257o Bis.- Se derogan los efectos de lo preceptuado por los artículos 252 y 254 en lo relativo a las participaciones en el Impuesto Federal sobre Ingresos Mercantiles, por estar subsistente el Convenio de Adhesión al Sistema Nacional de Coordinación Fiscal celebrado por el Estado de Tamaulipas con la Federación y por abrogar la Ley de Coordinación Fiscal al susodicho Impuesto Federal.

@@ -1,0 +1,3 @@
+(DEROGADO ULTIMO PARRAFO, P.O. 21 DE DICIEMBRE DE 2000)
+(ADICIONADO, P.O. 18 DE DICIEMBRE DE 1991)
+ARTICULO 258 D.- En los casos en que no se efectúe previamente a la prestación del servicio el pago de los derechos, en virtud de no poderse determinar la base de los mismos, dicho pago se hará el mismo día en que sean determinables los derechos. La falta de pago oportuno de los derechos establecidos en el presente Título II, causarán recargos de conformidad con lo establecido por el Artículo 22 del Código Fiscal del Estado, independientemente de la aplicación de las sanciones que señalen las Leyes respectivas.
