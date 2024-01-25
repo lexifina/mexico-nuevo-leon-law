@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE ENERO DE 2024)
+Artículo 138 Bis.- El titular de la Notaría llevará una carpeta en donde quedarán depositados copia de la totalidad de los documentos certificados en Actas Fuera de Protocolo y los relacionados con este, ordenada con numeración progresiva y por orden cronológico en relación con estos. El contenido de estas carpetas se denominará "Apéndice de Libro de Actas Fuera de Protocolo", el cual se considerará como parte integrante de dicho.
+Los documentos del Apéndice se arreglarán por legajos, poniéndose en cada uno de éstos el número que corresponda al del hecho a que se refiere y en cada uno de los documentos se pondrá una letra que los señale y distinga de los otros que forman el legajo.
