@@ -1,2 +1,2 @@
-(ADICIONADO, P. O. 11 DE DICIEMBRE DE 1996)
-Artículo 2 Bis.- Se entiende por Deporte, la práctica de actividades físicas e intelectuales que los habitantes del Estado de Nuevo León, de manera individual o en conjunto, realizan con propósitos competitivos o de esparcimiento en apego a su reglamentación, con la finalidad de desarrollar las aptitudes del individuo.
+(REFORMADO, P.O. 15 DE ENERO DE 2025)
+Artículo 2 Bis.- Se entiende por Deporte, la práctica de actividades físicas e intelectuales que los habitantes del Estado de Nuevo León, de manera individual o en conjunto, organizada o no, profesional o no, realizadas en instalaciones públicas o privadas, o en el medio natural, (sic) realizan con propósitos competitivos o de esparcimiento en apego a su reglamentación, con la finalidad de desarrollar (sic) en el individuo.
