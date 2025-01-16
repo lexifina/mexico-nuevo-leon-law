@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 15 DE ENERO DE 2025)
+Artículo 12 Bis.- El Ejecutivo del Estado, promoverá a través de convenios de colaboración con instituciones y organismos de los sectores público y privado, así como con el apoyo de los municipios, el otorgamiento de becas y programas de apoyo a las personas jóvenes del Estado que, encontrándose en situación de alta vulnerabilidad, quieran iniciar o retomar sus estudios en el nivel medio superior y superior.
