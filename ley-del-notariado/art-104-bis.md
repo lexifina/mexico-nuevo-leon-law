@@ -1,2 +1,3 @@
-(ADICIONADO, P.O. 24 DE ENERO DE 2024)
-Artículo 104 Bis.- La Dirección del Archivo General de Notarías será la responsable de inscribir el aviso de otorgamiento o modificación de un mandato o poder en la Plataforma del Registro Nacional de Avisos de Poderes Notariales, perteneciente a la Secretaría de Gobernación, dentro de los cinco días hábiles contados a partir de su recepción.
+(DEROGADO SEGUNDO PÁRRAFO, P.O. 17 DE ENERO DE 2025)
+(DEROGADO TERCER PÁRRAFO, P.O. 17 DE ENERO DE 2025)
+Artículo 104 bis.- (DEROGADO, P.O. 17 DE ENERO DE 2025)

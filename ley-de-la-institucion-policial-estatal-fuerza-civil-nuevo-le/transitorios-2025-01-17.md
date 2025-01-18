@@ -1,0 +1,3 @@
+P.O. 17 DE ENERO DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 036. SE REFORMA LA FRACCIÓN XIX DEL ARTÍCULO 16 DE LA LEY DE LA INSTITUCIÓN POLICIAL ESTATAL FUERZA CIVIL".]
+ÚNICO.- El presente Decreto entrará en vigor al día siguiente al de su publicación.
