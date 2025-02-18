@@ -1,0 +1,25 @@
+TRANSITORIOS
+PRIMERO. Esta Ley entrará en vigor el 1º de enero del año 2025.
+SEGUNDO. Durante el año 2025, y mientras permanezca en vigor la Adhesión del Estado de Nuevo León al Sistema Nacional de Coordinación Fiscal a que se contrae el Convenio de Adhesión al Sistema Nacional de Coordinación Fiscal, publicado en el Diario Oficial de la Federación el 28 de diciembre de 1979, se suspende la vigencia de los impuestos sobre ingresos mercantiles, sobre expendio de bebidas alcohólicas, sobre compraventa o permuta de ganado, sobre venta de gasolina y demás derivados del petróleo y sobre ganado y aves que se sacrifiquen.
+TERCERO. Si se da por terminado el Convenio de Adhesión al Sistema Nacional de Coordinación Fiscal mencionado en el artículo que antecede, entrarán en vigor nuevamente desde el día siguiente al en que surta sus efectos la terminación de dicho Convenio, los impuestos sobre ingresos mercantiles. sobre expendio de bebidas alcohólicas, sobre compraventa o permuta de ganado, sobre venta de gasolina y demás derivados del petróleo y sobre ganado y aves que se sacrifiquen.
+CUARTO. Durante el año 2025, y mientras permanezca en vigor la Coordinación en Materia Federal de Derechos entre la Federación y el Estado de Nuevo León a que se contrae la Declaratoria emitida por el Secretario de Hacienda y Crédito Público, publicada en el Diario Oficial de la Federación en fecha 04 de octubre de 1994, en los términos previstos en la Ley de Coordinación Fiscal, se suspende la vigencia de los derechos contenidos en los Artículos 267; 268; 275 bis, fracción II y 277, fracciones III, IV, VIII y IX de la Ley de Hacienda del Estado.
+QUINTO. Si se da por terminada la Coordinación en Materia Federal de Derechos, entre la Federación y el Estado de Nuevo León a que se refiere el transitorio que antecede, entrarán en vigor nuevamente desde el día siguiente al en que surta sus efectos la terminación de la citada Coordinación, los derechos contenidos en los Artículos 267; 268; 275 bis, fracción II, y 277, fracciones III, IV, VIII y IX de la Ley de Hacienda del Estado.
+SEXTO. Todas las autorizaciones otorgadas en el presente Decreto se realizaron previo análisis de la capacidad de pago del Estado, de Servicios de Agua y Drenaje de Monterrey I.P.D, Red Estatal de Autopistas, Servicio de Transporte Colectivo Metrorrey (Metrorrey) e Instituto de Control Vehicular, así como del destino de los financiamientos u obligaciones a celebrarse y del otorgamiento de recursos como fuente de pago o garantía en términos del artículo 23 de la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios, autorizando a ejercer dichas autorizaciones durante el ejercicio fiscal 2025 y/o 2026.
+SÉPTIMO. La contratación de los financiamientos autorizados en el presente Decreto deberá de realizarse bajo las mejores condiciones de mercado, según lo dispuesto en la Ley de Disciplina Financiera de las Entidades Federativa (sic) y los Municipios, así como en la normativa aplicable.
+OCTAVO. Para efectos el Registro de Obligaciones y Empréstitos del Estado de Nuevo León, se aplicaran las reglas que al efecto expida la Secretaría de Finanzas y Tesorería General del Estado; a falta de disposición expresa en éstas o en las leyes y normatividad local aplicable, se aplicará lo dispuesto en la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios y en el Reglamento del Registro Público Único de Financiamientos y Obligaciones de Entidades Federativas y Municipios, así como las demás disposiciones federales relativas y aplicables.
+NOVENO. El presente Decreto se autoriza bajo la aprobación del voto de dos terceras partes de los miembros presentes de esta Legislatura.
+DÉCIMO. Los arrendamientos e inversiones plurianuales autorizados en el presente decreto deberán de sujetarse a la normativa aplicable para su contratación y operación.
+DÉCIMO PRIMERO. Por expedición o renovación de licencia para conducir con duración de cinco años, a que se refiere la fracción I del artículo 8 de la Ley que Regula la Expedición de Licencias para Conducir del Estado de Nuevo León, se causarán 12 cuotas.
+Por lo tanto, envíese al Ejecutivo del Estado, para su promulgación y publicación en el Periódico Oficial del Estado.
+Dado en el Salón de Sesiones del H. Congreso del Estado Libre y Soberano de Nuevo León, en Monterrey, su Capital a los dieciocho días de febrero de dos mil veinticinco.
+PRESIDENTA: DIP. LORENA DE LA GARZA VENECIA; PRIMERA SECRETARIA: DIP. CECILIA SOFIA ROBLEDO SUÁREZ; SEGUNDA SECRETARIA: DIP. AILE TAMEZ DE LA PAZ.- Rúbricas.
+Por tanto, mando se imprima, publique, circule y se le dé el debido cumplimiento. Dado en el Despacho del Poder Ejecutivo del Estado de Nuevo León, en Monterrey, su Capital, al día 18 de febrero de 2025.
+EL C. GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEÓN
+DR. SAMUEL ALEJANDRO GARCÍA SEPÚLVEDA
+(Rúbrica)
+EL C. SECRETARIO GENERAL DE GOBIERNO
+DR. JAVIER LUIS NAVARRO VELASCO
+(Rúbrica)
+EL C. SECRETARIO DE FINANZAS Y TESORERO GENERAL DEL ESTADO
+LIC. CARLOS ALBERTO GARZA IBARRA
+(Rúbrica)
