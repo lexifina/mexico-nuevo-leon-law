@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE MARZO DE 2025)
+Artículo 4 Bis. Adicionalmente a lo estipulado en el artículo anterior, el Instituto en coordinación con la Secretaría del Trabajo, fomentará la implementación de campañas de información y cursos, encaminados a brindar a los trabajadores los conocimientos y herramientas necesarias de educación financiera, posibilitando así una mejor toma de decisiones en esta materia, obteniendo en consecuencia bienestar personal y familiar.
