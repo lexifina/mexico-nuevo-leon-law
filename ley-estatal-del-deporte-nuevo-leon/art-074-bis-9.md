@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE MARZO DE 2025)
+Artículo 74 Bis 9.- Los deportistas, entrenadores, técnicos, directivos y demás personas, en el ámbito de la disciplina deportiva, deberán actuar conforme a las disposiciones y lineamientos que para prevenir y erradicar la violencia en el deporte emita la Comisión Especial, así como los establecidos en las disposiciones reglamentarias y estatutarias emitidas por las Asociaciones Deportivas Nacionales respectivas.
