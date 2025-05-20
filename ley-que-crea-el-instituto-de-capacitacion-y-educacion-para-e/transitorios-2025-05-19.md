@@ -1,0 +1,3 @@
+P.O. 19 DE MAYO DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 103. SE REFORMAN LOS INCISOS A), B), C) Y D) DE LA FRACCIÓN II DEL ARTÍCULO 8 DE LA LEY QUE CREA EL INSTITUTO DE CAPACITACIÓN Y EDUCACIÓN PARA EL TRABAJO DEL ESTADO DE NUEVO LEÓN".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Estado.
