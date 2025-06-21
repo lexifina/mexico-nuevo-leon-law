@@ -5,5 +5,9 @@ II. Empresas que dentro de su plantilla laboral tengan:
 a) Trabajadores de primer empleo;
 b) Personas adultas mayores; y
 c) Mujeres en situación de vulnerabilidad.
-III. Empresas que tengan instaladas guarderías; y
-IV. Empresas creadas por mujeres emprendedoras.
+(REFORMADA, P.O. 20 DE JUNIO DE 2025)
+III. Empresas que tengan instaladas guarderías;
+(REFORMADA, P.O. 20 DE JUNIO DE 2025)
+IV. Empresas creadas por mujeres emprendedoras; y
+(ADICIONADA, P.O. 20 DE JUNIO DE 2025)
+V. Empresas instaladas en la zona fuera del área metropolitana o zonas rurales del Estado.
