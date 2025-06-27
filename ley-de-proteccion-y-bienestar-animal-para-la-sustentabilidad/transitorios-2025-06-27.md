@@ -1,0 +1,6 @@
+P.O. 27 DE JUNIO DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 112. SE REFORMAN DIVERSOS ARTÍCULOS DE LA LEY DE PROTECCIÓN Y BIENESTAR ANIMAL PARA LA SUSTENTABILIDAD DEL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente día (sic) al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Las erogaciones en que se incurra por la implementación de lo previsto en el presente Decreto se hará de acuerdo con la disponibilidad presupuestal.
+TERCERO.- Una vez que entre en vigor el presente Decreto, la Secretaría de Medio Ambiente y los Ayuntamientos, contará (sic) con un plazo de 180 días hábiles para establecer en sus reglamentos correspondientes las disposiciones necesarias tendientes a la observancia y debido cumplimiento del presente Decreto.
+CUARTO.- La Secretaría dispondrá de un plazo de 60-sesenta días a partir de la entrada en vigor del presente decreto, para establecer y publicar el Código Universal de Colores para Mascotas referido en los artículos 16 Bis 1 y 150 de la Ley de Protección y Bienestar Animal para la Sustentabilidad del Estado de Nuevo León. A los establecimientos que deban implementar pautas con base a dicho código, se les dará un periodo de gracia de 10 días posteriores a la publicación del mismo.
