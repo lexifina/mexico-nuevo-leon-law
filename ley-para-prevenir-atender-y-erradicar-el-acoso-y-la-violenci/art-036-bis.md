@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE SEPTIEMBRE DE 2025)
+Artículo 36 BIS. Cuando el docente o autoridad escolar que siendo testigo o tenga conocimiento de acoso escolar o de una posible conducta delictiva, que afecte el correcto desarrollo integral de las y los estudiantes, seguirá el procedimiento establecido en la presente Ley, y en caso de que la conducta pueda constituir un hecho delictivo, se deberá hacer del conocimiento del Ministerio Público.
