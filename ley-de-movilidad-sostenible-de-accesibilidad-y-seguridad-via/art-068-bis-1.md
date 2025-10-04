@@ -25,8 +25,15 @@ XII. La obligación del Estado y los Municipios de realizar pruebas de alcoholem
 a) Para las personas que conduzcan motocicletas queda prohibido hacerlo con una alcoholemia superior a 0.1 mg/L en aire espirado o 0.02 g/dL en sangre.
 b) Para vehículos destinados al transporte de pasajeros y de carga, queda prohibido conducir con cualquier concentración de alcohol por espiración o litro de sangre.
 La autoridad competente realizará el respectivo control de alcoholimetría mediante el método aprobado por la Secretaría de Salud;
-XIII. La supervisión de pesos y dimensiones de todos los vehículos motorizados en todas sus modalidades deberán cumplir con las Normas Oficiales Mexicanas y demás leyes aplicables, y
+(REFORMADA, P.O. 3 DE OCTUBRE DE 2025)
+XIII. La supervisión de pesos y dimensiones de todos los vehículos motorizados en todas sus modalidades deberán cumplir con las Normas Oficiales Mexicanas (sic) demás leyes aplicables;
 XIV. Medidas para la prevención y mitigación de factores de riesgo.
+(REFORMADA, P.O. 3 DE OCTUBRE DE 2025)
+XIV. Medidas para la prevención y mitigación de factores de riesgo; y
+(ADICIONADA, P.O. 3 DE OCTUBRE DE 2025)
+XV. Establecer disposiciones que regulen la obligatoriedad para que las personas conductoras implicadas en un accidente menor, a retirar sus vehículos de la vía hacia el acotamiento o área más cercana, una vez hayan tomado fotografías o videos del hecho, y llegado a común acuerdo, inclusive ante la ausencia de un agente de tránsito con el objetivo de liberar el tránsito en la vía afectada, agilizar el tráfico y salvaguardar la integridad física y seguridad vial.
+[N. DE E. ESTE PÁRRAFO PERTENECE A LA FRACCIÓN XV, P.O. 3 DE OCTUBRE DE 2025.]
+Esta medida aplicará, siempre y cuando, cuenten con seguro vehicular vigente, existan solo daños materiales en los vehículos involucrados y estos se encuentren en condiciones de circular, así como no existan indicios que ninguno de los conductores involucrados se encuentre bajo los efectos del alcohol o de cualquier tipo de estupefaciente. De igual forma se deberá establecer los supuestos específicos y las sanciones correspondientes para su aplicación eficaz.
 El Estado y los Municipios podrán prever en los convenios de coordinación metropolitana, la armonización de los reglamentos aplicables, y la estandarización de procesos y capacitaciones relacionadas con lo establecido en el presente artículo.
 Las autoridades evaluarán la medida y proporcionalidad de las sanciones de tránsito que se establezcan.
 Los municipios establecerán en sus respectivos reglamentos de tránsito que a las personas que sean sorprendidas manejando bajo el influjo del alcohol o cualquier droga, psicotrópico o estupefaciente, se les retire la licencia o permiso para conducir por un periodo no menor a un año y por un periodo no menor a seis meses en caso de conductores de transporte público o transporte de carga.
