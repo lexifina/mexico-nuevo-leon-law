@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE OCTUBRE DE 2025)
+Artículo 89 Bis 1.- La tanatología es una disciplina utilizada por los profesionales de la salud mental mediante la cual se puede abordar una situación de duelo que padecen las personas; dicho servicio se proporciona a petición de la persona o de sus familiares, que deberán ser tratados con respeto, compasión y en estricto respeto a sus derechos humanos y conforme a las disposiciones establecidas en la presente ley y en la demás normativa que rige a la salud mental en nuestra entidad.
