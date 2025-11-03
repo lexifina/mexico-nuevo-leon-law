@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 2 DE NOVIEMBRE DE 2025)
+Artículo 15 Bis. Además del Fondo de Fomento a la Micro, Pequeña y Mediana Empresa, el Poder Ejecutivo del Estado y los Municipios, podrán otorgar incentivos a las MIPYMES, tomando en consideración los objetivos y criterios establecidos en la presente Ley y otras disposiciones aplicables.
+Las resoluciones que conforme a este artículo se dicten, deberán señalar el tipo de incentivo otorgado, el monto, porcentaje o proporción de los beneficios, los plazos que se concedan, las condiciones aplicables, los requisitos que deberán cumplir los beneficiarios y los mecanismos de evaluación.
