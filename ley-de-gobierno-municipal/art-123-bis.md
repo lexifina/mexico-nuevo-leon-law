@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE NOVIEMBRE DE 2025)
+ARTÍCULO 123 BIS.- La Administración Pública Municipal proporcionará al Cronista Municipal las facilidades que sean necesarias para el cumplimiento de su labor. En su caso, podrá contar con los recursos que se deriven del trabajo coordinado con las instituciones públicas y privadas que tengan injerencia en la investigación, acervo y difusión de las culturas municipales.

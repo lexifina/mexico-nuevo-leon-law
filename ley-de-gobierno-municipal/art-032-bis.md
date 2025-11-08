@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 7 DE NOVIEMBRE DE 2025)
+ARTÍCULO 32 BIS.- El incumplimiento de las disposiciones contenidas en el presente Capítulo, será sancionado en términos de la Ley de Responsabilidades Administrativas del Estado, sin perjuicio de lo que dispongan otros ordenamientos.
+Si del análisis del proceso de la entrega recepción se estima la comisión de un delito, el Órgano Interno de Control deberá presentar la denuncia ante el Ministerio Público.
