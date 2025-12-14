@@ -1,0 +1,3 @@
+P.O. 13 DE DICIEMBRE DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 157. SE REFORMA LA FRACCIÓN V DEL ARTÍCULO 14 BIS Y SE ADICIONA UN TERCER PÁRRAFO DEL ARTÍCULO 14 Y (SIC) DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA".]
+ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.

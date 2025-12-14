@@ -9,5 +9,5 @@ II. El diseño de un sistema de monitoreo del comportamiento violento de los ind
 III. La reeducación libre de estereotipos y la información de alerta sobre el estado de riesgo que enfrentan las mujeres en una sociedad desigual;
 (ADICIONADA, P.O. 28 DE MAYO DE 2025)
 IV. El establecimiento de un banco de datos sobre las órdenes de protección y de personas sujetas a ellas, para realizar las acciones de política; y
-(ADICIONADA, P.O. 28 DE MAYO DE 2025)
-V. El diseño de políticas públicas dirigidas al desarrollo de espacios y transportes públicos libre de todo tipo de violencia contra las mujeres.
+(REFORMADA, P.O. 13 DE DICIEMBRE DE 2025)
+V. El diseño de políticas públicas dirigidas al desarrollo de espacios públicos y medios de transporte público libres de todo tipo de violencia contra las mujeres.
