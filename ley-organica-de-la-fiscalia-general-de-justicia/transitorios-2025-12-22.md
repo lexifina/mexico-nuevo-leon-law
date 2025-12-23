@@ -1,0 +1,3 @@
+P.O. 22 DE DICIEMBRE DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 159. SE REFORMAN LAS FRACCIONES VII DEL ARTÍCULO 2 Y VI DEL ARTÍCULO 10 DE LA LEY ORGÁNICA DE LA FISCALÍA GENERAL DE JUSTICIA DEL ESTADO DE NUEVO LEÓN".]
+ÚNICO: El presente Decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial del Estado.
