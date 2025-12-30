@@ -1,0 +1,6 @@
+P.O. 29 DE DICIEMBRE DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 161. SE REFORMAN LAS FRACCIONES XXV Y XXVI DEL ARTÍCULO 9; EL INCISO D) DE LA FRACCIÓN III DEL ARTÍCULO 17 BIS; LAS FRACCIONES III Y IV DEL ARTÍCULO 34, LA FRACCIÓN III DEL ARTÍCULO 44, Y SE ADICIONAN LA FRACCIÓN XXVII AL ARTÍCULO 9; LA FRACCIÓN II BIS AL ARTÍCULO 25; UN ARTÍCULO 31 BIS 4; LA FRACCIÓN V AL ARTÍCULO 34; Y EL ARTÍCULO 44 BIS 2 , TODOS DE LA LEY ESTATAL DE SALUD".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- La persona Titular del Poder Ejecutivo contará con un plazo de 90 días hábiles, a partir de la entrada en vigor del presente Decreto, para expedir o modificar las disposiciones reglamentarias y administrativas que se requieran para el cumplimiento de las atribuciones que se le otorgan por medio del mismo.
+TERCERO.- La Secretaría de Salud del Estado podrá coordinarse con la Dirección de Protección Civil, dependiente de la Secretaría General de Gobierno para llevar a cabo los programas de capacitación para el uso de los desfibriladores externos automáticos.
+CUARTO.- Para dar cumplimiento a las obligaciones emanadas del presente Decreto, estas se realizarán atendiendo a la suficiencia presupuestal del ente ejecutor.
