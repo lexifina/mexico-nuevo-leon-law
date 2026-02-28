@@ -1,0 +1,3 @@
+P.O. 27 DE FEBRERO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 188. SE ADICIONA UN ARTÍCULO 11 BIS A LA LEY DE PREVENCIÓN SOCIAL DE LA VIOLENCIA Y LA DELINCUENCIA CON PARTICIPACIÓN CIUDADANA DEL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
