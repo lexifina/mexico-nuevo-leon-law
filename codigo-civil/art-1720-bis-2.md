@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE ENERO DE 2026)
+Art. 1720 Bis 2.- El destinatario de la preventa de compra inmobiliaria no podrá recibir una oferta cuando no sea el titular de la licencia de construcción, vigente, para el desarrollo o construcción del inmueble materia de la oferta, conforme a la ley en materia de desarrollo urbano; a no ser que se encuentre expresamente facultado por el titular de la licencia, debiendo constar dicha facultad por escrito ratificado ante notario público.

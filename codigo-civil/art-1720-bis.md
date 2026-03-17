@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE ENERO DE 2026)
+Art. 1720 Bis.- Se considera como preventa de compra inmobiliaria el ofrecimiento de compra de un bien inmueble respecto del cual, al momento del ofrecimiento, el titular del futuro bien inmueble no se encuentra en posibilidad jurídica de transmitir la propiedad por estar en proceso de construcción, urbanización o desarrollo, conforme a la ley en materia de desarrollo urbano y no contar con la autorización de ventas respectiva.
