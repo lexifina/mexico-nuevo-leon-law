@@ -5,7 +5,8 @@ II. Tener entre 19 y 35 años de edad;
 III. Estatura mínima para hombres 1.65 metros y mujeres 1.55 metros. Su peso deberá ser acorde con su estatura, según la Norma Oficial Mexicana de la materia y cumplir con el perfil médico y de personalidad que exijan las disposiciones aplicables;
 (REFORMADA, P.O. 15 DE ABRIL DE 2016)
 IV. Contar con el Certificado con efectos de Patente Policial, y de educación que determina el Sistema Nacional de Seguridad Pública y su Ley;
-V. No contar con tatuajes que resulten visibles aún vistiendo el pantalón y la camisola de manga corta de la policía;
+(REFORMADA, P.O. 15 DE ABRIL DE 2026)
+V. No contar con tatuajes con símbolos que representen un discurso de odio;
 VI. Saber conducir automóviles y tener licencia de manejo vigente;
 VII. No haber sido condenado por sentencia ejecutoriada como responsable de un delito doloso, ni estar sujeto a proceso penal;
 VIII. No estar suspendido ni haber sido destituido o inhabilitado por resolución firme como servidor público;
