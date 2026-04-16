@@ -1,0 +1,3 @@
+P.O. 15 DE ABRIL DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 193. SE REFORMAN LAS FRACCIONES XVII Y XVIII DEL ARTÍCULO 131, Y SE ADICIONA UNA FRACCIÓN XIX AL ARTÍCULO 131 DE LA LEY DE SEGURIDAD PÚBLICA PARA EL ESTADO DE NUEVO LEÓN".]
+ÚNICO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
