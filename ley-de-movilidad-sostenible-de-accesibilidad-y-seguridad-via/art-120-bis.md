@@ -1,7 +1,8 @@
 (ADICIONADO, P.O. 24 DE NOVIEMBRE DE 2023)
 Artículo 120 Bis. Se sancionará en los términos establecidos por el artículo 120 del presente ordenamiento, a quien, haciendo uso de cualquier tipo de motocicleta, cuando al circular cometan las siguientes infracciones:
 I. El conductor y/o su acompañante no porte debidamente colocado y ajustado con las correas de seguridad, casco protector para motociclista;
-II. Llevar como acompañante a un menor de edad que no pueda sujetarse por sus propios medios y alcanzar el posapiés que tenga la motocicleta para ese efecto;
+(REFORMADA, P.O. 22 DE MAYO DE 2026)
+II. Llevar como acompañante a un menor de edad, que, aun estando correctamente sentado, no pueda sujetarse por sí mismo a la motocicleta o colocar de manera adecuada y firme los pies en los estribos o posapiés, salvo que se utilicen aditamentos especialmente diseñados para garantizar su seguridad.
 III. Cuando se exceda la capacidad de pasajeros que señale la tarjeta de circulación;
 IV. No circular conforme a lo establecido en el Reglamento de la presente Ley;
 V. Circular en forma paralela o entre carriles que correspondan a otros vehículos;

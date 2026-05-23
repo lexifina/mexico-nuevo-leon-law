@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE MAYO DE 2026)
+Artículo 173 Bis. El permiso otorgado bajo la modalidad STDE podrá ser suspendido por el tiempo que determine la autoridad competente cuando alguna unidad de transporte de personal o de transporte turístico resulte responsable en un accidente de tránsito derivado del incumplimiento a lo dispuesto en la presente Ley, en los Reglamentos Municipales de Tránsito y/o en el Reglamento de esta Ley, conforme a lo establecido en el artículo 116 Bis del presente ordenamiento.

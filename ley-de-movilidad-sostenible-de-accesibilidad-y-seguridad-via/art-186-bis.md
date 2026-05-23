@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 22 DE MAYO DE 2026)
+Artículo 186 Bis. Los centros de trabajo cuya plantilla laboral exceda de trescientos trabajadores podrán elaborar, implementar y difundir un Plan de Transporte Sostenible.
+Dicho plan deberá incluir una evaluación periódica de los patrones de desplazamiento de su personal, con el objeto de proponer y promover alternativas de movilidad hacia y desde el centro de trabajo, priorizando el bienestar de las personas trabajadoras, la reducción de la congestión vehicular, la disminución de la contaminación atmosférica y la mitigación de emisiones de gases de efecto invernadero.
