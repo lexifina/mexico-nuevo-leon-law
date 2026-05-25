@@ -1,0 +1,4 @@
+P.O. 25 DE MAYO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 207. SE REFORMA EL ÚLTIMO PÁRRAFO DEL ARTÍCULO 75, EL SEGUNDO PÁRRAFO Y SE ADICIONA UN TERCER PÁRRAFO AL ARTÍCULO 93 DE LA LEY ORGÁNICA DEL PODER LEGISLATIVO DEL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor al momento de su aprobación.
+SEGUNDO.- Se deja sin efectos el decreto No. 439 aprobado el día 25 de septiembre del 2023.
