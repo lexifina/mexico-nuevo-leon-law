@@ -1,0 +1,4 @@
+P.O. 12 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 214. SE REFORMA LOS CONSECUTIVOS DEL TÍTULO QUINTO, TÍTULO SEXTO, TÍTULO SÉPTIMO, TÍTULO OCTAVO, TÍTULO NOVENO Y TÍTULO DÉCIMO; ASÍ COMO LAS FRACCIONES IV, V, VI Y VII DEL ARTÍCULO 51 Y SE ADICIONAN LAS FRACCIONES VIII Y IX AL MISMO ARTÍCULO 51, ASÍ COMO UN TÍTULO DÉCIMO PRIMERO, TODOS DE LA LEY DE JUSTICIA CÍVICA PARA EL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado de Nuevo León.
+SEGUNDO.- Los municipios del Estado de Nuevo León contarán con ciento ochenta días posteriores al de la entrada en vigor del presente decreto para efecto de realizar las adecuaciones correspondientes a sus reglamentos municipales al contenido de esta reforma.
