@@ -1,0 +1,5 @@
+P.O. 15 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚM. 215. SE ADICIONA EL ARTÍCULO 46 BIS A LA LEY DE PROTECCIÓN CIVIL PARA EL ESTADO DE NUEVO LEÓN".]
+PRIMERO.- El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado.
+SEGUNDO.- Dentro del siguiente año calendario a la entrada en vigor del presente decreto, la Dirección de Protección Civil Estatal y su correspondiente Unidad de los Municipios del Estado de Nuevo León deberá de adecuar sus reglamentos y protocolos internos al contenido del presente decreto.
+TERCERO.- Dentro de un plazo de un año calendario a la entrada en vigor del presente decreto, la Dirección de Protección Civil deberá de emitir la reglamentación correspondiente a la difusión de contenido preventivo y de seguridad en eventos masivos para su cumplimiento por parte de la iniciativa privada y pública; debiendo señalar los criterios para la determinación de la naturaleza de un evento "masivo", así como el tipo de información que habrá de difundirse en los mismos.
