@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 5 DE FEBRERO DE 1997)
-Art. 424 Bis.- Por causas supervinientes que afecten al bienestar del menor, el Juez, a petición de parte interesada, o del Ministerio Público podrá en todo tiempo resolver o modificar las resoluciones respecto a la patria potestad o custodia de los menores sujetos a ellas.
+(REFORMADO, P.O. 26 DE JUNIO DE 2026)
+Art. 424 Bis.- Por causas supervinientes que afecten al bienestar de las niñas, niños o adolescentes, el Juez, a petición de parte interesada, o del Ministerio Público podrá en todo tiempo resolver o modificar las resoluciones respecto a su patria potestad o custodia de los infantes sujetos a ellas, debiendo de escuchar la opinión de la hija o el hijo conforme a su edad y madurez en términos en lo establecido en el artículo 418 de este código.
