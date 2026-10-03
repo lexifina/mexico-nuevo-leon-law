@@ -1,0 +1,4 @@
+P.O. 2 DE OCTUBRE DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚM. 234. SE REFORMAN LAS FRACCIONES XVII, XVIII DEL ARTÍCULO 18, LA FRACCIÓN XIV DEL ARTÍCULO 196; SE ADICIONA UNA FRACCIÓN XIX AL ARTÍCULO 18; Y SE DEROGA LA FRACCIÓN XV DEL ARTÍCULO 196, TODOS DE LA LEY DE JUSTICIA ADMINISTRATIVA PARA EL ESTADO Y MUNICIPIOS DE NUEVO LEÓN".]
+PRIMERO. El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial del Estado de Nuevo León.
+SEGUNDO. Los recursos de apelación que a la fecha de entrada en vigor del presente decreto se encuentren radicados y pendientes de resolución firme en la Sala Especializada en Materia de Responsabilidad Administrativa deberán ser enviados para su tramitación y resolución definitiva a la Sala Superior del Tribunal de Justicia Administrativa del Estado de Nuevo León.
