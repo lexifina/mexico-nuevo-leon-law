@@ -1,0 +1,11 @@
+{
+  "path": "mx-nle",
+  "code": "MX-NLE",
+  "name": "Nuevo León",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-nuevo-leon-law",
+  "build": "built: constitution, codes and laws (191 ordenamientos, 2089 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
