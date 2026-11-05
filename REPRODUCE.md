@@ -7,6 +7,7 @@ This file is written by the build on 2026-11-05, the day the source data was ret
 | Source | Address | Retrieved | Licence |
 | --- | --- | --- | --- |
 | Suprema Corte de Justicia de la Nación: Legislación (state compilation) | <https://legislacion.scjn.gob.mx/> | 2026-10-30 | Ley Federal del Derecho de Autor, art. 14, fr. VIII: legislative texts are not protected. SCJN terms: copying for informative and academic purposes, with no commercial use. |
+| Gobierno de Nuevo León, Secretaría General de Gobierno, Compilación Legislativa | <https://sistec.nl.gob.mx/Transparencia_2015_LYPOE/Acciones/Legislacion.aspx> | 2026-11-05 | Ley Federal del Derecho de Autor, art. 14, fr. VIII: legislative texts are not protected. |
 
 Every word of law in this repository comes from these sources. Lexifina reads them and records each act's dated versions, and the laws that made each change, in one corpus file. This repository is built from that file.
 
@@ -205,12 +206,13 @@ Every word of law in this repository comes from these sources. Lexifina reads th
 | `ley-sobre-el-sistema-estatal-de-asistencia-social` | LEY SOBRE EL SISTEMA ESTATAL DE ASISTENCIA SOCIAL DEL ESTADO DE NUEVO LEON | 17 | 1988-12-13 to 2025-05-10 |
 | `ley-sobre-gobierno-electronico-y-fomento-al-uso-de-las-tecno` | LEY SOBRE GOBIERNO ELECTRONICO Y FOMENTO AL USO DE LAS TECNOLOGIAS DE LA INFORMACION DEL ESTADO DE NUEVO LEON | 2 | 2013-07-04 to 2013-07-26 |
 | `ley-sobre-proteccion-a-la-agricultura` | LEY SOBRE PROTECCION A LA AGRICULTURA | 1 | 1929-05-22 to 1929-05-22 |
+| `arancel-de-abogados` | ARANCEL DE ABOGADOS EN EL ESTADO DE NUEVO LEON | 1 | 2020-12-31 to 2020-12-31 |
 
-The build made 1343 commits:
+The build made 1344 commits:
 
 | Commits | Kind |
 | ---: | --- |
-| 191 | first version of an act |
+| 192 | first version of an act |
 | 1152 | one law on its in-force day |
 | 0 | changes no amendment note explains, credited to the publisher |
 
@@ -218,7 +220,7 @@ Other counts:
 - 0 commits on the branch `futuro`: laws not yet in force on 2026-11-05.
 - 64 commits dated 1 January 1970: in force before 1970, with the real day in their `In-force` trailer.
 - 1290 laws in the record.
-- 3135 tags.
+- 3136 tags.
 
 ## Dates
 
@@ -230,15 +232,15 @@ When a law gives no date of its own, the default rule applies: Decrees take effe
 
 `tools/build.py` turns the corpus into this history in one pass: one commit per law, on the day it took effect. The same corpus always gives the same commit hashes. `tools/check_repo.py` reads every version back from git and compares it with the corpus. `tools/on.py` shows the law as it stood on any date. The corpus format is described in `tools/SCHEMA.md`.
 
-- Corpus: sha256 `d6b7a680c6bfee976ea2cc40e8fe62372762688b7f6c044cc7c1d5596ed580c7` (44238865 bytes).
+- Corpus: sha256 `eb405c41a0379130903b878b16bb48197e8e735356e0fa14e7fc8b281d4c0a87` (44270710 bytes).
 - Builder blob hashes (`git hash-object`): `build.py` `35388bee5aa05369f7da68f5a8fa015ea8d442b8`, `check.py` `5d719354ea4c62d240c93d2cae446307d81d9e81`, `on.py` `aff48cf1b68d50c7ba8f399ca32261871c301824`.
 - Python 3.14.4; git version 2.53.0.
 
 ## Checks
 
-2089 versions of 191 acts read back from git on the day each took effect and on the day before: 0 mismatches. Trailers: 0 commits whose trailers git cannot parse. Health: 0 merge commits on main, 0 commit dates that go backwards, 0 commits dated after the build.
+Not yet run for this build.
 
-No second build of this corpus has been compared yet.
+A second build from the same corpus into an empty folder gave identical hashes for all 1344 history commits and 3136 tags (history tip `b0d6e756fe73611488a74c33fbff6d6f68a9a69d`).
 
 ## Decisions made by hand
 
@@ -248,6 +250,8 @@ No second build of this corpus has been compared yet.
 - Units: the heading and preamble (encabezado), one file per article (with the headings and editor's notes printed just before it), the original transitorios, and the transitorios of each reform decree under its publication date. The banner "ÚLTIMA REFORMA PUBLICADA ..." / "TEXTO ORIGINAL" is left out; editor's notes ("(REFORMADO, P.O. ...)", "N. DE E.") stay as printed.
 - An act's first commit is its first publication only when SCJN's oldest record is the act itself and its text is marked "TEXTO ORIGINAL"; otherwise it is the oldest version available, naming the publications before it.
 - Codes of conduct and ethics are left out; only ordenamientos SCJN marks as in force are included.
+- Arancel de Abogados: single-file current text, with all selectable PDF text retained; the source gives the latest integrated reform as Decreto 436, P.O. 30 December 2020.
+- Decreto 436's sole transitional article says it enters into force the day after P.O. publication, so this version begins 31 December 2020.
 
 ## What AI did and did not do
 
@@ -259,3 +263,4 @@ The commit messages are written by `build.py` from the source data.
 
 Model use at data-build time:
 - A model (Claude) wrote the fetch and parse code and chose which ordenamientos to include; it wrote no law text. Every word of law comes from the SCJN compilation's consolidated texts.
+- A model selected the act and date from the source; the legal text was extracted mechanically from the official PDF without model edits.

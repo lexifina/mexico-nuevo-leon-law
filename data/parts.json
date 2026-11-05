@@ -220,6 +220,12 @@
     "ley-sobre-proteccion-a-la-agricultura"
    ],
    "sha256": "7a1d48b0aac1ee248e7cbe020bee3d639bf03442bde5aa41c42daa33f2ebea56"
+  },
+  "90-sistec-01.json": {
+   "acts": [
+    "arancel-de-abogados"
+   ],
+   "sha256": "aef97f5d6c58206210abdc2729046c5784c6760cb7727ea43248d38ca387bcea"
   }
  },
  "schema": 1

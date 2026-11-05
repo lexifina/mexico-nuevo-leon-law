@@ -14062,6 +14062,20 @@
      "sha256": "dd36e688858e34de57c16132535c5fc7a5d413ad5e9edc81f5b984e41ffdaf38"
     }
    ]
+  },
+  {
+   "slug": "arancel-de-abogados",
+   "short": "Arancel de Abogados",
+   "title": "ARANCEL DE ABOGADOS EN EL ESTADO DE NUEVO LEON",
+   "url": "http://sistec.nl.gob.mx/Transparencia_2015/Archivos/AC_0001_0002_0169158-0000001.pdf",
+   "versions": [
+    {
+     "from": "2020-12-31",
+     "units": 1,
+     "source_url": "http://sistec.nl.gob.mx/Transparencia_2015/Archivos/AC_0001_0002_0169158-0000001.pdf",
+     "sha256": "b93c0f6e5e4fecab6cb3ffabd5c8e504ce1af4530686137b774faa2b663460a8"
+    }
+   ]
   }
  ]
 }
