@@ -8,10 +8,11 @@ The text is in Spanish, exactly as the source prints it.
 
 ## What this repository holds
 
-191 ordenamientos with 2089 versions so far: the constitution first, then the codes and laws in force, added in parts. Regulations, decrees and repealed laws are not included yet.
+192 ordenamientos with 2090 versions so far: the constitution first, then the codes and laws in force, added in parts. Regulations, decrees and repealed laws are not included yet. The Arancel de Abogados is a single-file current consolidated text from the Gobierno de Nuevo León compilation, dated 31 December 2020 by Decreto 436’s commencement clause; earlier versions are not included for this act.
 
 | Folder | Ordenamiento | Versions | History |
 | --- | --- | ---: | --- |
+| `arancel-de-abogados/` | ARANCEL DE ABOGADOS EN EL ESTADO DE NUEVO LEON | 1 | oldest version available: current consolidated text in force from 31 December 2020 |
 | `constitucion-politica/` | CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DE NUEVO LEON | 213 | as first published, then each reform: 16 December 1917 to 7 July 2026 |
 | `codigo-civil/` | CODIGO CIVIL PARA EL ESTADO DE NUEVO LEON | 119 | as first published, then each reform: 6 July 1935 to 27 June 2026 |
 | `codigo-de-procedimientos-civiles/` | CODIGO DE PROCEDIMIENTOS CIVILES DEL ESTADO DE NUEVO LEON | 82 | as first published, then each reform: 3 February 1973 to 11 June 2022 |
@@ -232,3 +233,5 @@ The author of a commit is the publication that changed the text (a decree, an er
 ## Limits
 
 This is not an official publication. The binding text is the one published in the state's official gazette (Periódico Oficial). The history starts with the oldest text SCJN holds for each ordenamiento, which for many is later than its enactment. Only the ordenamientos listed above are included.
+
+The Arancel de Abogados text is from Gobierno de Nuevo León, Secretaría General de Gobierno: [Compilación Legislativa](https://sistec.nl.gob.mx/Transparencia_2015_LYPOE/Acciones/Legislacion.aspx), consulted 5 November 2026. It includes the complete selectable text and textual tariff table of the official PDF.

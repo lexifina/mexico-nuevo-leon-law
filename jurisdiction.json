@@ -5,7 +5,7 @@
   "level": "state",
   "parent": "mx",
   "repo": "https://github.com/lexifina/mexico-nuevo-leon-law",
-  "build": "built: constitution, codes and laws (191 ordenamientos, 2089 versions) from SCJN Legislación",
+  "build": "built: constitution, codes and laws (192 ordenamientos, 2090 versions); SCJN history and Gobierno de Nuevo León current consolidated Arancel de Abogados",
   "language": "es",
-  "sources": 1
+  "sources": 2
 }
